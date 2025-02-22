@@ -29,12 +29,12 @@ def addToFile(item: Tag, file: TextIOWrapper):
         event = (
             "### "
             + event_name
-            + "\n"
+            + "\n\n"
             + description
             + "  \n"
-            + "[info link]("
+            + '<a href="'
             + link
-            + ")\n"
+            + '" target="_blank">info link</a>\n\n'
         )
         file.write(event)
 
@@ -49,9 +49,7 @@ if __name__ == "__main__":
     events = []
     items = soup.find(id="event_description")
     with open(filename + ".md", "w") as file:
-        file.write("# " + header + "\n")
+        file.write("# " + header + "\n\n")
 
         with ThreadPoolExecutor(max_workers=4) as executor:
             executor.map(addToFile, items.findChildren(), itertools.repeat(file))
-            #    for item in items.findChildren():
-            #        addToFile(item, file)
