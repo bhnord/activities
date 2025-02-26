@@ -32,7 +32,7 @@ def getDescriptionText(bitly_link: str) -> str:
     return text.getText() if text is not None else ""
 
 
-def addToFile(item: Tag, file: TextIOWrapper):
+def addNumberedEventToFile(item: Tag, file: TextIOWrapper):
     if re.match(r"[0-9]+\)*", item.text):
         text = item.text
         event_name = re.search(r"[0-9]+\)\s+(.+)\s+", text).group(1).strip()
@@ -53,7 +53,44 @@ def addToFile(item: Tag, file: TextIOWrapper):
         file.write(event)
 
 
-def addEvent(url: str, file: TextIOWrapper):
+def addEventToFile(item: str, file: TextIOWrapper):
+    soup = BeautifulSoup(item, "lxml")
+
+    link = ""
+    event_name = ""
+    # when, where, description
+    info = []
+
+    for i, elem in enumerate(soup.find_all("p")):
+        # title
+        if i == 0:
+            link = elem.find("a").get("href")
+            event_name = elem.text.strip()
+        # when
+        else:
+            elem.find("strong").decompose()
+            info.append(elem.text.strip())
+
+    event = (
+        "### "
+        + event_name
+        + " @ "
+        + info[1]
+        + "\n\n"
+        + "##### "
+        + info[0]
+        + "\n\n"
+        + info[2]
+        + "  \n"
+        + '<a href="'
+        + link
+        + '" target="_blank">info link</a>\n\n'
+    )
+
+    file.write(event)
+
+
+def addEventPage(url: str, file: TextIOWrapper):
     content = requests.get(url).text
     soup = BeautifulSoup(content, "lxml")
 
@@ -62,14 +99,24 @@ def addEvent(url: str, file: TextIOWrapper):
     items = soup.find(id="event_description")
     file.write("# " + header + "\n\n")
 
-    with ThreadPoolExecutor(max_workers=4) as executor:
-        executor.map(addToFile, items.findChildren(), itertools.repeat(file))
+    # check which format the list is in
+    text = soup.text
+    regex = re.findall(r"[0-9]+\)\s+(.+?) bit\.ly", text)
+    if regex and len(regex) > 5:
+        with ThreadPoolExecutor(max_workers=4) as executor:
+            executor.map(
+                addNumberedEventToFile, items.findChildren(), itertools.repeat(file)
+            )
+    else:
+        events = re.findall(r"<p><a.+?Where.+?Info.+?</p>", content)
+        with ThreadPoolExecutor(max_workers=4) as executor:
+            executor.map(addEventToFile, events, itertools.repeat(file))
 
 
 if __name__ == "__main__":
-    filename = datetime.now().strftime("%m-%d-%Y")
+    filename = "README"
 
     event_list_urls = getEventsLists(2)
     with open(filename + ".md", "w") as file:
         for event_url in event_list_urls:
-            addEvent(BASE_URL + event_url, file)
+            addEventPage(BASE_URL + event_url, file)
