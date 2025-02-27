@@ -7,9 +7,6 @@ from bs4 import BeautifulSoup
 from concurrent.futures import ThreadPoolExecutor
 import re
 
-## todo: get dynamically from https://www.thebostoncalendar.com
-url = "https://www.thebostoncalendar.com/events/80-free-things-to-do-in-boston-this-week-feb-18-23-2025"
-
 BASE_URL = "https://www.thebostoncalendar.com"
 
 
@@ -37,8 +34,9 @@ def addNumberedEventToFile(item: Tag, file: TextIOWrapper):
         text = item.text
         event_name = re.search(r"[0-9]+\)\s+(.+)\s+", text).group(1).strip()
         link = str(item.find("a").get("href"))
-        match = re.match(r"^[^.!?]*[.!?]", getDescriptionText(link))
-        description = match.group(0).strip() if match else ""
+        descriptionText = getDescriptionText(link)
+        match = re.match(r"^[^.!?].{40,}?[.!?]", descriptionText, re.IGNORECASE)
+        description = match.group(0).strip() if match else descriptionText
 
         event = (
             "### "
@@ -97,7 +95,7 @@ def addEventPage(url: str, file: TextIOWrapper):
     header = soup.find("h1").text.strip()
 
     items = soup.find(id="event_description")
-    file.write("# " + header + "\n\n")
+    file.write(f"# {header}\n\n")
 
     # check which format the list is in
     text = soup.text
@@ -118,5 +116,6 @@ if __name__ == "__main__":
 
     event_list_urls = getEventsLists(2)
     with open(filename + ".md", "w") as file:
+        file.write("scraped from: " + BASE_URL + "\n\n")
         for event_url in event_list_urls:
             addEventPage(BASE_URL + event_url, file)
