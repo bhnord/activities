@@ -29,7 +29,7 @@ def getDescriptionText(bitly_link: str) -> str:
     return text.getText() if text is not None else ""
 
 
-def addNumberedEventToFile(item: Tag, file: TextIOWrapper):
+def addNumberedEventToFile(item: Tag, file: TextIOWrapper, events_file: TextIOWrapper):
     if re.match(r"[0-9]+\)*", item.text):
         text = item.text
         event_name = re.search(r"[0-9]+\)\s+(.+)\s+", text).group(1).strip()
@@ -48,10 +48,13 @@ def addNumberedEventToFile(item: Tag, file: TextIOWrapper):
             + link
             + '" target="_blank">info link</a>\n\n'
         )
+        raw_event = "### " + event_name + "\n\n" + description + "\n\n"
+
         file.write(event)
+        events_file.write(raw_event)
 
 
-def addEventToFile(item: str, file: TextIOWrapper):
+def addEventToFile(item: str, file: TextIOWrapper, events_file: TextIOWrapper):
     soup = BeautifulSoup(item, "lxml")
 
     link = ""
@@ -85,10 +88,23 @@ def addEventToFile(item: str, file: TextIOWrapper):
         + '" target="_blank">info link</a>\n\n'
     )
 
+    raw_event = (
+        "### "
+        + event_name
+        + " @ "
+        + info[1]
+        + "\n\n"
+        + "##### "
+        + info[0]
+        + "\n\n"
+        + info[2]
+        + "\n\n"
+    )
     file.write(event)
+    events_file.write(raw_event)
 
 
-def addEventPage(url: str, file: TextIOWrapper):
+def addEventPage(url: str, file: TextIOWrapper, events_file: TextIOWrapper):
     content = requests.get(url).text
     soup = BeautifulSoup(content, "lxml")
 
@@ -103,19 +119,30 @@ def addEventPage(url: str, file: TextIOWrapper):
     if regex and len(regex) > 5:
         with ThreadPoolExecutor(max_workers=4) as executor:
             executor.map(
-                addNumberedEventToFile, items.findChildren(), itertools.repeat(file)
+                addNumberedEventToFile,
+                items.findChildren(),
+                itertools.repeat(file),
+                itertools.repeat(events_file),
             )
     else:
         events = re.findall(r"<p><a.+?Where.+?Info.+?</p>", content)
         with ThreadPoolExecutor(max_workers=4) as executor:
-            executor.map(addEventToFile, events, itertools.repeat(file))
+            executor.map(
+                addEventToFile,
+                events,
+                itertools.repeat(file),
+                itertools.repeat(events_file),
+            )
 
 
 if __name__ == "__main__":
     filename = "README"
+    raw_events_filename = "events.md"
 
     event_list_urls = getEventsLists(2)
-    with open(filename + ".md", "w") as file:
+    with open(filename + ".md", "w") as file, open(
+        raw_events_filename, "w"
+    ) as events_file:
         file.write("scraped from: " + BASE_URL + "\n\n")
         for event_url in event_list_urls:
-            addEventPage(BASE_URL + event_url, file)
+            addEventPage(BASE_URL + event_url, file, events_file)

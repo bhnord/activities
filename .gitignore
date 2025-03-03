@@ -1,2 +1,4 @@
 .venv/*
 .env
+llama-out.txt
+prompt.txt
