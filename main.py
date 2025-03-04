@@ -62,15 +62,20 @@ def addEventToFile(item: str, file: TextIOWrapper, events_file: TextIOWrapper):
     # when, where, description
     info = []
 
-    for i, elem in enumerate(soup.find_all("p")):
+    title_seen = False
+    for elem in soup.find_all("p"):
         # title
-        if i == 0:
+        if elem.find("a"):
             link = elem.find("a").get("href")
-            event_name = elem.text.strip()
-        # when
-        else:
-            elem.find("strong").decompose()
-            info.append(elem.text.strip())
+            # remove numebring if it's there
+            event_name = re.sub(r"^\d+\)", "", elem.text).strip()
+            title_seen = True
+        # where, when, info
+        elif title_seen:
+            sub_title = elem.find("strong")
+            if re.match(r"(where|when|info)", sub_title.text, re.IGNORECASE):
+                sub_title.decompose()
+                info.append(elem.text.strip())
 
     event = (
         "### "
@@ -105,7 +110,10 @@ def addEventToFile(item: str, file: TextIOWrapper, events_file: TextIOWrapper):
 
 
 def addEventPage(url: str, file: TextIOWrapper, events_file: TextIOWrapper):
-    content = requests.get(url).text
+    response = requests.get(url)
+    print(response.encoding)
+    content = response.content.decode("utf-8", "ignore")
+
     soup = BeautifulSoup(content, "lxml")
 
     header = soup.find("h1").text.strip()
@@ -120,12 +128,12 @@ def addEventPage(url: str, file: TextIOWrapper, events_file: TextIOWrapper):
         with ThreadPoolExecutor(max_workers=4) as executor:
             executor.map(
                 addNumberedEventToFile,
-                items.findChildren(),
+                items.find_all(),
                 itertools.repeat(file),
                 itertools.repeat(events_file),
             )
     else:
-        events = re.findall(r"<p><a.+?Where.+?Info.+?</p>", content)
+        events = re.findall(r"<p>.+?<a.+?Where.+?Info.+?</p>", content)
         with ThreadPoolExecutor(max_workers=4) as executor:
             executor.map(
                 addEventToFile,
