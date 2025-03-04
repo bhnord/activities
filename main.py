@@ -5,9 +5,12 @@ import requests
 from datetime import datetime
 from bs4 import BeautifulSoup
 from concurrent.futures import ThreadPoolExecutor
+import threading
 import re
 
 BASE_URL = "https://www.thebostoncalendar.com"
+
+write_lock = threading.Lock()
 
 
 def getEventsLists(n: int):
@@ -50,8 +53,9 @@ def addNumberedEventToFile(item: Tag, file: TextIOWrapper, events_file: TextIOWr
         )
         raw_event = "### " + event_name + "\n\n" + description + "\n\n"
 
-        file.write(event)
-        events_file.write(raw_event)
+        with write_lock:
+            file.write(event)
+            events_file.write(raw_event)
 
 
 def addEventToFile(item: str, file: TextIOWrapper, events_file: TextIOWrapper):
@@ -105,8 +109,10 @@ def addEventToFile(item: str, file: TextIOWrapper, events_file: TextIOWrapper):
         + info[2]
         + "\n\n"
     )
-    file.write(event)
-    events_file.write(raw_event)
+
+    with write_lock:
+        file.write(event)
+        events_file.write(raw_event)
 
 
 def addEventPage(url: str, file: TextIOWrapper, events_file: TextIOWrapper):
