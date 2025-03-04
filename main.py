@@ -110,9 +110,7 @@ def addEventToFile(item: str, file: TextIOWrapper, events_file: TextIOWrapper):
 
 
 def addEventPage(url: str, file: TextIOWrapper, events_file: TextIOWrapper):
-    response = requests.get(url)
-    print(response.encoding)
-    content = response.content.decode("utf-8", "ignore")
+    content = requests.get(url).text
 
     soup = BeautifulSoup(content, "lxml")
 
