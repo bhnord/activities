@@ -2,30 +2,25 @@ scraped from: https://www.thebostoncalendar.com
 
 # 79 FREE things to do in Boston this week: Mar 3–9, 2025
 
-### St. Paddy’s Day @ DBCo (Sa)
+### St. Puptrick’s Day @ Park-9 (Sa)
 
-Feeling lucky?🍀We’re waiting for you at the end of the rainbow with BEER, COCKTAILS, & MORE!  
-<a href="https://www.thebostoncalendar.com/events/st-patrick-s-day-at-dbco" target="_blank">info link</a>
-
-### SoWa First Friday (Fr)
-
-THE ART OF SPRING BEGINS IN MARCH.There is only one 450 Harrison Ave.  
-<a href="https://www.thebostoncalendar.com/events/sowa-first-friday--90" target="_blank">info link</a>
+Get ready for our annual Saint Puptrick’s Day event!  
+<a href="https://www.thebostoncalendar.com/events/st-puptricks-day-with-red-dog-pet-resort" target="_blank">info link</a>
 
 ### heART of Allston Party (Sa)
 
 Celebrate Allston and warm your heart with art, music, and food at The Grove on Saturday, March 8th from 11am-3pm at heART of Allston.  
 <a href="https://www.thebostoncalendar.com/events/heart-of-allston-a-celebration-of-art-and-community" target="_blank">info link</a>
 
-### St. Puptrick’s Day @ Park-9 (Sa)
+### SoWa First Friday (Fr)
 
-Get ready for our annual Saint Puptrick’s Day event!  
-<a href="https://www.thebostoncalendar.com/events/st-puptricks-day-with-red-dog-pet-resort" target="_blank">info link</a>
+THE ART OF SPRING BEGINS IN MARCH.There is only one 450 Harrison Ave.  
+<a href="https://www.thebostoncalendar.com/events/sowa-first-friday--90" target="_blank">info link</a>
 
-### ‘Hunger Games’ Screening (Sa)
+### St. Paddy’s Day @ DBCo (Sa)
 
-Join us this International Women's Day as we celebrate one of our favorite female main characters, Katniss Everdeen, with a screening of the Hunger Games!  
-<a href="https://www.thebostoncalendar.com/events/hunger-games-screening" target="_blank">info link</a>
+Feeling lucky?🍀We’re waiting for you at the end of the rainbow with BEER, COCKTAILS, & MORE!  
+<a href="https://www.thebostoncalendar.com/events/st-patrick-s-day-at-dbco" target="_blank">info link</a>
 
 ### Hinamatsuri Fest @ Bow Mkt (Su)
 
@@ -37,40 +32,50 @@ Hinamatsuri Celebration at Bow MarketNagomi Bento and Ko-Kyoto invite you to a s
 Night Games R&B Market has been really heating up thanks to you!  
 <a href="https://www.thebostoncalendar.com/events/dx-arcade-hello-open-market-present-night-games-an-r-b-market--4" target="_blank">info link</a>
 
-### 1st Thursdays @ Gardner Museum (Th)
+### ‘Hunger Games’ Screening (Sa)
 
-Join us on the first Thursday of every month for a dynamic evening of sanctuary and community.  
-<a href="https://www.thebostoncalendar.com/events/free-first-thursdays-at-the-isabella-stewart-gardner-museum--22" target="_blank">info link</a>
-
-### Mayhem Album Release Party (Th)
-
-  
-<a href="https://www.thebostoncalendar.com/events/mayhem-album-release-party" target="_blank">info link</a>
-
-### Wampanoag Sing + Dance Perf (Sa)
-
-This powerful, joyful, family-friendly performance offers a deep opportunity to learn and join the dancers in song and movement.  
-<a href="https://www.thebostoncalendar.com/events/wampanoag-nation-singers-dancers" target="_blank">info link</a>
+Join us this International Women's Day as we celebrate one of our favorite female main characters, Katniss Everdeen, with a screening of the Hunger Games!  
+<a href="https://www.thebostoncalendar.com/events/hunger-games-screening" target="_blank">info link</a>
 
 ### Little Lephrechauns Bash (Su)
 
 🍀 St. Patrick’s Day Family Celebration! 🍀Bring the whole family and get ready for a shamrockin’ good time at Time Out Market Boston!  
 <a href="https://www.thebostoncalendar.com/events/little-leprechauns-bash" target="_blank">info link</a>
 
+### 1st Thursdays @ Gardner Museum (Th)
+
+Join us on the first Thursday of every month for a dynamic evening of sanctuary and community.  
+<a href="https://www.thebostoncalendar.com/events/free-first-thursdays-at-the-isabella-stewart-gardner-museum--22" target="_blank">info link</a>
+
+### Wampanoag Sing + Dance Perf (Sa)
+
+This powerful, joyful, family-friendly performance offers a deep opportunity to learn and join the dancers in song and movement.  
+<a href="https://www.thebostoncalendar.com/events/wampanoag-nation-singers-dancers" target="_blank">info link</a>
+
+### Mayhem Album Release Party (Th)
+
+  
+<a href="https://www.thebostoncalendar.com/events/mayhem-album-release-party" target="_blank">info link</a>
+
 ### Wild Child Wine Tasting (Mo)
 
 Join us Monday 3/3 for this epic and unprecedented tasting with some of the most iconic and influential producers in the world of natural wine.  
 <a href="https://www.thebostoncalendar.com/events/kermit-lynch-wine-merchant-next-generation-tour" target="_blank">info link</a>
+
+### Celtic Bells Live Music (Sa)
+
+Join us for a free program that tells the story of Irish immigrants in Boston.  
+<a href="https://www.thebostoncalendar.com/events/the-story-of-the-irish-in-boston-with-the-celtic-bells" target="_blank">info link</a>
 
 ### Line Dancin' Lessons @ Grand Ten (We)
 
 Mosey on down to South Boston on the 1st and 3rd Wednesdays of the month for three hours of line dance breakdowns and walk throughs.  
 <a href="https://www.thebostoncalendar.com/events/grand-ten-line-dancin-lessons" target="_blank">info link</a>
 
-### Celtic Bells Live Music (Sa)
+### ‘Art for Everybody’ Film+Talk (Sa)
 
-Join us for a free program that tells the story of Irish immigrants in Boston.  
-<a href="https://www.thebostoncalendar.com/events/the-story-of-the-irish-in-boston-with-the-celtic-bells" target="_blank">info link</a>
+Join us for the film screening of Art for Everybody and a conversation with filmmakers Miranda Yousef and Tim Rummel.  
+<a href="https://www.thebostoncalendar.com/events/art-for-everybody-film-screening-and-conversation-with-miranda-yousef-and-tim-rummel" target="_blank">info link</a>
 
 ### Line Dancing @ Nash Bar (We)
 
@@ -82,15 +87,15 @@ Head to Nash Bar every Wednesday night at 8:30 pm for line dancing lessons with 
 Unleash your inner artist at Zone 3’s beloved Drinking + Drawing event!  
 <a href="https://www.thebostoncalendar.com/events/drinking-and-drawing--6" target="_blank">info link</a>
 
-### ‘Art for Everybody’ Film+Talk (Sa)
-
-Join us for the film screening of Art for Everybody and a conversation with filmmakers Miranda Yousef and Tim Rummel.  
-<a href="https://www.thebostoncalendar.com/events/art-for-everybody-film-screening-and-conversation-with-miranda-yousef-and-tim-rummel" target="_blank">info link</a>
-
 ### Free Coworking Day (Fr)
 
 Join us on our First Free Friday to get to know our space and the benefits of coworking for FREE!  
 <a href="https://www.thebostoncalendar.com/events/free-first-friday--12" target="_blank">info link</a>
+
+### Women’s Day Movie Night (Fr)
+
+On Friday March 7th, international women's travel community Wanderful is teaming up with Ula Cafe and Wenham Street Cinema to celebrate International Women's Day (March 8) and Women's History Month with a FREE film screening of Wadjda (2012)!  
+<a href="https://www.thebostoncalendar.com/events/international-women-s-day-movie-night" target="_blank">info link</a>
 
 ### Women’s Day Tour @ Nichols (Sa)
 
@@ -101,11 +106,6 @@ In honor of International Women’s Day, at the Nichols House Museum we’re hig
 
 Join us at Boston City Hall for an evening celebrating an exhibition by the Boston Modern Quilt Guild.  
 <a href="https://www.thebostoncalendar.com/events/patterns-on-concrete-reception" target="_blank">info link</a>
-
-### Women’s Day Movie Night (Fr)
-
-On Friday March 7th, international women's travel community Wanderful is teaming up with Ula Cafe and Wenham Street Cinema to celebrate International Women's Day (March 8) and Women's History Month with a FREE film screening of Wadjda (2012)!  
-<a href="https://www.thebostoncalendar.com/events/international-women-s-day-movie-night" target="_blank">info link</a>
 
 ### ‘Air’ Screening @ Sam Adams (Su)
 
@@ -137,11 +137,6 @@ Jazz great Charles Tolliver returns to the Roxbury Library for another performan
 Geeks Who Drink will host a special quiz all about the 90’s!  
 <a href="https://www.thebostoncalendar.com/events/90-s-themed-trivia" target="_blank">info link</a>
 
-### Grrrl Talk @ Remnant (Fr)
-
-Join us with DJs RaDJoy and Stealthmode as they spin vinyl classics and faves.  
-<a href="https://www.thebostoncalendar.com/events/grrrl-talk-come-talk-come-drink-just-come--6" target="_blank">info link</a>
-
 ### Women Take the Reel Film Fest (Th)
 
 Come join us for a special screening of All We Imagne As Light at the Bartos Theatre!  
@@ -152,60 +147,55 @@ Come join us for a special screening of All We Imagne As Light at the Bartos T
 Attend an advance screening of Warner Bros' MICKEY 17 on Monday, March 3rd at 7 PM at AMC Boston Common!  
 <a href="https://www.thebostoncalendar.com/events/mickey-17-advance-screening" target="_blank">info link</a>
 
+### Slam Adams Poetry (Mo)
+
+Join us on the first Monday of each month for a Poetry Slam in collaboration with Boston Poetry Slam!  
+<a href="https://www.thebostoncalendar.com/events/slam-adams-boston-poetry-slam-at-the-sam-adams-boston-brewery--3" target="_blank">info link</a>
+
+### Grrrl Talk @ Remnant (Fr)
+
+Join us with DJs RaDJoy and Stealthmode as they spin vinyl classics and faves.  
+<a href="https://www.thebostoncalendar.com/events/grrrl-talk-come-talk-come-drink-just-come--6" target="_blank">info link</a>
+
 ### Silent Book Club + Write (Mo)
 
 Note: This occurs every other week. This will NOT occur on 3/10 and 3/24.  
 <a href="https://www.thebostoncalendar.com/events/silent-book-club-write-night--17" target="_blank">info link</a>
-
-### Artist Talk @ Harvard Art (Tu)
-
-Join us for an in-depth discussion featuring artist Yoshida Ayomi in conversation with curatorial fellow Lillian Wies.  
-<a href="https://www.thebostoncalendar.com/events/artist-talk-with-yoshida-ayomi" target="_blank">info link</a>
-
-### Cambridge Youth Hockey Day (Sa)
-
-Celebrate all that makes Youth Sports fun at Cambridge Youth Hockey’s second annual Cambridge Hockey Day on Saturday March 8th.  
-<a href="https://www.thebostoncalendar.com/events/cambridge-youth-hockey-day" target="_blank">info link</a>
 
 ### Bourbon & Blues @ Liberty Hotel (Mo)
 
 Join us in The Liberty Lobby for live blues music performed by Hot Sauce Band every Monday from 6:30PM – 9:00PM.  
 <a href="https://www.thebostoncalendar.com/events/major-mondays-at-the-liberty-hotel--158" target="_blank">info link</a>
 
-### Slam Adams Poetry (Mo)
+### Cambridge Youth Hockey Day (Sa)
 
-Join us on the first Monday of each month for a Poetry Slam in collaboration with Boston Poetry Slam!  
-<a href="https://www.thebostoncalendar.com/events/slam-adams-boston-poetry-slam-at-the-sam-adams-boston-brewery--3" target="_blank">info link</a>
+Celebrate all that makes Youth Sports fun at Cambridge Youth Hockey’s second annual Cambridge Hockey Day on Saturday March 8th.  
+<a href="https://www.thebostoncalendar.com/events/cambridge-youth-hockey-day" target="_blank">info link</a>
 
 ### Lamplighter Book Club (We)
 
 Every other month, we team up with the Cambridge Public Library to highlight contemporary works from marginalized voices.  
 <a href="https://www.thebostoncalendar.com/events/march-brewery-book-club-at-lamplighter--2" target="_blank">info link</a>
 
-### Winter Hill Poetry Open Mic (Tu)
-
-Countertop Chants: March Poetry Open MicCountertop Chants is proud to host Poetry Open Mics that celebrate our craft, art of all mediums, community, and local businesses.  
-<a href="https://www.thebostoncalendar.com/events/countertop-chants-poetry-open-mic-march" target="_blank">info link</a>
-
 ### Spring Market @ Publico (We)
 
 Hosted by Harry & Lou South Boston- come bring a friend and join us for an evening of sips and shopping at Publico!  
 <a href="https://www.thebostoncalendar.com/events/spring-market-at-publico" target="_blank">info link</a>
 
-### Live Music @ CanalSide (Th)
+### Winter Hill Poetry Open Mic (Tu)
 
-Gather your friends and coworkers for an evening of FREE music at Thursday Tunes, presented by CanalSide Food + Drink at CambridgeSide.  
-<a href="https://www.thebostoncalendar.com/events/free-thursday-tunes-at-canalside-food-drink-at-cambridgeside--4" target="_blank">info link</a>
+Countertop Chants: March Poetry Open MicCountertop Chants is proud to host Poetry Open Mics that celebrate our craft, art of all mediums, community, and local businesses.  
+<a href="https://www.thebostoncalendar.com/events/countertop-chants-poetry-open-mic-march" target="_blank">info link</a>
 
 ### WINTERACTIVE 2025 (Mo-Su)
 
 Experience the second year of WINTERACTIVE, a free, walkable art experience featuring more than 15 artworks and interactive play elements, presented by the Downtown Boston Alliance.  
 <a href="https://www.thebostoncalendar.com/events/winteractive-winter-art-experience-in-downtown-boston" target="_blank">info link</a>
 
-### ‘The Bachelor’ Watch Party (Mo)
+### Live Music @ CanalSide (Th)
 
-Come join us to watch new episodes of ABC's The Bachelor!  
-<a href="https://www.thebostoncalendar.com/events/the-bachelor-watch-party-at-lamplighter-broadway--6" target="_blank">info link</a>
+Gather your friends and coworkers for an evening of FREE music at Thursday Tunes, presented by CanalSide Food + Drink at CambridgeSide.  
+<a href="https://www.thebostoncalendar.com/events/free-thursday-tunes-at-canalside-food-drink-at-cambridgeside--4" target="_blank">info link</a>
 
 ### SoWa Sundays (Su)
 
@@ -217,6 +207,11 @@ GREET SPRING EACH SUNDAY IN MARCH.There is only one 450 Harrison Ave.
 No RSVP is needed! Join us for a cozy evening of creativity in our upstairs cafe!  
 <a href="https://www.thebostoncalendar.com/events/hooks-and-books--8" target="_blank">info link</a>
 
+### ‘The Bachelor’ Watch Party (Mo)
+
+Come join us to watch new episodes of ABC's The Bachelor!  
+<a href="https://www.thebostoncalendar.com/events/the-bachelor-watch-party-at-lamplighter-broadway--6" target="_blank">info link</a>
+
 ### Boston Parks Winter Fitness (Mo-Fr)
 
 The Boston Parks Fitness Series offers free fitness programming in Boston parks.  
@@ -227,6 +222,11 @@ The Boston Parks Fitness Series offers free fitness programming in Boston parks.
 Come try out dragon boating with Living Root Dragon Boat.  
 <a href="https://www.thebostoncalendar.com/events/indoor-dragon-boat-pool-practice-living-root--5" target="_blank">info link</a>
 
+### DOT Winter Farmers Mkt (Sa)
+
+Organized by the Codman Square Health Center, BOLD Teens, and the Codman Square Neighborhood Council, the Dorchester Winter Farmers Market is the only winter market in Dorchester and is a great place to buy farm fresh produce, baked goods, meat, specialty foods from local producers, art, and craft items.  
+<a href="https://www.thebostoncalendar.com/events/dorchester-winter-farmer-s-market--6" target="_blank">info link</a>
+
 ### RuPaul’s Drag Race (Fr)
 
 Do you need a dose of fabulosity in your life?  
@@ -236,11 +236,6 @@ Do you need a dose of fabulosity in your life?
 
 Join us every Sunday from 1pm-4pm for Coffee+Crafts!  
 <a href="https://www.thebostoncalendar.com/events/coffee-crafts--25" target="_blank">info link</a>
-
-### DOT Winter Farmers Mkt (Sa)
-
-Organized by the Codman Square Health Center, BOLD Teens, and the Codman Square Neighborhood Council, the Dorchester Winter Farmers Market is the only winter market in Dorchester and is a great place to buy farm fresh produce, baked goods, meat, specialty foods from local producers, art, and craft items.  
-<a href="https://www.thebostoncalendar.com/events/dorchester-winter-farmer-s-market--6" target="_blank">info link</a>
 
 ### Live Music @ The Berkley (Th)
 
@@ -257,11 +252,6 @@ Teams play along and compete against each other using their smartphones through 
 15th SeasonSeason 2024-2025November 2nd, 2024 -April 12th, 2025, except 11/30, 12/28  Saturdays, 9:30 am - 1:30 pmThe Center for the Arts at the Armory is proud to offer a weekly winter market with 71+ local food vendors with the best locally grown and regionally produced foods, including fresh produce, cheese, eggs, meats, fish, breads, tamales, pastries, chocolate, skincare products, and more.  
 <a href="https://www.thebostoncalendar.com/events/somerville-winter-farmers-market--146" target="_blank">info link</a>
 
-### 30+ Trivia Nights in Boston
-
-A little friendly competition can be good for you.  
-<a href="https://www.thebostoncalendar.com/events/20-trivia-nights-in-boston-for-every-day-of-the-week-in-2022" target="_blank">info link</a>
-
 ### Live Music @ Remnant Satellite (Sa)
 
 Catch some tunes, vibes, and drinks with us!  
@@ -271,6 +261,16 @@ Catch some tunes, vibes, and drinks with us!
 
 Get ready to tap your toes and test your musical knowledge with Musical Bingo, a captivating game show that combines the thrill of bingo with the charm of melodies.  
 <a href="https://www.thebostoncalendar.com/events/free-music-bingo-at-canalside-food-drink-at-cambridgeside--4" target="_blank">info link</a>
+
+### 30+ Trivia Nights in Boston
+
+A little friendly competition can be good for you.  
+<a href="https://www.thebostoncalendar.com/events/20-trivia-nights-in-boston-for-every-day-of-the-week-in-2022" target="_blank">info link</a>
+
+### Artist Talk @ Harvard Art (Tu)
+
+Join us for an in-depth discussion featuring artist Yoshida Ayomi in conversation with curatorial fellow Lillian Wies.  
+<a href="https://www.thebostoncalendar.com/events/artist-talk-with-yoshida-ayomi" target="_blank">info link</a>
 
 ### Frost Fit Walks (We)
 
@@ -292,11 +292,6 @@ Jamaica Pond parkrun is a free, weekly, timed 5k around Jamaica Pond for people 
 parkrun is a FREE 5k and takes place every Saturday morning at Danehy Park in Cambridge.  
 <a href="https://www.thebostoncalendar.com/events/free-5k-danehy-park-parkrun--10" target="_blank">info link</a>
 
-### Rozzie Winter Farmers Mkt (Su)
-
-Roslindale Village Main Street is thrilled to announce the return of its Winter Farmers Market for another season!  
-<a href="https://www.thebostoncalendar.com/events/roslindale-winter-farmers-market--59" target="_blank">info link</a>
-
 ### Karaoke @ Sidebar (Th-Sa)
 
 
@@ -305,40 +300,45 @@ HERE FOR A GOOD TIME AND A LONG TIME ‼️
   
 <a href="https://www.thebostoncalendar.com/events/karaoke-weekly-sidebar-boston--274" target="_blank">info link</a>
 
+### Rozzie Winter Farmers Mkt (Su)
+
+Roslindale Village Main Street is thrilled to announce the return of its Winter Farmers Market for another season!  
+<a href="https://www.thebostoncalendar.com/events/roslindale-winter-farmers-market--59" target="_blank">info link</a>
+
 ### Friday Night Trivia (Fr)
 
 Join us for seven rounds of general knowledge trivia, every Friday at 7 pm!  
 <a href="https://www.thebostoncalendar.com/events/friday-night-trivia--40" target="_blank">info link</a>
-
-### Trivia @ Noir Bar (Su)
-
-Noir Bar Sunday Night FREE Trivia – Starting January 12th, 2025!  
-<a href="https://www.thebostoncalendar.com/events/free-sunday-night-trivia-at-noir-bar--9" target="_blank">info link</a>
-
-### 10+ Free Wkly Wine Tastings
-
-If you’ve ever wanted to learn more about wine, this is the list for you!  
-<a href="https://www.thebostoncalendar.com/events/10-free-wine-tastings-in-and-around-boston" target="_blank">info link</a>
 
 ### 13 Places to Watch the Sunset
 
 Savor the transition of summer into fall by sitting outside and watching the sun set over the city.  
 <a href="https://www.thebostoncalendar.com/events/13-best-places-to-watch-the-sunset-in-boston" target="_blank">info link</a>
 
+### 10+ Free Wkly Wine Tastings
+
+If you’ve ever wanted to learn more about wine, this is the list for you!  
+<a href="https://www.thebostoncalendar.com/events/10-free-wine-tastings-in-and-around-boston" target="_blank">info link</a>
+
+### Trivia @ Noir Bar (Su)
+
+Noir Bar Sunday Night FREE Trivia – Starting January 12th, 2025!  
+<a href="https://www.thebostoncalendar.com/events/free-sunday-night-trivia-at-noir-bar--9" target="_blank">info link</a>
+
 ### Fizzy Friday Pop Night (Fr)
 
 join DJ Frazzo every Friday night 10pm–close 🪩🌟 for a night of pure pop.  
 <a href="https://www.thebostoncalendar.com/events/fizzy-fridays-all-pop-all-night--23" target="_blank">info link</a>
 
-### Spanish Game Night (Tu)
-
-All levels welcome! Vengan a jugar con palabras en español.  
-<a href="https://www.thebostoncalendar.com/events/juegos-de-palabras-spanish-game-night-at-base" target="_blank">info link</a>
-
 ### Latin Fusion Class (Fr)
 
 Immerse yourself in a one-hour fitness journey through the infectious beats of Latin American electronic dance music with heart-pumping full-body HIIT segments consisting of agility, functional, and cardio exercises designed to push your limits and elevate your fitness game, coupled with active recovery periods of Latin dancing and ending with a 20 minute pilates-inspired core segment.  
 <a href="https://www.thebostoncalendar.com/events/winter-fitness-series-latin-fusion-hiit--9" target="_blank">info link</a>
+
+### Spanish Game Night (Tu)
+
+All levels welcome! Vengan a jugar con palabras en español.  
+<a href="https://www.thebostoncalendar.com/events/juegos-de-palabras-spanish-game-night-at-base" target="_blank">info link</a>
 
 ### Poetry Open Mic Night (Su)
 
@@ -365,11 +365,6 @@ A low-impact, accessible group exercise class designed for individuals of all fi
 Free every day (open Tuesday to Sunday, 10am–5pm) and just steps away from Harvard Square, the Harvard Art Museums welcome visitors from around the corner and around the world to enjoy one of the largest and most renowned art collections in North America.  
 <a href="https://www.thebostoncalendar.com/events/free-admission-to-the-harvard-art-museums" target="_blank">info link</a>
 
-### ICA Free Thursdays (Th)
-
-Admission is FREE for all every Thursday from 5 to 9 PM during ICA Free Thursday Nights.  
-<a href="https://www.thebostoncalendar.com/events/free-thursdays-at-the-ica--585" target="_blank">info link</a>
-
 ### Free Places to “WFH”
 
 With most people working hybrid or remote roles, third spaces to get work done outside your house have become even more important.  
@@ -379,6 +374,11 @@ With most people working hybrid or remote roles, third spaces to get work done o
 
 Line dancing is a fun activity that has all the necessary elements to improve cardiovascular health.  
 <a href="https://www.thebostoncalendar.com/events/winter-fitness-series-line-dancing--17" target="_blank">info link</a>
+
+### ICA Free Thursdays (Th)
+
+Admission is FREE for all every Thursday from 5 to 9 PM during ICA Free Thursday Nights.  
+<a href="https://www.thebostoncalendar.com/events/free-thursdays-at-the-ica--585" target="_blank">info link</a>
 
 ### Nov Project: Harvard Stairs (We)
 
@@ -390,15 +390,15 @@ Located in lower Allston, Harvard Stadium is one of the favorite workout spots o
 Perfect For Everybody and every body! Each Zumba® class is designed to bring people together to sweat it on.  
 <a href="https://www.thebostoncalendar.com/events/winter-fitness-series-zumba--9" target="_blank">info link</a>
 
-### Live Irish Music Seisiúns (Sa-Su)
-
-Traditional Irish Sessions are a long-standing tradition and well-known event at the Druid.  
-<a href="https://www.thebostoncalendar.com/events/traditional-irish-music-sessions-at-the-druid--1200" target="_blank">info link</a>
-
 ### Seaport Smalls Kids’ Concert (Sa)
 
 Back by popular demand, Boston Seaport's children's programming series, Seaport Smalls: Free Fun for your Tiny Crew.  
 <a href="https://www.thebostoncalendar.com/events/seaport-smalls--72" target="_blank">info link</a>
+
+### Live Irish Music Seisiúns (Sa-Su)
+
+Traditional Irish Sessions are a long-standing tradition and well-known event at the Druid.  
+<a href="https://www.thebostoncalendar.com/events/traditional-irish-music-sessions-at-the-druid--1200" target="_blank">info link</a>
 
 # 111 things to do in Boston for $10 or less: March 2025
 
@@ -408,6 +408,20 @@ Back by popular demand, Boston Seaport's children's programming series, Seaport 
 
 An iconic vintage store has expanded to a big storefront on Newbury St. Give a warm welcome to Vivant Vintage. To celebrate their grand opening, shop from their curated spring collection, indulge in a signature cocktail, grab a photo from their retro photobooth, and more during their launch party.  
 <a href="https://www.thebostoncalendar.com/events/vivant-vintage-grand-opening-on-newbury-street-boston-s-back-bay" target="_blank">info link</a>
+
+### Drag Me to Bourbon Street: Mardi Gras Drag Brunch & Bingo @ Fenway
+
+##### Saturday 3/1
+
+Southern festivities have found their way up to New England. Get ready for a Mardi Gras party at Time Out where you can grab some beaded necklaces, watch lively drag performances, sip on themed drinks that are available for purchase, and play some bingo for a chance to win some prizes.  
+<a href="https://www.thebostoncalendar.com/events/drag-me-to-bourbon-street-mardi-gras-drag-brunch-bingo" target="_blank">info link</a>
+
+### Mardi Gras Bash @ Medford
+
+##### Saturday 3/1
+
+This Mardi Gras party is family-friendly. Enjoy an afternoon of live music performances from Annie and the Fur Trappers, The Soggy Po’Boys, and more. Grab some party favors, a carnival mask, and dance.  
+<a href="https://www.thebostoncalendar.com/events/mardi-gras-bash" target="_blank">info link</a>
 
 ### Sullivan’s Castle Island Opening Day @ Castle Island
 
@@ -423,33 +437,12 @@ Head to this Southie landmark that was just bestowed a James Beard Award Winner 
 Learn about trees and watch sap that was tapped from local maple trees boil down into 100% hyper local maple syrup. You’ll love this community event where you can discover the history of the Maple Syrup Project.  
 <a href="https://www.thebostoncalendar.com/events/somerville-s-26th-annual-maple-boil-down" target="_blank">info link</a>
 
-### Mardi Gras Bash @ Medford
+### Small Mart Handmade, Artisan, and Vintage Market @ Davis Square
 
 ##### Saturday 3/1
 
-This Mardi Gras party is family-friendly. Enjoy an afternoon of live music performances from Annie and the Fur Trappers, The Soggy Po’Boys, and more. Grab some party favors, a carnival mask, and dance.  
-<a href="https://www.thebostoncalendar.com/events/mardi-gras-bash" target="_blank">info link</a>
-
-### Woven Roots: Indigenous Latinx Art Fair @ Somerville
-
-##### Saturday 3/1
-
-Head to this market that celebrates Latin American culture through art. Listen to live marimba music; watch traditional dance performances; listen to storytelling; shop for paintings, sculptures, and woven arts; and taste foods like pupusas and tamales.  
-<a href="https://www.thebostoncalendar.com/events/woven-roots-indigenous-latinx-art-fair" target="_blank">info link</a>
-
-### March 2025 Outspoken Saturdays @ Copley
-
-##### Saturday 3/1
-
-Stop by the GBH Studio at the BPL for an afternoon of inspiration and artistry. Listen to performances by emerging spoken word artists and enjoy this event that is created monthly in collaboration with Amanda Shea, a Boston based artist and activist.  
-<a href="https://www.thebostoncalendar.com/events/march-2025-outspoken-saturdays" target="_blank">info link</a>
-
-### Drag Me to Bourbon Street: Mardi Gras Drag Brunch & Bingo @ Fenway
-
-##### Saturday 3/1
-
-Southern festivities have found their way up to New England. Get ready for a Mardi Gras party at Time Out where you can grab some beaded necklaces, watch lively drag performances, sip on themed drinks that are available for purchase, and play some bingo for a chance to win some prizes.  
-<a href="https://www.thebostoncalendar.com/events/drag-me-to-bourbon-street-mardi-gras-drag-brunch-bingo" target="_blank">info link</a>
+Treat yourself to a knickknick, some art, or even a drink while you shop and meet local artists at this market. Support small businesses, find your next vintage treasure, and enjoy the festive ambiance.  
+<a href="https://www.thebostoncalendar.com/events/small-mart-handmade-artisan-and-vintage-vendor-market-crystal-ballroom" target="_blank">info link</a>
 
 ### Longfellow Birthday Celebration @ Mt. Auburn
 
@@ -458,6 +451,13 @@ Southern festivities have found their way up to New England. Get ready for a Mar
 Honor the 218th anniversary of poet, Henry Wadsworth Longfellow, and the 250th anniversary of the American Revolution at Mount Auburn Cemetery. There will be community poetry readings, a visit to the Longfellow family tomb, and birthday cake for all.  
 <a href="https://www.thebostoncalendar.com/events/longfellow-birthday-celebration--2" target="_blank">info link</a>
 
+### Woven Roots: Indigenous Latinx Art Fair @ Somerville
+
+##### Saturday 3/1
+
+Head to this market that celebrates Latin American culture through art. Listen to live marimba music; watch traditional dance performances; listen to storytelling; shop for paintings, sculptures, and woven arts; and taste foods like pupusas and tamales.  
+<a href="https://www.thebostoncalendar.com/events/woven-roots-indigenous-latinx-art-fair" target="_blank">info link</a>
+
 ### Cafe du Cheape Artiste: Gym Class Nightmares and Other Puberty Parables @ Cambridge
 
 ##### Saturdays 3/1
@@ -465,54 +465,12 @@ Honor the 218th anniversary of poet, Henry Wadsworth Longfellow, and the 250th a
 Stop by this cabaret-style open mic with Cafe du Cheape Artist. This performance is themed gym class nightmares and other puberty parables. Themed-costumes are encouraged! Relive the worst of your high school days and have a laugh at this community event.  
 <a href="https://www.thebostoncalendar.com/events/cafe-du-cheape-artiste-gym-class-nightmares-and-other-puberty-parables" target="_blank">info link</a>
 
-### Chief Adjuah in Concert @ Allston
-
-##### Saturdays 3/1
-
-Listen to this experimental concert by Chief Adjuah, an innovative artist who blends Afro-Indigenous tradition with music technology, dynamic rhythms, and contemporary sounds. Chief Adjuah is a six-time Grammy nominated artist, so this performance will be quite the treat through a decolonization and cultural lens.  
-<a href="https://www.thebostoncalendar.com/events/chief-adjuah-in-concert" target="_blank">info link</a>
-
-### Beauty Brunch with Center for Classic Beauty @ Back Bay
+### March 2025 Outspoken Saturdays @ Copley
 
 ##### Saturday 3/1
 
-To celebrate the opening of this new cosmetic office, stop by their beauty brunch to learn about treatments. Grab a golden hour mimosa, munch on a brunch spread, meet the team, and grab a one-day-only special.  
-<a href="https://www.thebostoncalendar.com/events/beauty-brunch-with-center-for-classic-beauty" target="_blank">info link</a>
-
-### No Man’s Hands Whiskey Launch Party @ Everett
-
-##### Saturdays 3/1
-
-Head to Short Path Distillery for the release of the limited edition, Wheat Whiskey, crafted exclusively by women and non-binary folks! There will be limited bottles for sale, special cocktails, and free distillery tours where you can taste two whiskeys for free too.  
-<a href="https://www.thebostoncalendar.com/events/no-man-s-hands-whiskey-launch-party" target="_blank">info link</a>
-
-### Robert Aiki Aubrey Lowe and Natalie Epstein-Hogue Concert @ City Hall
-
-##### Saturdays 3/1
-
-Enjoy this free concert at City Hall where you can listen to live site-response electronic music. Experience new sounds by Robert Aiki Aubrey Lowe and Natalie Epstein-Hogue that blend technology, digital instruments, voice and modular synthesizers, and beats for a unique artistic experience.  
-<a href="https://www.thebostoncalendar.com/events/robert-aiki-aubrey-lowe-and-natalie-epstein-hogue-at-boston-city-hall" target="_blank">info link</a>
-
-### Small Mart Handmade, Artisan, and Vintage Market @ Davis Square
-
-##### Saturday 3/1
-
-Treat yourself to a knickknick, some art, or even a drink while you shop and meet local artists at this market. Support small businesses, find your next vintage treasure, and enjoy the festive ambiance.  
-<a href="https://www.thebostoncalendar.com/events/small-mart-handmade-artisan-and-vintage-vendor-market-crystal-ballroom" target="_blank">info link</a>
-
-### ‘Parks and Rec’ Trivia @ Back Bay
-
-##### Saturdays 3/1
-
-Put those thinking caps on and get ready to bust out your ‘Parks and Rec’ knowledge chops. There’s breakfast being served all day which will be available for purchase while you celebrate the iconic Leslie Knope.  
-<a href="https://www.thebostoncalendar.com/events/parks-rec-trivia" target="_blank">info link</a>
-
-### Ice Bumper Cars @ Harvard Square
-
-##### Wednesdays to Saturdays, now until Thursday 3/13
-
-Bump the last of those winter blues away during the final days of this ice bumper cars extravaganza. Shred the ice in your little saucer as we say goodbye to the cold and snow.  
-<a href="https://www.thebostoncalendar.com/events/plaza-winterfest-ice-bumper-cars-in-harvard-square" target="_blank">info link</a>
+Stop by the GBH Studio at the BPL for an afternoon of inspiration and artistry. Listen to performances by emerging spoken word artists and enjoy this event that is created monthly in collaboration with Amanda Shea, a Boston based artist and activist.  
+<a href="https://www.thebostoncalendar.com/events/march-2025-outspoken-saturdays" target="_blank">info link</a>
 
 ### Spring is Queer Market @ Fenway
 
@@ -521,19 +479,47 @@ Bump the last of those winter blues away during the final days of this ice bumpe
 Shop small and support LGBTQIA+ creators at this market to welcome spring. Treat yourself to a new pair of earrings, handmade jewelry, pottery, art prints, and more.  
 <a href="https://www.thebostoncalendar.com/events/spring-is-queer-market" target="_blank">info link</a>
 
-### 14th Annual Women Take the Reel Film Festival @ Boston
+### Robert Aiki Aubrey Lowe and Natalie Epstein-Hogue Concert @ City Hall
 
-##### Select days, starting Saturday 3/1 until Sunday 3/27
+##### Saturdays 3/1
 
-It’s Women’s History Month, so come on out and celebrate the women in front of and behind the screen at this film festival. Screenings are free with a Q&A afterwards featuring filmmakers, scholars, and activists.  
-<a href="https://www.thebostoncalendar.com/events/14th-annual-women-take-the-reel-film-festival" target="_blank">info link</a>
+Enjoy this free concert at City Hall where you can listen to live site-response electronic music. Experience new sounds by Robert Aiki Aubrey Lowe and Natalie Epstein-Hogue that blend technology, digital instruments, voice and modular synthesizers, and beats for a unique artistic experience.  
+<a href="https://www.thebostoncalendar.com/events/robert-aiki-aubrey-lowe-and-natalie-epstein-hogue-at-boston-city-hall" target="_blank">info link</a>
 
-### Pokémon GO Global Day @ Boston Common
+### Chief Adjuah in Concert @ Allston
 
-##### Sunday 3/2
+##### Saturdays 3/1
 
-Head to the Boston Common and meet folks that are part of the Boston-area Pokémon community. Play games and enjoy exclusives, participate in contests, and grab some swag while having fun with new friends.  
-<a href="https://www.thebostoncalendar.com/events/pokemon-go-unova-tour-global-day-2-boston-common" target="_blank">info link</a>
+Listen to this experimental concert by Chief Adjuah, an innovative artist who blends Afro-Indigenous tradition with music technology, dynamic rhythms, and contemporary sounds. Chief Adjuah is a six-time Grammy nominated artist, so this performance will be quite the treat through a decolonization and cultural lens.  
+<a href="https://www.thebostoncalendar.com/events/chief-adjuah-in-concert" target="_blank">info link</a>
+
+### ‘Parks and Rec’ Trivia @ Back Bay
+
+##### Saturdays 3/1
+
+Put those thinking caps on and get ready to bust out your ‘Parks and Rec’ knowledge chops. There’s breakfast being served all day which will be available for purchase while you celebrate the iconic Leslie Knope.  
+<a href="https://www.thebostoncalendar.com/events/parks-rec-trivia" target="_blank">info link</a>
+
+### Beauty Brunch with Center for Classic Beauty @ Back Bay
+
+##### Saturday 3/1
+
+To celebrate the opening of this new cosmetic office, stop by their beauty brunch to learn about treatments. Grab a golden hour mimosa, munch on a brunch spread, meet the team, and grab a one-day-only special.  
+<a href="https://www.thebostoncalendar.com/events/beauty-brunch-with-center-for-classic-beauty" target="_blank">info link</a>
+
+### Ice Bumper Cars @ Harvard Square
+
+##### Wednesdays to Saturdays, now until Thursday 3/13
+
+Bump the last of those winter blues away during the final days of this ice bumper cars extravaganza. Shred the ice in your little saucer as we say goodbye to the cold and snow.  
+<a href="https://www.thebostoncalendar.com/events/plaza-winterfest-ice-bumper-cars-in-harvard-square" target="_blank">info link</a>
+
+### No Man’s Hands Whiskey Launch Party @ Everett
+
+##### Saturdays 3/1
+
+Head to Short Path Distillery for the release of the limited edition, Wheat Whiskey, crafted exclusively by women and non-binary folks! There will be limited bottles for sale, special cocktails, and free distillery tours where you can taste two whiskeys for free too.  
+<a href="https://www.thebostoncalendar.com/events/no-man-s-hands-whiskey-launch-party" target="_blank">info link</a>
 
 ### Snowshoeing Safari @ Dorchester
 
@@ -542,12 +528,12 @@ Head to the Boston Common and meet folks that are part of the Boston-area Pokém
 Explore the historic Franklin Park with Boston Park Rangers while getting a little workout in. On the tour, you’ll learn about local plants and animals that thrive in Boston’s wintry environment. If there’s no snow, just be prepared to walk and enjoy the company.  
 <a href="https://www.thebostoncalendar.com/events/snowshoeing-safari--2" target="_blank">info link</a>
 
-### Oscar Watch Party at Trident @ Back Bay
+### 14th Annual Women Take the Reel Film Festival @ Boston
 
-##### Sunday 3/2
+##### Select days, starting Saturday 3/1 until Sunday 3/27
 
-Cheer on your favorite actors, actresses, directors, and movies with new friends at this Oscars watch party. You can pretend like you’re walking the red carpet, so come dressed to impress and enjoy some table games while watching the ceremony.  
-<a href="https://www.thebostoncalendar.com/events/oscars-watch-party--2" target="_blank">info link</a>
+It’s Women’s History Month, so come on out and celebrate the women in front of and behind the screen at this film festival. Screenings are free with a Q&A afterwards featuring filmmakers, scholars, and activists.  
+<a href="https://www.thebostoncalendar.com/events/14th-annual-women-take-the-reel-film-festival" target="_blank">info link</a>
 
 ### Dr. Seuss’ Birthday Celebration @ Harvard Square
 
@@ -556,33 +542,12 @@ Cheer on your favorite actors, actresses, directors, and movies with new friends
 All ages are welcome to this birthday party for Dr. Seuss. Enjoy a reading of ‘Green Eggs and Ham,’ grab a complimentary slice of birthday cake, and enjoy other fun activities at this celebration.  
 <a href="https://www.thebostoncalendar.com/events/annual-celebration-of-dr-seuss-birthday-in-harvard-square" target="_blank">info link</a>
 
-### Sunday Scaries @ Jamaica Plain
-
-##### Sundays, starting 3/2 until 3/30
-
-The Sunday scaries hit so hard before the week begins. Don’t let the stress loom. Instead, grab a brew, relax, and watch a free movie at the Sam Adams Brewery every Sunday. This month’s theme is sports so enjoy classics like ‘A League of their Own’ and other favorites like ‘Uncut Gems’ and ‘Million Dollar Baby.’  
-<a href="https://www.thebostoncalendar.com/events/sunday-scaries--13" target="_blank">info link</a>
-
-### Roslindale Film Society: Oscar Watch Party @ Roslindale
+### March Wellness Walk @ Castle Island
 
 ##### Sunday 3/2
 
-See who will be crowned the winners of the 97th Academy Awards with the Roslindale Film Society. Enjoy food and drinks for purchase and enjoy this community event where you can chat with neighbors about your favorite nominees, fashion looks, and more.  
-<a href="https://www.thebostoncalendar.com/events/roslindale-film-society-oscar-watch-party" target="_blank">info link</a>
-
-### MICKEY 17 Advance Screening @ Boston Common
-
-##### Monday 3/3
-
-Watch a free pre-screening of ‘MICKEY 17’ at the AMC in Boston Common. This movie, by Oscar-winning director, Bong Joon Ho, features Robert Pattinson, Mark Ruffalo, Naomi Ackie, and other stars as they colonize the ice planet, Niflheim.  
-<a href="https://www.thebostoncalendar.com/events/mickey-17-advance-screening" target="_blank">info link</a>
-
-### Slam Adams: Boston Poetry Slam @ Jamaica Plain
-
-##### Monday 3/3
-
-Enjoy some art to kick off your week. Head to the Sam Adams Brewery for an evening of chilled pints and slam poetry. Watch and cheer on artists as they perform original pieces and compete in front of you and a set of judges.  
-<a href="https://www.thebostoncalendar.com/events/slam-adams-boston-poetry-slam-at-the-sam-adams-boston-brewery--3" target="_blank">info link</a>
+Participate in this monthly women’s wellness walk around Castle Island where you can grow your community, get your steps in, and breathe in the fresh spring air — all while chatting with new friends, sipping on some coffee, and munching on some pastries while strolling.  
+<a href="https://www.thebostoncalendar.com/events/march-wellness-walk" target="_blank">info link</a>
 
 ### Free Live Music Matinee at Remnant Satellite @ Cambridge
 
@@ -591,12 +556,26 @@ Enjoy some art to kick off your week. Head to the Sam Adams Brewery for an eveni
 Watching live music isn’t just an evening activity. Make sure to stop by Remnant Satellite for their afternoon mini concerts where you can enjoy drinks and community vibes too.  
 <a href="https://www.thebostoncalendar.com/events/free-live-music-matinee-at-remnant-satellite-in-cambridge--9" target="_blank">info link</a>
 
-### March Wellness Walk @ Castle Island
+### Oscar Watch Party at Trident @ Back Bay
 
 ##### Sunday 3/2
 
-Participate in this monthly women’s wellness walk around Castle Island where you can grow your community, get your steps in, and breathe in the fresh spring air — all while chatting with new friends, sipping on some coffee, and munching on some pastries while strolling.  
-<a href="https://www.thebostoncalendar.com/events/march-wellness-walk" target="_blank">info link</a>
+Cheer on your favorite actors, actresses, directors, and movies with new friends at this Oscars watch party. You can pretend like you’re walking the red carpet, so come dressed to impress and enjoy some table games while watching the ceremony.  
+<a href="https://www.thebostoncalendar.com/events/oscars-watch-party--2" target="_blank">info link</a>
+
+### Sunday Scaries @ Jamaica Plain
+
+##### Sundays, starting 3/2 until 3/30
+
+The Sunday scaries hit so hard before the week begins. Don’t let the stress loom. Instead, grab a brew, relax, and watch a free movie at the Sam Adams Brewery every Sunday. This month’s theme is sports so enjoy classics like ‘A League of their Own’ and other favorites like ‘Uncut Gems’ and ‘Million Dollar Baby.’  
+<a href="https://www.thebostoncalendar.com/events/sunday-scaries--13" target="_blank">info link</a>
+
+### MICKEY 17 Advance Screening @ Boston Common
+
+##### Monday 3/3
+
+Watch a free pre-screening of ‘MICKEY 17’ at the AMC in Boston Common. This movie, by Oscar-winning director, Bong Joon Ho, features Robert Pattinson, Mark Ruffalo, Naomi Ackie, and other stars as they colonize the ice planet, Niflheim.  
+<a href="https://www.thebostoncalendar.com/events/mickey-17-advance-screening" target="_blank">info link</a>
 
 ### Kermit Lynch Wine Merchant: Wine Tasting Event @ Somerville
 
@@ -605,33 +584,33 @@ Participate in this monthly women’s wellness walk around Castle Island where y
 Make your way to the cozy, intimate Wild Child store where you can enjoy an hour-long wine tasting where you can meet 7 producers and taste 2-3 wines from each winemaker. Come learn, sip, and mingle.  
 <a href="https://www.thebostoncalendar.com/events/kermit-lynch-wine-merchant-next-generation-tour" target="_blank">info link</a>
 
+### Slam Adams: Boston Poetry Slam @ Jamaica Plain
+
+##### Monday 3/3
+
+Enjoy some art to kick off your week. Head to the Sam Adams Brewery for an evening of chilled pints and slam poetry. Watch and cheer on artists as they perform original pieces and compete in front of you and a set of judges.  
+<a href="https://www.thebostoncalendar.com/events/slam-adams-boston-poetry-slam-at-the-sam-adams-boston-brewery--3" target="_blank">info link</a>
+
+### Bourbon & Blues at the Liberty @ Back Bay
+
+##### Mondays, starting 3/3 until 3/31
+
+Live jazz music is back at the historical and beautiful Liberty Hotel to kick off springtime. On select Mondays, you can also enjoy complimentary tastings of bourbon and whiskey while enjoying the soulful tunes.  
+<a href="https://www.thebostoncalendar.com/events/major-mondays-at-the-liberty-hotel--158" target="_blank">info link</a>
+
+### Pokémon GO Global Day @ Boston Common
+
+##### Sunday 3/2
+
+Head to the Boston Common and meet folks that are part of the Boston-area Pokémon community. Play games and enjoy exclusives, participate in contests, and grab some swag while having fun with new friends.  
+<a href="https://www.thebostoncalendar.com/events/pokemon-go-unova-tour-global-day-2-boston-common" target="_blank">info link</a>
+
 ### Countertop Chants Poetry Open Mic @ Somerville
 
 ##### Tuesday 3/4
 
 Make your way to Winter Hill Brewing, sip on a beer, and cheer on poets (or present a poem yourself!) at this community open mic. You’ll love this collaborative and unified environment where you can listen to others’ works and celebrate art-making together. No judges (or judgment) – just a whole lot of fun in a communal and supportive space.  
 <a href="https://www.thebostoncalendar.com/events/countertop-chants-poetry-open-mic-march" target="_blank">info link</a>
-
-### Hooks and Books @ Back Bay
-
-##### Tuesday 3/4
-
-Meet new friends at this cozy get together where you can bring your latest crafting project or book your reading. Destress with fellow bookworms and creatives while you chat, read, knit, sew, and crochet at Trident.  
-<a href="https://www.thebostoncalendar.com/events/hooks-and-books--8" target="_blank">info link</a>
-
-### Silent Book Club & Write Night @ Back Bay
-
-##### Every other Monday, starting 3/3 until 3/31
-
-Meet new friends at this cozy hang out at Trident. Bring your favorite book or writing project, kick off your week with relaxation, and mingle with creative minds from around the city.  
-<a href="https://www.thebostoncalendar.com/events/silent-book-club-write-night--17" target="_blank">info link</a>
-
-### Spring Market at Publico @ Southie
-
-##### Wednesday 3/5
-
-Shop small and kickoff the soon-to-be start of spring at Publico Street Bistro and Garden. You can support local vendors, meet the owners of small businesses, and sip on a fun drink while you find a perfect gift for yourself or a loved one.  
-<a href="https://www.thebostoncalendar.com/events/spring-market-at-publico" target="_blank">info link</a>
 
 ### Artist Talk with Yoshida Ayomi @ Harvard Square
 
@@ -640,12 +619,33 @@ Shop small and kickoff the soon-to-be start of spring at Publico Street Bistro a
 Learn about how legacy, transience, and the environment are intertwined in large-scale installations that blend Japanese printmaking techniques at this community talk with artist, Yoshida Ayomi. Feel inspired and meet other art enthusiasts too.  
 <a href="https://www.thebostoncalendar.com/events/artist-talk-with-yoshida-ayomi" target="_blank">info link</a>
 
-### March Brewery Book Club @ Cambridge
+### Drinking and Drawing @ Allston
 
 ##### Wednesday 3/5
 
-Looking to grow your bookish community? Head to Lamplighter Brewing to discuss the book of the month: ‘Inciting Joy’ by Ross Gay. Don’t worry if you didn’t finish all the pages – just come by, grab a seat, have a sip, and mingle with new friends.  
-<a href="https://www.thebostoncalendar.com/events/march-brewery-book-club-at-lamplighter--2" target="_blank">info link</a>
+Join this community gathering where there will be complimentary pizza, drinks, and art supplies. You’ll get to have fun with neighbors as you scribble, doodle, and craft all night while laughing, chatting, and connecting.  
+<a href="https://www.thebostoncalendar.com/events/drinking-and-drawing--6" target="_blank">info link</a>
+
+### Hooks and Books @ Back Bay
+
+##### Tuesday 3/4
+
+Meet new friends at this cozy get together where you can bring your latest crafting project or book your reading. Destress with fellow bookworms and creatives while you chat, read, knit, sew, and crochet at Trident.  
+<a href="https://www.thebostoncalendar.com/events/hooks-and-books--8" target="_blank">info link</a>
+
+### Roslindale Film Society: Oscar Watch Party @ Roslindale
+
+##### Sunday 3/2
+
+See who will be crowned the winners of the 97th Academy Awards with the Roslindale Film Society. Enjoy food and drinks for purchase and enjoy this community event where you can chat with neighbors about your favorite nominees, fashion looks, and more.  
+<a href="https://www.thebostoncalendar.com/events/roslindale-film-society-oscar-watch-party" target="_blank">info link</a>
+
+### Spring Yoga at Harvard Ed Portal @ Allston
+
+##### Thursdays, starting 3/6 until 3/27
+
+Welcome spring with a refreshed mind and a relaxed spirit. Head to the Harvard Ed Portal for free weekly yoga sessions where you will stretch and increase your flexibility with teacher, Taryn Burns.  
+<a href="https://www.thebostoncalendar.com/events/spring-yoga-the-harvard-ed-portal-march-6-session" target="_blank">info link</a>
 
 ### Free First Thursday at the Isabella Stewart Gardner Museum @ Fenway
 
@@ -661,33 +661,12 @@ Head to the Isabella Stewart Gardner Museum and unwind from a long week with art
 There’s a new art exhibit at City Hall which is presented by the Boston Modern Quilt Guild. Come celebrate the opening of ‘Patterns on Concrete’ where you can meet the artists, learn about fiber arts, enjoy light refreshments, and meet other creatives.  
 <a href="https://www.thebostoncalendar.com/events/patterns-on-concrete-reception" target="_blank">info link</a>
 
-### Spring Yoga at Harvard Ed Portal @ Allston
+### Silent Book Club & Write Night @ Back Bay
 
-##### Thursdays, starting 3/6 until 3/27
+##### Every other Monday, starting 3/3 until 3/31
 
-Welcome spring with a refreshed mind and a relaxed spirit. Head to the Harvard Ed Portal for free weekly yoga sessions where you will stretch and increase your flexibility with teacher, Taryn Burns.  
-<a href="https://www.thebostoncalendar.com/events/spring-yoga-the-harvard-ed-portal-march-6-session" target="_blank">info link</a>
-
-### ‘90s Themed Trivia @ Everett
-
-##### Thursday 3/6
-
-If you’re a ‘90s baby, then this trivia night is for you (and your pups). Your furry friends are not required to join, but feel free to bring your pup and meet other dog lovers. And show off your Millennial knowledge for a shot to win some prizes.  
-<a href="https://www.thebostoncalendar.com/events/90-s-themed-trivia" target="_blank">info link</a>
-
-### Drinking and Drawing @ Allston
-
-##### Wednesday 3/5
-
-Join this community gathering where there will be complimentary pizza, drinks, and art supplies. You’ll get to have fun with neighbors as you scribble, doodle, and craft all night while laughing, chatting, and connecting.  
-<a href="https://www.thebostoncalendar.com/events/drinking-and-drawing--6" target="_blank">info link</a>
-
-### SoWa First Friday @ South End
-
-##### Friday 3/7
-
-Start your weekend early with art and connection. Meet artists and curators at SoWa; explore the galleries, exhibits, and open studios; learn about different creative processes and mediums; and find the next perfect gift for yourself or a loved one.  
-<a href="https://www.thebostoncalendar.com/events/sowa-first-friday--90" target="_blank">info link</a>
+Meet new friends at this cozy hang out at Trident. Bring your favorite book or writing project, kick off your week with relaxation, and mingle with creative minds from around the city.  
+<a href="https://www.thebostoncalendar.com/events/silent-book-club-write-night--17" target="_blank">info link</a>
 
 ### ‘Mayhem’ Album Release Party @ Somerville
 
@@ -696,12 +675,47 @@ Start your weekend early with art and connection. Meet artists and curators at S
 Calling all my Little Monsters – Lady Gaga is dropping her ‘Mayhem’ album at midnight. Head to Trina Starlite for the ultimate dance party where you can sing and strut your stuff to Mama Monster, Charli xcx, and other icons. Then, get ready to listen to Gaga’s album all the way through right when it drops.  
 <a href="https://www.thebostoncalendar.com/events/mayhem-album-release-party" target="_blank">info link</a>
 
-### Bourbon & Blues at the Liberty @ Back Bay
+### Spring Market at Publico @ Southie
 
-##### Mondays, starting 3/3 until 3/31
+##### Wednesday 3/5
 
-Live jazz music is back at the historical and beautiful Liberty Hotel to kick off springtime. On select Mondays, you can also enjoy complimentary tastings of bourbon and whiskey while enjoying the soulful tunes.  
-<a href="https://www.thebostoncalendar.com/events/major-mondays-at-the-liberty-hotel--158" target="_blank">info link</a>
+Shop small and kickoff the soon-to-be start of spring at Publico Street Bistro and Garden. You can support local vendors, meet the owners of small businesses, and sip on a fun drink while you find a perfect gift for yourself or a loved one.  
+<a href="https://www.thebostoncalendar.com/events/spring-market-at-publico" target="_blank">info link</a>
+
+### SoWa First Friday @ South End
+
+##### Friday 3/7
+
+Start your weekend early with art and connection. Meet artists and curators at SoWa; explore the galleries, exhibits, and open studios; learn about different creative processes and mediums; and find the next perfect gift for yourself or a loved one.  
+<a href="https://www.thebostoncalendar.com/events/sowa-first-friday--90" target="_blank">info link</a>
+
+### ‘90s Themed Trivia @ Everett
+
+##### Thursday 3/6
+
+If you’re a ‘90s baby, then this trivia night is for you (and your pups). Your furry friends are not required to join, but feel free to bring your pup and meet other dog lovers. And show off your Millennial knowledge for a shot to win some prizes.  
+<a href="https://www.thebostoncalendar.com/events/90-s-themed-trivia" target="_blank">info link</a>
+
+### March Brewery Book Club @ Cambridge
+
+##### Wednesday 3/5
+
+Looking to grow your bookish community? Head to Lamplighter Brewing to discuss the book of the month: ‘Inciting Joy’ by Ross Gay. Don’t worry if you didn’t finish all the pages – just come by, grab a seat, have a sip, and mingle with new friends.  
+<a href="https://www.thebostoncalendar.com/events/march-brewery-book-club-at-lamplighter--2" target="_blank">info link</a>
+
+### International Women’s Day Movie Night @ Jamaica Plain
+
+##### Friday 3/7
+
+Stop by Ula Café after hours for a community get together to celebrate International Women’s Day and Women’s History Month. Watch ‘Wadjda’ (2012), order from the full menu or grab a drink while watching the movie, and meet new friends.  
+<a href="https://www.thebostoncalendar.com/events/international-women-s-day-movie-night" target="_blank">info link</a>
+
+### Mardi Gras Pop-Up Bar at Short Path Distillery @ Everett
+
+##### Friday 3/7
+
+New Orleans has found its way up to New England for one day only. Head to Short Path Distillery and come celebrate this Mardi Gras pop-up bar featuring classic NOLA cocktails like the Hurricane, Sazerac, and more. Reservations are needed, so book now for this special evening.  
+<a href="https://www.thebostoncalendar.com/events/mardi-gras-pop-up-bar--2" target="_blank">info link</a>
 
 ### Night Games: An R&B Market @ Harvard Square
 
@@ -710,12 +724,12 @@ Live jazz music is back at the historical and beautiful Liberty Hotel to kick of
 Your favorite market that features arcade games is back this month. While you thrift, shop local, and support small businesses, enjoy tunes by a DJ, sip on some cocktails, play some games, and meet new friends at this community event.  
 <a href="https://www.thebostoncalendar.com/events/dx-arcade-hello-open-market-present-night-games-an-r-b-market--4" target="_blank">info link</a>
 
-### Mardi Gras Pop-Up Bar at Short Path Distillery @ Everett
+### heART of Allston - A Celebration of Art and Community @ Allston
 
-##### Friday 3/7
+##### Saturday 3/8
 
-New Orleans has found its way up to New England for one day only. Head to Short Path Distillery and come celebrate this Mardi Gras pop-up bar featuring classic NOLA cocktails like the Hurricane, Sazerac, and more. Reservations are needed, so book now for this special evening.  
-<a href="https://www.thebostoncalendar.com/events/mardi-gras-pop-up-bar--2" target="_blank">info link</a>
+Celebrate art with the Allston community at this family-friendly event. Visit the new sculptural installation, DRKHRT, by local artist Matt Bajor and community members. Watch a drumming performance. And don’t forget to RSVP for a free taco and hot chocolate at this community gathering.  
+<a href="https://www.thebostoncalendar.com/events/heart-of-allston-a-celebration-of-art-and-community" target="_blank">info link</a>
 
 ### Grrrl Talk at Remnant Satellite @ Cambridge
 
@@ -731,33 +745,12 @@ Get ready to dance all night and enjoy an evening by the ladies, for the ladies,
 Celebrate St. Paddy’s early at Dorchester Brewing Co. and wear your greenest garbs! Enjoy specialty drinks, indulge in a sweet treat from a cookie pop-up, grab a caricature drawing, and listen to live music at this party.  
 <a href="https://www.thebostoncalendar.com/events/st-patrick-s-day-at-dbco" target="_blank">info link</a>
 
-### St. Puptricks Day with Red Dog Pet Resort @ Everett
+### Art for Everybody: Film Screening & Conversation @ Harvard Square
 
 ##### Saturday 3/8
 
-Hey pup lovers, St. Patrick’s Day is meant for the doggos too. Bring your furry friend to Night Shift Brewing for a market and fun activities for you and your best cuddle buddy to enjoy. There will be 14 local vendors, free giveaways, doggie beer (and brews for the humans too). Plus, funds will be raised for Pawsitive Pantry, a Vermont and Massachusetts pet food shelf.  
-<a href="https://www.thebostoncalendar.com/events/st-puptricks-day-with-red-dog-pet-resort" target="_blank">info link</a>
-
-### International Women’s Day Movie Night @ Jamaica Plain
-
-##### Friday 3/7
-
-Stop by Ula Café after hours for a community get together to celebrate International Women’s Day and Women’s History Month. Watch ‘Wadjda’ (2012), order from the full menu or grab a drink while watching the movie, and meet new friends.  
-<a href="https://www.thebostoncalendar.com/events/international-women-s-day-movie-night" target="_blank">info link</a>
-
-### heART of Allston - A Celebration of Art and Community @ Allston
-
-##### Saturday 3/8
-
-Celebrate art with the Allston community at this family-friendly event. Visit the new sculptural installation, DRKHRT, by local artist Matt Bajor and community members. Watch a drumming performance. And don’t forget to RSVP for a free taco and hot chocolate at this community gathering.  
-<a href="https://www.thebostoncalendar.com/events/heart-of-allston-a-celebration-of-art-and-community" target="_blank">info link</a>
-
-### ‘Hunger Games’ Screening @ Back Bay
-
-##### Saturday 3/8
-
-Cheer on one of the best female leaders on screen and on the page, Katniss Everdeen, at this free screening of ‘The Hunger Games.’ Come celebrate International Women’s Day at Trident and get ready for Suzanne Collin to release a new Hunger Games book on March 18 with new friends.  
-<a href="https://www.thebostoncalendar.com/events/hunger-games-screening" target="_blank">info link</a>
+Come enjoy a free screening of ‘Art for Everybody’ (2023) and conversation with filmmakers Miranda Yousef (a Boston native) and Tim Rummel. This film explores the unknown side of the life of Thomas Kinkade, a famous painter known for his magical and cozy work.  
+<a href="https://www.thebostoncalendar.com/events/art-for-everybody-film-screening-and-conversation-with-miranda-yousef-and-tim-rummel" target="_blank">info link</a>
 
 ### Boston Winter Group Bike Ride @ Eastie
 
@@ -766,19 +759,12 @@ Cheer on one of the best female leaders on screen and on the page, Katniss Everd
 Now that the weather is getting warmer, it’s the perfect time to enjoy a community bike ride with new friends and explore different parts of Boston. At this monthly get together, you’ll get to adventure through Eastie and enjoy some hot cocoa after the ride. No worries if you don’t have a bike – you can grab a free Bluebike for free when you register.  
 <a href="https://www.thebostoncalendar.com/events/boston-winter-group-bike-ride--3" target="_blank">info link</a>
 
-### Wampanoag Nation Singers & Dancers @ East Cambridge
+### St. Puptricks Day with Red Dog Pet Resort @ Everett
 
 ##### Saturday 3/8
 
-Join this community gathering where you will dance and sing with Wampanoag Nation Singers and Dancers while learning about the 12,000+ years of Wampanoag culture. This family-friendly event is a joyful way to connect with neighbors through song and movement while engaging with Indigenous ways of life.  
-<a href="https://www.thebostoncalendar.com/events/wampanoag-nation-singers-dancers" target="_blank">info link</a>
-
-### Art for Everybody: Film Screening & Conversation @ Harvard Square
-
-##### Saturday 3/8
-
-Come enjoy a free screening of ‘Art for Everybody’ (2023) and conversation with filmmakers Miranda Yousef (a Boston native) and Tim Rummel. This film explores the unknown side of the life of Thomas Kinkade, a famous painter known for his magical and cozy work.  
-<a href="https://www.thebostoncalendar.com/events/art-for-everybody-film-screening-and-conversation-with-miranda-yousef-and-tim-rummel" target="_blank">info link</a>
+Hey pup lovers, St. Patrick’s Day is meant for the doggos too. Bring your furry friend to Night Shift Brewing for a market and fun activities for you and your best cuddle buddy to enjoy. There will be 14 local vendors, free giveaways, doggie beer (and brews for the humans too). Plus, funds will be raised for Pawsitive Pantry, a Vermont and Massachusetts pet food shelf.  
+<a href="https://www.thebostoncalendar.com/events/st-puptricks-day-with-red-dog-pet-resort" target="_blank">info link</a>
 
 ### International Women’s Day Tours @ Beacon Hill
 
@@ -787,13 +773,6 @@ Come enjoy a free screening of ‘Art for Everybody’ (2023) and conversation w
 Explore the Nichols House Museum and uncover the stories of the women of 55 Mount Vernon Street. This International Women’s Day, take a tour of this historic home in Beacon Hill and learn about the female leaders who have shaped and preserved this home, from the Nichols sisters and the house staff to local female artists, architects, and sculptors.  
 <a href="https://www.thebostoncalendar.com/events/international-women-s-day-tours" target="_blank">info link</a>
 
-### The Makanda Project featuring Charles Tolliver @ Roxbury
-
-##### Saturday 3/8
-
-Enjoy an evening of jazz with trumpeter and composer, Charles Tolliver, who has played an important role in history as a leader of jazz groups in the ‘70s and big bands. This concert will feature a jazz group and Tolliver’s own compositions and famous arrangements.  
-<a href="https://www.thebostoncalendar.com/events/the-makanda-project-featuring-charles-tolliver--2" target="_blank">info link</a>
-
 ### The Story of the Irish in Boston with the Celtic Bells @ Boston
 
 ##### Saturday 3/8
@@ -801,12 +780,19 @@ Enjoy an evening of jazz with trumpeter and composer, Charles Tolliver, who has 
 In honor of St. Paddy’s Day, participate in this family-friendly event where you can listen to the story of Irish immigrants in Boston through the eyes of the Celtic Bells. This musical group will incorporate songs and poetry with storytelling that sheds light on the Irish experience of work, protest, and the meaning of home in America.  
 <a href="https://www.thebostoncalendar.com/events/the-story-of-the-irish-in-boston-with-the-celtic-bells" target="_blank">info link</a>
 
-### Cambridge Youth Hockey Day @ Cambridge
+### Wampanoag Nation Singers & Dancers @ East Cambridge
 
 ##### Saturday 3/8
 
-Come cheer on some local youth hockey teams at this fun family-friendly day that celebrates the sport. There will be music, free cotton candy, hockey-themed games, friendship bracelet making, and other fun experiences for everyone.  
-<a href="https://www.thebostoncalendar.com/events/cambridge-youth-hockey-day" target="_blank">info link</a>
+Join this community gathering where you will dance and sing with Wampanoag Nation Singers and Dancers while learning about the 12,000+ years of Wampanoag culture. This family-friendly event is a joyful way to connect with neighbors through song and movement while engaging with Indigenous ways of life.  
+<a href="https://www.thebostoncalendar.com/events/wampanoag-nation-singers-dancers" target="_blank">info link</a>
+
+### ‘Hunger Games’ Screening @ Back Bay
+
+##### Saturday 3/8
+
+Cheer on one of the best female leaders on screen and on the page, Katniss Everdeen, at this free screening of ‘The Hunger Games.’ Come celebrate International Women’s Day at Trident and get ready for Suzanne Collin to release a new Hunger Games book on March 18 with new friends.  
+<a href="https://www.thebostoncalendar.com/events/hunger-games-screening" target="_blank">info link</a>
 
 ### Hinamatsuri Celebration at Bow Market @ Somerville
 
@@ -822,12 +808,40 @@ Hinamatsuri, also known as the Doll Festival, is a Japanese holiday that celebra
 Head to Joe Sent Me in Cambridge, a restaurant and bar inspired by the password ‘Joe Sent Me’ during the Prohibition-speakeasy era, for a fun night out on the town. Enjoy food and drink specials, meet new friends, and mingle with others at a karaoke and dance party at Orleans afterwards.  
 <a href="https://www.thebostoncalendar.com/events/let-s-get-social-in-2023-9-00pm-rebel-s-guild-afterparty-hava-10-30pm" target="_blank">info link</a>
 
+### Romance Book Club: The Seven Year Slip @ Back Bay
+
+##### Monday 3/10
+
+Head to Trident for this romance book club get together. You’ll get to discuss Ashlet Poston’s ‘The Seven Year Slip’ (one of my faves!) and your ticket can be used towards a purchase from the cafe or bookstore. Read up and get ready to yap.  
+<a href="https://www.thebostoncalendar.com/events/romance-book-club-the-seven-year-slip--2" target="_blank">info link</a>
+
+### Little Leprechauns’ Bash @ Fenway
+
+##### Sunday 3/9
+
+Bring your kiddos to this family-friendly St. Patrick’s Day celebration at Time Out. There will be live music, free face painting, a caricature artist, and balloon animals. Plus, you can grab some food and watch Irish step dancing.  
+<a href="https://www.thebostoncalendar.com/events/little-leprechauns-bash" target="_blank">info link</a>
+
 ### March Silent Write Night @ Newton
 
 ##### Monday 3/10
 
 Looking for some writing inspiration? Make your way to Hummingbird Books, an independent, local female-owned business. There will be a writing prompt or short craft discussion to help you get those creative juices flowing. Then write away for 60 minutes and meet new friends.  
 <a href="https://www.thebostoncalendar.com/events/march-silent-write-night" target="_blank">info link</a>
+
+### Cambridge Youth Hockey Day @ Cambridge
+
+##### Saturday 3/8
+
+Come cheer on some local youth hockey teams at this fun family-friendly day that celebrates the sport. There will be music, free cotton candy, hockey-themed games, friendship bracelet making, and other fun experiences for everyone.  
+<a href="https://www.thebostoncalendar.com/events/cambridge-youth-hockey-day" target="_blank">info link</a>
+
+### The Makanda Project featuring Charles Tolliver @ Roxbury
+
+##### Saturday 3/8
+
+Enjoy an evening of jazz with trumpeter and composer, Charles Tolliver, who has played an important role in history as a leader of jazz groups in the ‘70s and big bands. This concert will feature a jazz group and Tolliver’s own compositions and famous arrangements.  
+<a href="https://www.thebostoncalendar.com/events/the-makanda-project-featuring-charles-tolliver--2" target="_blank">info link</a>
 
 ### St. Patrick's Pop-Up at Noir Bar: Free Derry Pop-Up @ Harvard Square
 
@@ -843,47 +857,12 @@ You don’t need to travel to Ireland to feel like you’re in the Emerald Isle.
 Get creative and find the perfect community space to hold you accountable to your writing, reading, and working goals. Bring a project – a book, script, journal, or whatever you please – and engage in the pomodoro method where you will enjoy 15-minute deep working sessions and 5-minute breaks with peers. Connect with each other and feel inspired to tackle your next story.  
 <a href="https://www.thebostoncalendar.com/events/the-writer-s-room--3" target="_blank">info link</a>
 
-### Little Leprechauns’ Bash @ Fenway
-
-##### Sunday 3/9
-
-Bring your kiddos to this family-friendly St. Patrick’s Day celebration at Time Out. There will be live music, free face painting, a caricature artist, and balloon animals. Plus, you can grab some food and watch Irish step dancing.  
-<a href="https://www.thebostoncalendar.com/events/little-leprechauns-bash" target="_blank">info link</a>
-
-### Queer Board Game Night @ Back Bay
-
-##### Thursday 3/13
-
-Grow your queer community in Boston by heading to Trident and playing some board games. You’ll get to play classics like Monopoly and other fun table top games while mixing, mingling, and grabbing a bite if you wish. All queer-identifying folks and allies are welcome.  
-<a href="https://www.thebostoncalendar.com/events/queer-board-game-night--16" target="_blank">info link</a>
-
 ### International Women’s Day 2025 @ Copley
 
 ##### Tuesday 3/11
 
 Celebrate International Women’s Day at the BPL. There will be a panel discussion with inspiring and empowering female leaders. Then, head to the Fairmont Copley Plaza for a reception and some networking.  
 <a href="https://www.thebostoncalendar.com/events/international-women-s-day-2025" target="_blank">info link</a>
-
-### GBH Jazz Nights featuring Albino Mbie @ Back Bay
-
-##### Thursday 3/13
-
-Kick off your weekend early with some live jazz music by a musician from the greater Boston area. This month will feature the talents of Albino Mbie, a Mozambian guitarist and vocalist who blends Afro-pop and Moz-jazz sounds.  
-<a href="https://www.thebostoncalendar.com/events/gbh-jazz-nights-featuring-albino-mbie" target="_blank">info link</a>
-
-### Coffee and Community @ Downtown
-
-##### Thursday 3/13
-
-Have some chats and a cup of joe. Bring your favorite coffee to brew, taste some of George Howell’s, and get cozy at some tables to meet new friends.  
-<a href="https://www.thebostoncalendar.com/events/coffee-and-community--2" target="_blank">info link</a>
-
-### After Dark: Affinity @ Kendall Square
-
-##### Thursday 3/13
-
-Enjoy this after-hours, adults only museum night at the MIT Museum. The party is free this month, so come celebrate the artistic and cultural community at MIT. There will be live DJ sets, gallery talks, a flash portrait session, and other activations.  
-<a href="https://www.thebostoncalendar.com/events/after-dark-artfinity" target="_blank">info link</a>
 
 ### Pitch-A-Friend Dating Event @ Everett
 
@@ -892,6 +871,13 @@ Enjoy this after-hours, adults only museum night at the MIT Museum. The party is
 Bring yourself and your pups if you wish to this fun dating event. Pay a small fee to pitch a friend to the crowd or just watch the shenanigans unfold and have a laugh. There will be brews, laughs, and great company.  
 <a href="https://www.thebostoncalendar.com/events/pitch-a-friend-dating-event--2" target="_blank">info link</a>
 
+### Queer Board Game Night @ Back Bay
+
+##### Thursday 3/13
+
+Grow your queer community in Boston by heading to Trident and playing some board games. You’ll get to play classics like Monopoly and other fun table top games while mixing, mingling, and grabbing a bite if you wish. All queer-identifying folks and allies are welcome.  
+<a href="https://www.thebostoncalendar.com/events/queer-board-game-night--16" target="_blank">info link</a>
+
 ### runboyrun @ Back Bay
 
 ##### Thursday 3/13 & Friday 3/14
@@ -899,12 +885,12 @@ Bring yourself and your pups if you wish to this fun dating event. Pay a small f
 Watch the live reading performance of ‘runboyrun,’ a powerful, dramatic play about a married couple who must relive a particular time during the Nigerian Civil War, also known as the Biafran War, everyday. Listen to this audio adaptation of the script as the characters must figure out how their love can persist despite the history that repeats itself.  
 <a href="https://www.thebostoncalendar.com/events/runboyrun" target="_blank">info link</a>
 
-### Book Club Café @ Allston
+### Coffee and Community @ Downtown
 
-##### Saturday 3/15
+##### Thursday 3/13
 
-Join this monthly book club, meet new friends, and find the next book to add to your TBR. Sip on some coffee and tea, munch on some light snacks, and get chattin’ with other folks who love to read or who are looking to get out of their reading slump.  
-<a href="https://www.thebostoncalendar.com/events/book-club-cafe--8" target="_blank">info link</a>
+Have some chats and a cup of joe. Bring your favorite coffee to brew, taste some of George Howell’s, and get cozy at some tables to meet new friends.  
+<a href="https://www.thebostoncalendar.com/events/coffee-and-community--2" target="_blank">info link</a>
 
 ### Give Good Mouth: A Drag LipSync Show @ Cambridge
 
@@ -913,26 +899,19 @@ Join this monthly book club, meet new friends, and find the next book to add to 
 Head to Remnant Satellite for an exciting evening of drag performances. There will drag artists performing lip sync shows and battles for a chance at a cash prize. Free entry, but make sure to bring some money to tip the queens. Plus, you might even get a special feature on the stage too.  
 <a href="https://www.thebostoncalendar.com/events/give-good-mouth-a-drag-lipsync-show" target="_blank">info link</a>
 
-### The Boston Women’s Heritage Trail: The Future is Hers @ Jamaica Plain
+### After Dark: Affinity @ Kendall Square
 
-##### Saturday 3/15
+##### Thursday 3/13
 
-Celebrate Women’s History Month at this community talk hosted by the Boston Women’s Heritage Trail. Learn about the nonprofit’s exciting plans for the future, the history behind the organization, and the stories of local women who have impacted our city.  
-<a href="https://www.thebostoncalendar.com/events/the-boston-women-s-heritage-trail-the-future-is-hers" target="_blank">info link</a>
+Enjoy this after-hours, adults only museum night at the MIT Museum. The party is free this month, so come celebrate the artistic and cultural community at MIT. There will be live DJ sets, gallery talks, a flash portrait session, and other activations.  
+<a href="https://www.thebostoncalendar.com/events/after-dark-artfinity" target="_blank">info link</a>
 
-### St. Patrick's Weekend Celebrations @ Jamaica Plain
+### GBH Jazz Nights featuring Albino Mbie @ Back Bay
 
-##### Friday 3/14 - Sunday 3/16
+##### Thursday 3/13
 
-Indulge in St. Patty celebrations all weekend long at the Sam Adams Boston Brewery. Sip on special beers and stouts, grab a corned beef flatbread, watch live music, and participate in the ‘split the shield’ challenge for a chance to win some prizes.  
-<a href="https://www.thebostoncalendar.com/events/st-patricks-weekend-celebrations" target="_blank">info link</a>
-
-### Starkbierfest at Notch Brewing @ Brighton
-
-##### Saturday 3/15
-
-Join the fun at Notch’s Strong Beer Fest. There will be Bavarian fare, brews, and warm company. Plus, stay for a HOT POKE!, a tradition where a hot metal rod is submerged in your beer to create a marshmallowy foam. Your free entry gains you access to the live music and the lively atmosphere, so don’t stress if you’re not a beer fan.  
-<a href="https://www.thebostoncalendar.com/events/starkbierfest-at-notch-brewing" target="_blank">info link</a>
+Kick off your weekend early with some live jazz music by a musician from the greater Boston area. This month will feature the talents of Albino Mbie, a Mozambian guitarist and vocalist who blends Afro-pop and Moz-jazz sounds.  
+<a href="https://www.thebostoncalendar.com/events/gbh-jazz-nights-featuring-albino-mbie" target="_blank">info link</a>
 
 ### The JOY Dance Party @ Hyde Park
 
@@ -941,6 +920,34 @@ Join the fun at Notch’s Strong Beer Fest. There will be Bavarian fare, brews, 
 We all need some extra joy this time around. Kick off your weekend at this community dance party hosted by DJs Jenene Cook and Jesse Cardoso, alongside special guest DJ Josh Milan, a Grammy-nominated instrumentalist and producer.  
 <a href="https://www.thebostoncalendar.com/events/the-joy-dance-party--2" target="_blank">info link</a>
 
+### Book Club Café @ Allston
+
+##### Saturday 3/15
+
+Join this monthly book club, meet new friends, and find the next book to add to your TBR. Sip on some coffee and tea, munch on some light snacks, and get chattin’ with other folks who love to read or who are looking to get out of their reading slump.  
+<a href="https://www.thebostoncalendar.com/events/book-club-cafe--8" target="_blank">info link</a>
+
+### St. Patrick's Weekend Celebrations @ Jamaica Plain
+
+##### Friday 3/14 - Sunday 3/16
+
+Indulge in St. Patty celebrations all weekend long at the Sam Adams Boston Brewery. Sip on special beers and stouts, grab a corned beef flatbread, watch live music, and participate in the ‘split the shield’ challenge for a chance to win some prizes.  
+<a href="https://www.thebostoncalendar.com/events/st-patricks-weekend-celebrations" target="_blank">info link</a>
+
+### The Boston Women’s Heritage Trail: The Future is Hers @ Jamaica Plain
+
+##### Saturday 3/15
+
+Celebrate Women’s History Month at this community talk hosted by the Boston Women’s Heritage Trail. Learn about the nonprofit’s exciting plans for the future, the history behind the organization, and the stories of local women who have impacted our city.  
+<a href="https://www.thebostoncalendar.com/events/the-boston-women-s-heritage-trail-the-future-is-hers" target="_blank">info link</a>
+
+### Starkbierfest at Notch Brewing @ Brighton
+
+##### Saturday 3/15
+
+Join the fun at Notch’s Strong Beer Fest. There will be Bavarian fare, brews, and warm company. Plus, stay for a HOT POKE!, a tradition where a hot metal rod is submerged in your beer to create a marshmallowy foam. Your free entry gains you access to the live music and the lively atmosphere, so don’t stress if you’re not a beer fan.  
+<a href="https://www.thebostoncalendar.com/events/starkbierfest-at-notch-brewing" target="_blank">info link</a>
+
 ### St. Patrick’s Day Party at Park-9 @ Everett
 
 ##### Saturday 3/15
@@ -948,19 +955,12 @@ We all need some extra joy this time around. Kick off your weekend at this commu
 Celebrate this Irish festival early. It’s St. Paddy’s and puppies galore at Park-9. Bring your furry friends, enjoy green beer, munch on Irish food specials, and listen to live Celtic music by artist Calum Bell.  
 <a href="https://www.thebostoncalendar.com/events/saint-patrick-s-day-party-at-park-9" target="_blank">info link</a>
 
-### Romance Book Club: The Seven Year Slip @ Back Bay
+### Boston Women’s Market at Night Shift Brewing @ Everett
 
-##### Monday 3/10
+##### Saturday 3/15
 
-Head to Trident for this romance book club get together. You’ll get to discuss Ashlet Poston’s ‘The Seven Year Slip’ (one of my faves!) and your ticket can be used towards a purchase from the cafe or bookstore. Read up and get ready to yap.  
-<a href="https://www.thebostoncalendar.com/events/romance-book-club-the-seven-year-slip--2" target="_blank">info link</a>
-
-### St. Patrick’s at Bow Market @ Somerville
-
-##### Sunday 3/16
-
-St. Patty’s day is for everyone! Head to this family-friendly celebration where you can participate in a themed fun run, listen to live music, get your face painted, play yard games, and indulge in food and drink specials throughout the courtyard.  
-<a href="https://www.thebostoncalendar.com/events/st-patricks-at-bow-market" target="_blank">info link</a>
+Night Shift Brewing and Boston Women’s Market are hosting a fun afternoon of sipping and shopping. Support 15 local women entrepreneurs, bring your kids and pups to join the fun, and savor the fun ambiance at this favorite brewery.  
+<a href="https://www.thebostoncalendar.com/events/boston-women-s-market-at-night-shift-brewing--4" target="_blank">info link</a>
 
 ### WINTERACTIVE Public Tours @ Downtown
 
@@ -969,12 +969,19 @@ St. Patty’s day is for everyone! Head to this family-friendly celebration wher
 Catch the final month of WINTERACTIVE 2025 by taking a guided public tour. Learn about the history of this annual art installation festival, find all the Mr. Pinks, and discover fun facts about each of the art pieces across Downtown.  
 <a href="https://www.thebostoncalendar.com/events/winteractive-free-public-tours" target="_blank">info link</a>
 
-### Build a Raised Garden Bed for the Allston Brighton Food Pantry @ Brighton
+### Bierfest Weekend Bazaar @ Brighton
+
+##### Saturday 3/15 - Sunday 3/16
+
+Shop from local businesses, sip on Bavarian brews from Notch Brewing, grab a fun-themed St. Paddy’s drink like green sake or Gaelic coffee, and so much more at this weekend market on the Speedway.  
+<a href="https://www.thebostoncalendar.com/events/bierfest-weekend-bazaar" target="_blank">info link</a>
+
+### St. Patrick’s at Bow Market @ Somerville
 
 ##### Sunday 3/16
 
-The Allston Brighton Food Pantry is turning 51 years old this year. To celebrate, come build new flower beds that will help feed the greater Boston community. You’ll meet new friends, participate in giving back to others, and find some peace of mind while digging and planting.  
-<a href="https://www.thebostoncalendar.com/events/garden-club-at-bacc" target="_blank">info link</a>
+St. Patty’s day is for everyone! Head to this family-friendly celebration where you can participate in a themed fun run, listen to live music, get your face painted, play yard games, and indulge in food and drink specials throughout the courtyard.  
+<a href="https://www.thebostoncalendar.com/events/st-patricks-at-bow-market" target="_blank">info link</a>
 
 ### South Boston St. Patrick’s Day Parade 2025 @ Southie
 
@@ -982,6 +989,13 @@ The Allston Brighton Food Pantry is turning 51 years old this year. To celebrate
 
 It’s time for one of the most iconic Boston events of the year. Dig out the brightest green garments in your closets and get ready to cheer on community members, local organizations, Irish-themed performances, and other participants at this parade that has existed since 1737.  
 <a href="https://www.thebostoncalendar.com/events/south-boston-st-patrick-s-day-parade-2023" target="_blank">info link</a>
+
+### Build a Raised Garden Bed for the Allston Brighton Food Pantry @ Brighton
+
+##### Sunday 3/16
+
+The Allston Brighton Food Pantry is turning 51 years old this year. To celebrate, come build new flower beds that will help feed the greater Boston community. You’ll meet new friends, participate in giving back to others, and find some peace of mind while digging and planting.  
+<a href="https://www.thebostoncalendar.com/events/garden-club-at-bacc" target="_blank">info link</a>
 
 ### GrandTen Line Dancin’ Lessons @ Southie
 
@@ -997,34 +1011,6 @@ Put those cowboy boots on and get ready to dance. Head to GrandTen for three hou
 Head to the beloved Rebel Rebel, and get ready to turn your anger into action. With great vino and even greater company, feel inspired to call reps from Red states. Contact info and a script to protest will be provided. So bring yourself, your energy, and practice community care with new friends.  
 <a href="https://www.thebostoncalendar.com/events/mobilize-monday-red-state-rebels" target="_blank">info link</a>
 
-### Bierfest Weekend Bazaar @ Brighton
-
-##### Saturday 3/15 - Sunday 3/16
-
-Shop from local businesses, sip on Bavarian brews from Notch Brewing, grab a fun-themed St. Paddy’s drink like green sake or Gaelic coffee, and so much more at this weekend market on the Speedway.  
-<a href="https://www.thebostoncalendar.com/events/bierfest-weekend-bazaar" target="_blank">info link</a>
-
-### Boston Women’s Market at Night Shift Brewing @ Everett
-
-##### Saturday 3/15
-
-Night Shift Brewing and Boston Women’s Market are hosting a fun afternoon of sipping and shopping. Support 15 local women entrepreneurs, bring your kids and pups to join the fun, and savor the fun ambiance at this favorite brewery.  
-<a href="https://www.thebostoncalendar.com/events/boston-women-s-market-at-night-shift-brewing--4" target="_blank">info link</a>
-
-### Free Salsa Lessons @ Allston
-
-##### Friday 3/21
-
-Head to Craft Food Halls for a lively evening of dancing and spirit with MetaMovements. Learn how to salsa in a stress-free environment and meet your new dance partner at this community gathering. Plus, there will be 30+ taps on the wall to sip on if you need a little liquid courage.  
-<a href="https://www.thebostoncalendar.com/events/free-salsa-lessons-at-craft-food-halls-allston" target="_blank">info link</a>
-
-### 6th Annual Bow Market Book Fair @ Somerville
-
-##### Saturday 3/22
-
-Calling all bookworms and literary enthusiasts — Bow Market is hosting a day full of book-themed fun. Enjoy author signings, a cookbook swap, a themed maker market, food and drink specials, book seller pop-ups, and more. Then, stick around for some lively literary drag trivia and an after party in the evening too.  
-<a href="https://www.thebostoncalendar.com/events/6th-annual-bow-market-book-fair" target="_blank">info link</a>
-
 ### Boston Public Library Special Collections Open House @ Copley
 
 ##### Wednesday 3/19
@@ -1039,12 +1025,12 @@ Hey, history buffs and book lovers. Snag a ticket to and gain access to this spe
 Play some fun trivia while supporting a good cause. Your ticket will get you access to fun vibes and a great game while 50% of the proceeds will support a runner who is part of the Boston Children’s Hospital Miles for Miracles team during their Boston Marathon journey.  
 <a href="https://www.thebostoncalendar.com/events/charity-trivia-night" target="_blank">info link</a>
 
-### Reclaiming Folk: Boston @ Copley
+### 6th Annual Bow Market Book Fair @ Somerville
 
 ##### Saturday 3/22
 
-Come celebrate National Women’s History Month at the BPL with this event series that provides a platform for people of color in folk music. This community get together will feature creative performances by Naomi Westwater, Pamela Means, Adeline Um, and a special guest.  
-<a href="https://www.thebostoncalendar.com/events/reclaiming-folk-boston" target="_blank">info link</a>
+Calling all bookworms and literary enthusiasts — Bow Market is hosting a day full of book-themed fun. Enjoy author signings, a cookbook swap, a themed maker market, food and drink specials, book seller pop-ups, and more. Then, stick around for some lively literary drag trivia and an after party in the evening too.  
+<a href="https://www.thebostoncalendar.com/events/6th-annual-bow-market-book-fair" target="_blank">info link</a>
 
 ### Moakley Park Clean Up @ Dorchester
 
@@ -1053,26 +1039,19 @@ Come celebrate National Women’s History Month at the BPL with this event serie
 Give back to the community and volunteer at this local clean up right along the waterfront. You’ll be in great company with Boston Harbor Now, the Boston Parks and Recreation Department, and neighbors as you declutter the park.  
 <a href="https://www.thebostoncalendar.com/events/moakley-park-clean-up--3" target="_blank">info link</a>
 
-### ‘Saving Face’ Film Screening @ Seaport
+### Reclaiming Folk: Boston @ Copley
 
 ##### Saturday 3/22
 
-Head to Panethnic Pourovers for a day of communal connection. Watch ‘Saving Face,’ a queer, Chinese American rom-com by Alice Wu. You’ll get to enjoy a screening, a sliding scale of food and other goodies, and engage in a post-film discussion with new friends.  
-<a href="https://www.thebostoncalendar.com/events/saving-face-film-screening" target="_blank">info link</a>
+Come celebrate National Women’s History Month at the BPL with this event series that provides a platform for people of color in folk music. This community get together will feature creative performances by Naomi Westwater, Pamela Means, Adeline Um, and a special guest.  
+<a href="https://www.thebostoncalendar.com/events/reclaiming-folk-boston" target="_blank">info link</a>
 
-### fruitstand presents: Haus of Mayhem @ Dorchester
+### Free Salsa Lessons @ Allston
 
-##### Saturday 3/22
+##### Friday 3/21
 
-Get ready for this monthly iconic queer dance party and dress like the Little Monster you are. Dance to the tunes of Lady Gaga’s new ‘Mayhem’ album and get ready to leave it all out on the dancefloor with songs by Charli xcx, Chappell Roan, and more.  
-<a href="https://www.thebostoncalendar.com/events/fruitstand-presents-haus-of-mayhem-a-queer-pop-dance-party" target="_blank">info link</a>
-
-### Holi Mela by Shanti @ Roslindale
-
-##### Saturday 3/22
-
-Come celebrate Holi, the Hindu festival of spring, colors, and love. There will be music, dance performances, traditional food, and a whole lot of colorful powder. Wear white and see the magic at this cultural community get together.  
-<a href="https://www.thebostoncalendar.com/events/holi-mela-by-shanti" target="_blank">info link</a>
+Head to Craft Food Halls for a lively evening of dancing and spirit with MetaMovements. Learn how to salsa in a stress-free environment and meet your new dance partner at this community gathering. Plus, there will be 30+ taps on the wall to sip on if you need a little liquid courage.  
+<a href="https://www.thebostoncalendar.com/events/free-salsa-lessons-at-craft-food-halls-allston" target="_blank">info link</a>
 
 ### BINGO Night @ Back Bay
 
@@ -1081,19 +1060,19 @@ Come celebrate Holi, the Hindu festival of spring, colors, and love. There will 
 It’s competition time, so let’s hope that your Bingo card is the lucky one. Get ready to play, sip on some cocktails available for purchase, and win some prizes for 1.5 hours. Trident is hosting their first Bingo night since 2022 and you don’t want to miss it.  
 <a href="https://www.thebostoncalendar.com/events/bingo-night--5" target="_blank">info link</a>
 
-### Battle of the Bartenders @ Fenway
+### Holi Mela by Shanti @ Roslindale
 
-##### Sunday 3/23
+##### Saturday 3/22
 
-It’s the first ever Battle of the Bartenders at Time Out. You’ll get to watch a live cocktail-making competition with 8 of the best bartenders, taste some of their creations, and see who’s crowned the ultimate bev maker.  
-<a href="https://www.thebostoncalendar.com/events/battle-of-the-bartenders" target="_blank">info link</a>
+Come celebrate Holi, the Hindu festival of spring, colors, and love. There will be music, dance performances, traditional food, and a whole lot of colorful powder. Wear white and see the magic at this cultural community get together.  
+<a href="https://www.thebostoncalendar.com/events/holi-mela-by-shanti" target="_blank">info link</a>
 
-### Swiftie Sunday @ Fenway
+### fruitstand presents: Haus of Mayhem @ Dorchester
 
-##### Sunday 3/23
+##### Saturday 3/22
 
-Bust out the glitter, wear all your red, put on your cowboy boots, and rep your favorite era. Get ready for an afternoon of Taylor Swift — music, themed drinks, dancing, and more.  
-<a href="https://www.thebostoncalendar.com/events/swiftie-sunday--4" target="_blank">info link</a>
+Get ready for this monthly iconic queer dance party and dress like the Little Monster you are. Dance to the tunes of Lady Gaga’s new ‘Mayhem’ album and get ready to leave it all out on the dancefloor with songs by Charli xcx, Chappell Roan, and more.  
+<a href="https://www.thebostoncalendar.com/events/fruitstand-presents-haus-of-mayhem-a-queer-pop-dance-party" target="_blank">info link</a>
 
 ### Boston Public Market FiberFest 2025 @ Downtown
 
@@ -1102,6 +1081,27 @@ Bust out the glitter, wear all your red, put on your cowboy boots, and rep your 
 Enjoy and learn about fiber arts at BPM. There will be over 20 pop-up vendors to shop for handmade crafts and products that are made in MA or New England. You can also participate in drop-in yarn painting, needle felting, workshops, and more.  
 <a href="https://www.thebostoncalendar.com/events/boston-public-market-fiberfest-2025" target="_blank">info link</a>
 
+### Boston Conversations - March Event @ Somerville
+
+##### Monday 3/24
+
+Looking for a way to grow your community and connect with strangers in a stress free way? Head to Aeronaut Brewing for this monthly Boston Conversations event where you can talk to others with meaningful convo starters.  
+<a href="https://www.thebostoncalendar.com/events/boston-conversations-march-event--2" target="_blank">info link</a>
+
+### Swiftie Sunday @ Fenway
+
+##### Sunday 3/23
+
+Bust out the glitter, wear all your red, put on your cowboy boots, and rep your favorite era. Get ready for an afternoon of Taylor Swift — music, themed drinks, dancing, and more.  
+<a href="https://www.thebostoncalendar.com/events/swiftie-sunday--4" target="_blank">info link</a>
+
+### Battle of the Bartenders @ Fenway
+
+##### Sunday 3/23
+
+It’s the first ever Battle of the Bartenders at Time Out. You’ll get to watch a live cocktail-making competition with 8 of the best bartenders, taste some of their creations, and see who’s crowned the ultimate bev maker.  
+<a href="https://www.thebostoncalendar.com/events/battle-of-the-bartenders" target="_blank">info link</a>
+
 ### ‘Love and Basketball’ Screening @ Roslindale
 
 ##### Wednesday 3/26
@@ -1109,19 +1109,12 @@ Enjoy and learn about fiber arts at BPM. There will be over 20 pop-up vendors to
 The Roslindale Film Society is hosting an evening of community connection at the Square Root. Watch ‘Love and Basketball,’ chat with some neighbors, and grab some beer, wine, or food from this local establishment.  
 <a href="https://www.thebostoncalendar.com/events/roslindale-film-society-presents-love-basketball-2000" target="_blank">info link</a>
 
-### ‘Schitt’s Creek’ Trivia @ Downtown
+### ‘Saving Face’ Film Screening @ Seaport
 
-##### Tuesday 3/25
+##### Saturday 3/22
 
-Head to the Sam Adams Downtown Taproom to see who is the ultimate Schitt Head fan. Make sure to binge up on all things ‘Schitt’s Creek’ and battle to see who will take home the crown and some prizes.  
-<a href="https://www.thebostoncalendar.com/events/schitt-s-creek-trivia-w-geeks-who-drink" target="_blank">info link</a>
-
-### Boston Conversations - March Event @ Somerville
-
-##### Monday 3/24
-
-Looking for a way to grow your community and connect with strangers in a stress free way? Head to Aeronaut Brewing for this monthly Boston Conversations event where you can talk to others with meaningful convo starters.  
-<a href="https://www.thebostoncalendar.com/events/boston-conversations-march-event--2" target="_blank">info link</a>
+Head to Panethnic Pourovers for a day of communal connection. Watch ‘Saving Face,’ a queer, Chinese American rom-com by Alice Wu. You’ll get to enjoy a screening, a sliding scale of food and other goodies, and engage in a post-film discussion with new friends.  
+<a href="https://www.thebostoncalendar.com/events/saving-face-film-screening" target="_blank">info link</a>
 
 ### Hike Boston - Roslindale Wetlands @ Roslindale
 
@@ -1130,33 +1123,19 @@ Looking for a way to grow your community and connect with strangers in a stress 
 Explore the greater Boston area by joining this guided hike with Boston Park rangers, Urban Wild staff, and Parks employees. You’ll get to meet your neighbors and learn about the local flora and fauna of the Roslindale wetlands.  
 <a href="https://www.thebostoncalendar.com/events/hike-boston-roslindale-wetlands" target="_blank">info link</a>
 
-### Harvard Art Museums at Night @ Harvard Square
+### BIZZY Spring Market & Festivities @ Revere
 
-##### Thursday 3/27
+##### Saturday 3/29
 
-Your favorite after hours museum party is back. Head to Harvard Art Museums for an evening of DJ beats, munchies and sips, an art station, gallery talks, and the much anticipated reveal of the new ‘Edvard Munch: Technically Speaking’ exhibit.  
-<a href="https://joyraft.com/event/harvard-art-museums-at-night--50-cambridge-1014027" target="_blank">info link</a>
+Welcome spring at the BIZZY Market right near Revere Beach. You’ll get to support over 30 women-owned small businesses, make your own hot cocoa from the complimentary hot chocolate station, make some friendship bracelets, decorate cookies and a tote bag, and grab a pic at the photo booth.  
+<a href="https://www.thebostoncalendar.com/events/bizzy-spring-market-festivities-free-family-friendly-event" target="_blank">info link</a>
 
-### A Night of Line Dancing @ Charlestown
+### ‘Schitt’s Creek’ Trivia @ Downtown
 
-##### Thursday 3/27
+##### Tuesday 3/25
 
-Learn some new moves that you can bust out at your next dance party with this guided lesson by the Gays for Patsy Dance Club. You’ll get to meet new friends while mastering new line dancing techniques.  
-<a href="https://www.thebostoncalendar.com/events/a-night-of-line-dancing" target="_blank">info link</a>
-
-### Retromania: A Retrospective Expo @ Brighton
-
-##### Saturday 3/29 & Sunday 3/30
-
-This vintage paradise is back for its 3rd year. Head to Roadrunner and get ready to shop from over 120 vendors. Find your next fashion statement piece, a knickknack, vintage art, and more. Plus, you can sip on a fun bev while shopping and enjoy some pop-up food vendors on the second floor.  
-<a href="https://www.thebostoncalendar.com/events/retromania-a-retrospective-expo--3" target="_blank">info link</a>
-
-### Boston Women’s Market at Time Out @ Dorchester
-
-##### Sunday 3/30
-
-To close out Women’s History Month, shop from and support 14 local women-owned small businesses. Find the perfect handmade gift, join a cake decorating workshop, and munch and sip while you peruse.  
-<a href="https://www.thebostoncalendar.com/events/boston-women-s-market-at-time-out--2" target="_blank">info link</a>
+Head to the Sam Adams Downtown Taproom to see who is the ultimate Schitt Head fan. Make sure to binge up on all things ‘Schitt’s Creek’ and battle to see who will take home the crown and some prizes.  
+<a href="https://www.thebostoncalendar.com/events/schitt-s-creek-trivia-w-geeks-who-drink" target="_blank">info link</a>
 
 ### Queer and Trans Hiking Fellows @ Medford
 
@@ -1165,6 +1144,27 @@ To close out Women’s History Month, shop from and support 14 local women-owned
 Looking for a way to grow your queer community in Boston? Join this hike for folks who are part of the LGBTQIA+ community. Meet new friends while exploring the outdoors and embracing spring.  
 <a href="https://www.thebostoncalendar.com/events/queer-and-trans-hiking-fellows" target="_blank">info link</a>
 
+### Boston Women’s Market at Time Out @ Dorchester
+
+##### Sunday 3/30
+
+To close out Women’s History Month, shop from and support 14 local women-owned small businesses. Find the perfect handmade gift, join a cake decorating workshop, and munch and sip while you peruse.  
+<a href="https://www.thebostoncalendar.com/events/boston-women-s-market-at-time-out--2" target="_blank">info link</a>
+
+### Retromania: A Retrospective Expo @ Brighton
+
+##### Saturday 3/29 & Sunday 3/30
+
+This vintage paradise is back for its 3rd year. Head to Roadrunner and get ready to shop from over 120 vendors. Find your next fashion statement piece, a knickknack, vintage art, and more. Plus, you can sip on a fun bev while shopping and enjoy some pop-up food vendors on the second floor.  
+<a href="https://www.thebostoncalendar.com/events/retromania-a-retrospective-expo--3" target="_blank">info link</a>
+
+### A Night of Line Dancing @ Charlestown
+
+##### Thursday 3/27
+
+Learn some new moves that you can bust out at your next dance party with this guided lesson by the Gays for Patsy Dance Club. You’ll get to meet new friends while mastering new line dancing techniques.  
+<a href="https://www.thebostoncalendar.com/events/a-night-of-line-dancing" target="_blank">info link</a>
+
 ### CanalSide’s Taylor Swift Trivia @ Cambridge
 
 ##### Monday 3/31
@@ -1172,10 +1172,10 @@ Looking for a way to grow your queer community in Boston? Join this hike for fol
 Swiftie fans – battle it out at the ultimate trivia game dedicated to the queen herself. Rep your favorite era, brush up on your knowledge, and get ready to see who is the truest fan of them all.  
 <a href="https://www.thebostoncalendar.com/events/canalside-food-drink-at-cambridgeside-hosts-taylor-swift-themed-trivia" target="_blank">info link</a>
 
-### BIZZY Spring Market & Festivities @ Revere
+### Harvard Art Museums at Night @ Harvard Square
 
-##### Saturday 3/29
+##### Thursday 3/27
 
-Welcome spring at the BIZZY Market right near Revere Beach. You’ll get to support over 30 women-owned small businesses, make your own hot cocoa from the complimentary hot chocolate station, make some friendship bracelets, decorate cookies and a tote bag, and grab a pic at the photo booth.  
-<a href="https://www.thebostoncalendar.com/events/bizzy-spring-market-festivities-free-family-friendly-event" target="_blank">info link</a>
+Your favorite after hours museum party is back. Head to Harvard Art Museums for an evening of DJ beats, munchies and sips, an art station, gallery talks, and the much anticipated reveal of the new ‘Edvard Munch: Technically Speaking’ exhibit.  
+<a href="https://joyraft.com/event/harvard-art-museums-at-night--50-cambridge-1014027" target="_blank">info link</a>
 
