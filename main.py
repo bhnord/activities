@@ -1,5 +1,6 @@
 import itertools
 from io import TextIOWrapper
+from typing import Text
 import requests
 from bs4 import BeautifulSoup
 from concurrent.futures import ThreadPoolExecutor
@@ -45,7 +46,7 @@ def getEventsLists(n: int):
 
 def getDescriptionText(soup: BeautifulSoup) -> str:
     text = soup.find(id="event_description")
-    return text.getText() if text is not None else ""
+    return text.text.strip() if text is not None else ""
 
 
 def getTimePeriod(soup: BeautifulSoup) -> tuple[datetime, datetime]:
@@ -59,12 +60,11 @@ def getTimePeriod(soup: BeautifulSoup) -> tuple[datetime, datetime]:
     return (start_time, end_time)
 
 
-def addEventPageToFile(link: str):
+def saveEventPageData(link: str):
     # get soup
     content = requests.get(link).text
     soup = BeautifulSoup(content, "lxml")
     full_description = getDescriptionText(soup)
-    event_name = soup.find("h1").text.strip()
 
     shortened_description = re.match(
         r"^[^.!?].{40,}?[.!?]", full_description, re.IGNORECASE
@@ -75,18 +75,38 @@ def addEventPageToFile(link: str):
         else full_description
     )
 
-    event = (
-        "### "
-        + event_name
-        + "\n\n"
-        + description
-        + "  \n"
-        + '<a href="'
-        + link
-        + '" target="_blank">info link</a>\n\n'
-    )
-
-    addEventTimePeriod(*getTimePeriod(soup), event)
+    try:
+        header = soup.find("h1")
+        event_name = header.text.strip() if header else ""
+        location_content = soup.find("p", itemprop="location")
+        location_search = (
+            location_content.find("span", itemprop="name") if location_content else ""
+        )
+        location = location_search.text.strip() if location_search else ""
+        location_url_search = location_content.find("span", itemprop="url")
+        url = location_url_search.text.strip() if location_url_search else ""
+        start_time, end_time = getTimePeriod(soup)
+        event = (
+            "### "
+            + event_name
+            + "\n\n"
+            + "**"
+            + start_time.strftime("%m/%d %I:%M%p")
+            + " - "
+            + end_time.strftime("%m/%d %I:%M%p")
+            + " @ "
+            + location
+            + "**"
+            + "  \n"
+            + description
+            + "  \n"
+            + '<a href="'
+            + url
+            + '" target="_blank">info link</a>\n\n'
+        )
+        addEventTimePeriod(start_time, end_time, event)
+    except Exception as e:
+        raise
 
 
 def addEventPage(url: str):
@@ -101,15 +121,11 @@ def addEventPage(url: str):
         if re.search(r".*thebostoncalendar.*", i.get("href"))
     ]
     with ThreadPoolExecutor(max_workers=4) as executor:
-        executor.map(
-            addEventPageToFile,
-            links,
-        )
+        executor.map(saveEventPageData, links)
 
 
 if __name__ == "__main__":
     filename = "README"
-    by_day_filename = "events_by_day"
 
     event_list_urls = getEventsLists(2)
     for event_url in event_list_urls:
