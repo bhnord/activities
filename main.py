@@ -1,16 +1,34 @@
 import itertools
 from io import TextIOWrapper
-from bs4.element import Tag
 import requests
-from datetime import datetime
 from bs4 import BeautifulSoup
 from concurrent.futures import ThreadPoolExecutor
 import threading
 import re
+from datetime import datetime, timedelta
+import pytz
 
 BASE_URL = "https://www.thebostoncalendar.com"
+time_format = "%Y-%m-%d %I:%M%p EST"
+est = pytz.timezone("US/Eastern")
 
 write_lock = threading.Lock()
+
+# set up by date
+today = datetime.today().date()
+days_until_sunday = (6 - today.weekday()) % 7 or 7
+
+## setup dict by day
+events_by_day = {}
+for i in range(days_until_sunday + 1):
+    events_by_day[today + timedelta(days=i)] = []
+
+
+def addEventTimePeriod(start_time, end_time, event_description):
+    start_day, end_day = start_time.date(), end_time.date()
+    while start_day <= end_day:
+        events_by_day[start_day].append(event_description)
+        start_day += timedelta(days=1)
 
 
 def getEventsLists(n: int):
@@ -25,136 +43,79 @@ def getEventsLists(n: int):
     return event_list_links
 
 
-def getDescriptionText(bitly_link: str) -> str:
-    content = requests.get(bitly_link).text
-    soup = BeautifulSoup(content, "lxml")
+def getDescriptionText(soup: BeautifulSoup) -> str:
     text = soup.find(id="event_description")
     return text.getText() if text is not None else ""
 
 
-def addNumberedEventToFile(item: Tag, file: TextIOWrapper, events_file: TextIOWrapper):
-    if re.match(r"[0-9]+\)*", item.text):
-        text = item.text
-        event_name = re.search(r"[0-9]+\)\s+(.+)\s+", text).group(1).strip()
-        link = str(item.find("a").get("href"))
-        descriptionText = getDescriptionText(link)
-        match = re.match(r"^[^.!?].{40,}?[.!?]", descriptionText, re.IGNORECASE)
-        description = match.group(0).strip() if match else descriptionText
+def getTimePeriod(soup: BeautifulSoup) -> tuple[datetime, datetime]:
+    time_frame = soup.find_all(id="startdate")
+    start_time = time_frame[0].get("content")
+    end_time = time_frame[1].get("content")
 
-        event = (
-            "### "
-            + event_name
-            + "\n\n"
-            + description
-            + "  \n"
-            + '<a href="'
-            + link
-            + '" target="_blank">info link</a>\n\n'
-        )
-        raw_event = "### " + event_name + "\n\n" + description + "\n\n"
+    start_time = est.localize(datetime.strptime(start_time, time_format))
+    end_time = est.localize(datetime.strptime(end_time, time_format))
 
-        with write_lock:
-            file.write(event)
-            events_file.write(raw_event)
+    return (start_time, end_time)
 
 
-def addEventToFile(item: str, file: TextIOWrapper, events_file: TextIOWrapper):
-    soup = BeautifulSoup(item, "lxml")
+def addEventPageToFile(link: str):
+    # get soup
+    content = requests.get(link).text
+    soup = BeautifulSoup(content, "lxml")
+    full_description = getDescriptionText(soup)
+    event_name = soup.find("h1").text.strip()
 
-    link = ""
-    event_name = ""
-    # when, where, description
-    info = []
-
-    title_seen = False
-    for elem in soup.find_all("p"):
-        # title
-        if elem.find("a"):
-            link = elem.find("a").get("href")
-            # remove numebring if it's there
-            event_name = re.sub(r"^\d+\)", "", elem.text).strip()
-            title_seen = True
-        # where, when, info
-        elif title_seen:
-            sub_title = elem.find("strong")
-            if re.match(r"(where|when|info)", sub_title.text, re.IGNORECASE):
-                sub_title.decompose()
-                info.append(elem.text.strip())
+    shortened_description = re.match(
+        r"^[^.!?].{40,}?[.!?]", full_description, re.IGNORECASE
+    )
+    description = (
+        shortened_description.group(0).strip()
+        if shortened_description
+        else full_description
+    )
 
     event = (
         "### "
         + event_name
-        + " @ "
-        + info[1]
         + "\n\n"
-        + "##### "
-        + info[0]
-        + "\n\n"
-        + info[2]
+        + description
         + "  \n"
         + '<a href="'
         + link
         + '" target="_blank">info link</a>\n\n'
     )
 
-    raw_event = (
-        "### "
-        + event_name
-        + " @ "
-        + info[1]
-        + "\n\n"
-        + "##### "
-        + info[0]
-        + "\n\n"
-        + info[2]
-        + "\n\n"
-    )
-
-    with write_lock:
-        file.write(event)
-        events_file.write(raw_event)
+    addEventTimePeriod(*getTimePeriod(soup), event)
 
 
-def addEventPage(url: str, file: TextIOWrapper, events_file: TextIOWrapper):
+def addEventPage(url: str):
     content = requests.get(url).text
 
     soup = BeautifulSoup(content, "lxml")
 
-    header = soup.find("h1").text.strip()
-
-    items = soup.find(id="event_description")
-    file.write(f"# {header}\n\n")
-
-    # check which format the list is in
-    text = soup.text
-    regex = re.findall(r"[0-9]+\)\s+(.+?) bit\.ly", text)
-    if regex and len(regex) > 5:
-        with ThreadPoolExecutor(max_workers=4) as executor:
-            executor.map(
-                addNumberedEventToFile,
-                items.find_all(),
-                itertools.repeat(file),
-                itertools.repeat(events_file),
-            )
-    else:
-        events = re.findall(r"<p>.+?<a.+?Where.+?Info.+?</p>", content)
-        with ThreadPoolExecutor(max_workers=4) as executor:
-            executor.map(
-                addEventToFile,
-                events,
-                itertools.repeat(file),
-                itertools.repeat(events_file),
-            )
+    links = soup.find(id="event_description").find_all("a")
+    links = [
+        i.get("href")
+        for i in links
+        if re.search(r".*thebostoncalendar.*", i.get("href"))
+    ]
+    with ThreadPoolExecutor(max_workers=4) as executor:
+        executor.map(
+            addEventPageToFile,
+            links,
+        )
 
 
 if __name__ == "__main__":
     filename = "README"
-    raw_events_filename = "events.md"
+    by_day_filename = "events_by_day"
 
     event_list_urls = getEventsLists(2)
-    with open(filename + ".md", "w") as file, open(
-        raw_events_filename, "w"
-    ) as events_file:
-        file.write("scraped from: " + BASE_URL + "\n\n")
-        for event_url in event_list_urls:
-            addEventPage(BASE_URL + event_url, file, events_file)
+    for event_url in event_list_urls:
+        addEventPage(BASE_URL + event_url)
+    with open(filename + ".md", "w") as file:
+        for day, events in events_by_day.items():
+            file.write("# " + day.strftime("%A, %B %d, %Y") + "\n\n")
+            for event in events:
+                file.write(event)
