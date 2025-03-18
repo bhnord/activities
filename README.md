@@ -48,7 +48,7 @@ Join us every Wednesday at Lamplighter CX for a Survivor watch party you won’t
 
 **03/19 09:00AM - 03/19 05:00PM @ Capital One Cafe Seaport**  
 Work from home, but not at home!We supply the coffee (your choice of any coffee on the cafe menu) and well appointed work space while you work side by side with other professionals that want a break from isolation or a refreshing alternative to their apartment.  
-<a href="www.eventbrite.com/e/1236122669179/?discount=TBC" target="_blank">info link</a>
+<a href="https://www.eventbrite.com/e/1236122669179/?discount=TBC" target="_blank">info link</a>
 
 ### Indigenous Knowledge and Climate Change: The Keys to Our Resilient Future
 
@@ -105,7 +105,7 @@ Enjoy a rotating lineup of musicians playing a variety of styles, creating the p
 **03/20 08:00PM - 03/22 01:55AM @ SIDEBAR BOSTON**  
 ⚠️‼️JOIN US FOR KARAOKE @SIDEBAR BOSTON THURSDAY- SATURDAY 8PM-2AM EVERY WEEK ‼️⚠️ 
 HERE FOR A GOOD TIME AND A LONG TIME ‼️  
-<a href="" target="_blank">info link</a>
+<a href="https://" target="_blank">info link</a>
 
 ### Venture Café Cambridge: Thursday Gathering
 
@@ -168,7 +168,7 @@ Do you need a dose of fabulosity in your life?
 **03/20 08:00PM - 03/22 01:55AM @ SIDEBAR BOSTON**  
 ⚠️‼️JOIN US FOR KARAOKE @SIDEBAR BOSTON THURSDAY- SATURDAY 8PM-2AM EVERY WEEK ‼️⚠️ 
 HERE FOR A GOOD TIME AND A LONG TIME ‼️  
-<a href="" target="_blank">info link</a>
+<a href="https://" target="_blank">info link</a>
 
 ### Friday Night Trivia
 
@@ -214,6 +214,12 @@ The 6th Annual Bow Market Book Fair is back on Saturday, March 22nd!
 Join us for a celebration of Women’s History month with Reclaiming Folk: Celebrating People of Color in Folk Music at The Boston Public Library, featuring Naomi Westwater, Pamela Means, and Adeline Um, plus a special guest!  
 <a href="https://www.naomiwestwater.com/live-shows/2025/3/22/reclaiming-folk-boston" target="_blank">info link</a>
 
+### Holi Mela by Shanti
+
+**03/22 11:00AM - 03/22 04:00PM @ Adams Park**  
+Welcome to Holi Mela by Shanti!Come join us for a vibrant and colorful celebration at Adams Park on Sat, Mar 22, 2025.  
+<a href="https://www.eventbrite.com/e/holi-mela-by-shanti-tickets-1217081045169" target="_blank">info link</a>
+
 ### Sip & Shop in Boston - Makers Market by Pop Up Gallery
 
 **03/22 12:00PM - 03/22 05:00PM @ Time Out Market Boston**  
@@ -225,12 +231,6 @@ Join us for a celebration of Women’s History month with Reclaiming Folk: Celeb
 **03/22 12:00PM - 03/22 03:00PM @ DICK'S House of Sport**  
 Join us on Saturday, March 22, from 12:00 PM to 3:00 PM for a fun-filled afternoon to Celebrate the First Pitch!  
 <a href="https://www.dickssportinggoods.com/s/scheduling/f/962970f6-0e8d-4800-88ce-4117d92d9607?s=1536" target="_blank">info link</a>
-
-### Holi Mela by Shanti
-
-**03/22 11:00AM - 03/22 04:00PM @ Adams Park**  
-Welcome to Holi Mela by Shanti!Come join us for a vibrant and colorful celebration at Adams Park on Sat, Mar 22, 2025.  
-<a href="https://www.eventbrite.com/e/holi-mela-by-shanti-tickets-1217081045169" target="_blank">info link</a>
 
 ### Hidden Figures in the Mugar Omni Theater
 
@@ -297,7 +297,7 @@ parkrun is a FREE 5k and takes place every Saturday morning at Danehy Park in Ca
 **03/20 08:00PM - 03/22 01:55AM @ SIDEBAR BOSTON**  
 ⚠️‼️JOIN US FOR KARAOKE @SIDEBAR BOSTON THURSDAY- SATURDAY 8PM-2AM EVERY WEEK ‼️⚠️ 
 HERE FOR A GOOD TIME AND A LONG TIME ‼️  
-<a href="" target="_blank">info link</a>
+<a href="https://" target="_blank">info link</a>
 
 ### fizzy fridays: all pop, all night
 
@@ -329,17 +329,17 @@ Join us for a celebration of Women’s History month with Reclaiming Folk: Celeb
 The 6th Annual Bow Market Book Fair is back on Saturday, March 22nd!  
 <a href="https://buytickets.at/bowmarket/1587481" target="_blank">info link</a>
 
-### Moakley Park Clean Up
-
-**03/22 09:30AM - 03/22 11:30AM @ Moakley Park**  
-Join Boston Harbor Now and the Boston Parks and Recreation Department at Moakley Park to give back to your community and enjoy the beauty of the city’s biggest waterfront park!  
-<a href="https://moakleypark.org/event/moakley-park-cleanup-3/" target="_blank">info link</a>
-
 ### Holi Mela by Shanti
 
 **03/22 11:00AM - 03/22 04:00PM @ Adams Park**  
 Welcome to Holi Mela by Shanti!Come join us for a vibrant and colorful celebration at Adams Park on Sat, Mar 22, 2025.  
 <a href="https://www.eventbrite.com/e/holi-mela-by-shanti-tickets-1217081045169" target="_blank">info link</a>
+
+### Moakley Park Clean Up
+
+**03/22 09:30AM - 03/22 11:30AM @ Moakley Park**  
+Join Boston Harbor Now and the Boston Parks and Recreation Department at Moakley Park to give back to your community and enjoy the beauty of the city’s biggest waterfront park!  
+<a href="https://moakleypark.org/event/moakley-park-cleanup-3/" target="_blank">info link</a>
 
 ### "Saving Face" Film Screening
 
@@ -347,17 +347,17 @@ Welcome to Holi Mela by Shanti!Come join us for a vibrant and colorful celebrati
 Schedule:1:30-2:00: show up, grab snacks and drinks, find a seat, chat with other attendees2:00-3:45: Saving Face screening3:45-4:45: post-film discussion for those interested to share anything that came up for you from the movie, feel free to head out any time5:00: event endsDirector and Writer: Alice WuRun Time: 98 min.  
 <a href="https://www.eventbrite.com/e/saving-face-film-screening-tickets-1226994205699" target="_blank">info link</a>
 
-### BINGO Night
-
-**03/22 07:00PM - 03/22 09:00PM @ Trident Booksellers & Cafe**  
-Grab your lucky charms, sip on a cocktail, and get ready for a night of serious competition as we embark on our first BINGO back since 2022.  
-<a href="https://tridentbookscafe.com/event/2025-03-22/bingo-night" target="_blank">info link</a>
-
 ### fruitstand presents: HAUS OF MAYHEM, a queer pop dance party
 
 **03/22 09:30PM - 03/23 02:00AM @ 52 Church**  
 you have been summoned 🔮 by the HAUS OF MAYHEM 🪄 to a magical ball on March 22nd, and the category is: LITTLE MONSTERS/BIG SPELLS.  
 <a href="https://link.fruitstand.gay/haus-of-mayhem?utm_source=thebostoncalendar" target="_blank">info link</a>
+
+### BINGO Night
+
+**03/22 07:00PM - 03/22 09:00PM @ Trident Booksellers & Cafe**  
+Grab your lucky charms, sip on a cocktail, and get ready for a night of serious competition as we embark on our first BINGO back since 2022.  
+<a href="https://tridentbookscafe.com/event/2025-03-22/bingo-night" target="_blank">info link</a>
 
 # Sunday, March 23, 2025
 
@@ -367,17 +367,17 @@ you have been summoned 🔮 by the HAUS OF MAYHEM 🪄 to a magical ball on Marc
 BOSTON, we are hosting one of the BIGGEST Vintage Markets in the Northeast!  
 <a href="https://instagram.com/select.markets" target="_blank">info link</a>
 
-### Boston Public Market FiberFest 2025
-
-**03/23 10:00AM - 03/23 05:00PM @ Boston Public Market**  
-This festival brings together New England fiber farmers, producers, and crafters.  
-<a href="https://www.eventbrite.com/e/boston-public-market-fiberfest-2025-tickets-1218371204069?aff=oddtdtcreator" target="_blank">info link</a>
-
 ### Battle of the Bartenders
 
 **03/23 01:00PM - 03/23 05:00PM @ Time Out Market Boston**  
 Get ready for an unforgettable afternoon at Time Out Market Boston with our first-ever Battle of the Bartenders!  
 <a href="https://www.eventbrite.com/e/battle-of-the-bartenders-tickets-1253160890959" target="_blank">info link</a>
+
+### Boston Public Market FiberFest 2025
+
+**03/23 10:00AM - 03/23 05:00PM @ Boston Public Market**  
+This festival brings together New England fiber farmers, producers, and crafters.  
+<a href="https://www.eventbrite.com/e/boston-public-market-fiberfest-2025-tickets-1218371204069?aff=oddtdtcreator" target="_blank">info link</a>
 
 ### Movie Night at Lamplighter Brewing: Inside Out 2
 
@@ -413,13 +413,13 @@ Get ready for Swiftie Sundays on December 22nd!
 
 **03/23 01:00PM - 03/23 04:00PM @ Boston Fiber Company**  
 Join us every Sunday from 1pm-4pm for Coffee+Crafts!  
-<a href="www.bostonfibercompany.com" target="_blank">info link</a>
+<a href="https://www.bostonfibercompany.com" target="_blank">info link</a>
 
 ### Roslindale Winter Farmers Market
 
 **03/23 11:00AM - 03/23 02:00PM @ ABCD Head Start  Parking lot**  
 Roslindale Village Main Street is thrilled to announce the return of its Winter Farmers Market for another season!  
-<a href="Roslindale.net" target="_blank">info link</a>
+<a href="https://Roslindale.net" target="_blank">info link</a>
 
 ### FREE Sunday Night Trivia at Noir Bar!
 

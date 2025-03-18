@@ -85,6 +85,8 @@ def saveEventPageData(link: str):
         location = location_search.text.strip() if location_search else ""
         location_url_search = location_content.find("span", itemprop="url")
         url = location_url_search.text.strip() if location_url_search else ""
+        if not re.match(r"^https?://.*", url):
+            url = "https://" + url
         start_time, end_time = getTimePeriod(soup)
         event = (
             "### "
