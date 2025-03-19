@@ -1,6 +1,3 @@
-import itertools
-from io import TextIOWrapper
-from typing import Text
 import requests
 from bs4 import BeautifulSoup
 from concurrent.futures import ThreadPoolExecutor
@@ -17,11 +14,10 @@ write_lock = threading.Lock()
 
 # set up by date
 today = datetime.today().date()
-days_until_sunday = (6 - today.weekday()) % 7 or 7
 
 ## setup dict by day
 events_by_day = {}
-for i in range(days_until_sunday + 1):
+for i in range(7):
     events_by_day[today + timedelta(days=i)] = []
 
 
