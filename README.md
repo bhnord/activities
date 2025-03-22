@@ -1,155 +1,3 @@
-# Friday, March 21, 2025
-
-### A Night of a Thousand Verses
-
-**03/21 04:00PM - 03/21 10:00PM @ Omni Boston Hotel at the Seaport**  
-Celebrate the power of poetry at A Night of a Thousand Verses for World Poetry Day at the Omni Boston Hotel at the Seaport.  
-<a href="https://www.omnihotels.com/hotels/boston-seaport/dining/kestra" target="_blank">info link</a>
-
-### World Poetry Day Open Mic Night at CX
-
-**03/21 07:00PM - 03/21 10:00PM @ Lamplighter Brewing CX**  
-World Poetry Day is finally here.Come join us at CX to have a cheer!  
-<a href="https://www.eventbrite.com/e/1280793069549?aff=oddtdtcreator" target="_blank">info link</a>
-
-### Harry Potter Trivia at CFH Cambridge!
-
-**03/21 06:00PM - 03/21 08:00PM @ Craft Food Halls - Cambridge**  
-Look forward to Trivia at CFH Cambridge featuring New Hollands Dragons Milk!  
-<a href="https://www.eventbrite.com/e/harry-potter-trivia-at-cfh-cambridge-tickets-1260266935329" target="_blank">info link</a>
-
-### Printmaking Workshop
-
-**03/21 01:00PM - 03/21 02:00PM @ WNDR Museum**  
-Unleash your creativity with this fun and engaging Silicone Plate Printmaking Workshop for all ages and skill levels!  
-<a href="https://eventvesta.com/events/98223/t/tickets" target="_blank">info link</a>
-
-### Bar Moxy then GO PARTY at ICON! FREE!
-
-**03/21 09:00PM - 03/22 02:00AM @ Bar Moxy**  
-These events are designed so people that actually want to come out, drink, party, and make new friends in Boston can, while mitigating some cost along the way.  
-<a href="https://www.meetup.com/fuckitimsocial/events/306773529" target="_blank">info link</a>
-
-### Body Politics Reception
-
-**03/21 06:00PM - 03/21 08:00PM @ Gallery 263**  
-Join us on Friday, March 21, 6–8 pm, for a free reception for Body Politics.  
-<a href="https://gallery263.org/exhibition/body-politics/" target="_blank">info link</a>
-
-### Free Salsa Lessons at Craft Food Halls - Allston
-
-**03/21 06:30PM - 03/21 08:30PM @ Craft Food Halls - Allston**  
-Craft Food Halls is partnering with MetaMovements to bring FREE Salsa lessons to Craft Food Halls - Allston!  
-<a href="https://www.eventbrite.com/e/free-salsa-lessons-craft-food-halls-allston-tickets-1255624971089" target="_blank">info link</a>
-
-### The Addams Family at the Wang Theatre
-
-**03/21 08:00PM - 03/23 10:00PM @ Wang Theatre**  
-A comical feast that embraces the wackiness in every family, THE ADDAMS FAMILY is the magnificently macabre hit musical featuring everyone’s favorite creepy, kooky characters.  
-<a href="https://bit.ly/41qSfbj" target="_blank">info link</a>
-
-### RuPaul's Drag Race Screening
-
-**03/21 07:30PM - 03/21 10:00PM @ Lamplighter Broadway**  
-Do you need a dose of fabulosity in your life?  
-<a href="https://lamplighterbrewing.com/products/rupauls-drag-race-screening" target="_blank">info link</a>
-
-### DIY Screen Print Night
-
-**03/21 07:00PM - 03/21 09:00PM @ DARK MODE at Bow Market**  
-Join us at DARK MODE’S Bow Market storefront for DIY Screenprinting night.  
-<a href="https://darkmode.as.me/" target="_blank">info link</a>
-
-### Friday Night Trivia
-
-**03/21 07:00PM - 03/21 09:00PM @ Trident Booksellers and Cafe**  
-Join us for seven rounds of general knowledge trivia, every Friday at 7 pm!  
-<a href="https://tridentbookscafe.com/events" target="_blank">info link</a>
-
-### fizzy fridays: all pop, all night
-
-**03/21 10:00PM - 03/22 02:00AM @ The Turing Tavern**  
-join DJ Frazzo every Friday night 10pm–close 🪩🌟 for a night of pure pop.  
-<a href="https://theturingtavern.com/cambridge-inman-square-the-turing-tavern-events" target="_blank">info link</a>
-
-### Winter Fitness Series Latin Fusion HIIT
-
-**03/21 07:00PM - 03/21 08:00PM @ Roslindale Community Center**  
-Immerse yourself in a one-hour fitness journey through the infectious beats of Latin American electronic dance music with heart-pumping full-body HIIT segments consisting of agility, functional, and cardio exercises designed to push your limits and elevate your fitness game, coupled with active recovery periods of Latin dancing and ending with a 20 minute pilates-inspired core segment.  
-<a href="https://www.eventbrite.com/e/winter-fitness-series-latin-fusion-hiit-high-intensity-interval-training-tickets-1115828155049" target="_blank">info link</a>
-
-### Free Fridays at Trinity Organ Concerts
-
-**03/21 12:15PM - 03/21 12:45PM @ Trinity Church Boston**  
-Join us in our Copley Square home on Friday afternoons at 12:15 pm for this weekly series of midday organ concerts featuring innovative programs by recitalists from across the United States and abroad.  
-<a href="https://www.trinitychurchboston.org/event/free-fridays-at-trinity-organ-concert-1" target="_blank">info link</a>
-
-### Boston Swing Central- Friday Dance
-
-**03/21 08:00PM - 03/21 11:30PM @ Q Ballroom**  
-Boston Swing Central is a dancer-formed, non-profit, volunteer-run organization dedicated to promoting positive and fun swing dancing experiences in Boston.  
-<a href="https://www.bostonswingcentral.org/" target="_blank">info link</a>
-
-### 77 things to do in Boston this weekend
-
-**03/21 07:00AM - 03/23 11:00PM @ Boston**  
-Happy Boston spring from us to you! Kick off the first weekend of spring with festivals, live music and other performances, fun markets, movies, and more.  
-<a href="https://www.thebostoncalendar.com/" target="_blank">info link</a>
-
-### World Poetry Day Open Mic Night at CX
-
-**03/21 07:00PM - 03/21 10:00PM @ Lamplighter Brewing CX**  
-World Poetry Day is finally here.Come join us at CX to have a cheer!  
-<a href="https://www.eventbrite.com/e/1280793069549?aff=oddtdtcreator" target="_blank">info link</a>
-
-### Harry Potter Trivia at CFH Cambridge!
-
-**03/21 06:00PM - 03/21 08:00PM @ Craft Food Halls - Cambridge**  
-Look forward to Trivia at CFH Cambridge featuring New Hollands Dragons Milk!  
-<a href="https://www.eventbrite.com/e/harry-potter-trivia-at-cfh-cambridge-tickets-1260266935329" target="_blank">info link</a>
-
-### Bar Moxy then GO PARTY at ICON! FREE!
-
-**03/21 09:00PM - 03/22 02:00AM @ Bar Moxy**  
-These events are designed so people that actually want to come out, drink, party, and make new friends in Boston can, while mitigating some cost along the way.  
-<a href="https://www.meetup.com/fuckitimsocial/events/306773529" target="_blank">info link</a>
-
-### Free Salsa Lessons at Craft Food Halls - Allston
-
-**03/21 06:30PM - 03/21 08:30PM @ Craft Food Halls - Allston**  
-Craft Food Halls is partnering with MetaMovements to bring FREE Salsa lessons to Craft Food Halls - Allston!  
-<a href="https://www.eventbrite.com/e/free-salsa-lessons-craft-food-halls-allston-tickets-1255624971089" target="_blank">info link</a>
-
-### RuPaul's Drag Race Screening
-
-**03/21 07:30PM - 03/21 10:00PM @ Lamplighter Broadway**  
-Do you need a dose of fabulosity in your life?  
-<a href="https://lamplighterbrewing.com/products/rupauls-drag-race-screening" target="_blank">info link</a>
-
-### Friday Night Trivia
-
-**03/21 07:00PM - 03/21 09:00PM @ Trident Booksellers and Cafe**  
-Join us for seven rounds of general knowledge trivia, every Friday at 7 pm!  
-<a href="https://tridentbookscafe.com/events" target="_blank">info link</a>
-
-### Winter Fitness Series Latin Fusion HIIT
-
-**03/21 07:00PM - 03/21 08:00PM @ Roslindale Community Center**  
-Immerse yourself in a one-hour fitness journey through the infectious beats of Latin American electronic dance music with heart-pumping full-body HIIT segments consisting of agility, functional, and cardio exercises designed to push your limits and elevate your fitness game, coupled with active recovery periods of Latin dancing and ending with a 20 minute pilates-inspired core segment.  
-<a href="https://www.eventbrite.com/e/winter-fitness-series-latin-fusion-hiit-high-intensity-interval-training-tickets-1115828155049" target="_blank">info link</a>
-
-### fizzy fridays: all pop, all night
-
-**03/21 10:00PM - 03/22 02:00AM @ The Turing Tavern**  
-join DJ Frazzo every Friday night 10pm–close 🪩🌟 for a night of pure pop.  
-<a href="https://theturingtavern.com/cambridge-inman-square-the-turing-tavern-events" target="_blank">info link</a>
-
-### Free Fridays at Trinity Organ Concerts
-
-**03/21 12:15PM - 03/21 12:45PM @ Trinity Church Boston**  
-Join us in our Copley Square home on Friday afternoons at 12:15 pm for this weekly series of midday organ concerts featuring innovative programs by recitalists from across the United States and abroad.  
-<a href="https://www.trinitychurchboston.org/event/free-fridays-at-trinity-organ-concert-1" target="_blank">info link</a>
-
 # Saturday, March 22, 2025
 
 ### 6th Annual Bow Market Book Fair
@@ -158,23 +6,17 @@ Join us in our Copley Square home on Friday afternoons at 12:15 pm for this week
 The 6th Annual Bow Market Book Fair is back on Saturday, March 22nd!  
 <a href="https://buytickets.at/bowmarket/1587481" target="_blank">info link</a>
 
-### Reclaiming Folk: Boston
-
-**03/22 01:00PM - 03/22 03:00PM @ Boston Public Library**  
-Join us for a celebration of Women’s History month with Reclaiming Folk: Celebrating People of Color in Folk Music at The Boston Public Library, featuring Naomi Westwater, Pamela Means, and Adeline Um, plus a special guest!  
-<a href="https://www.naomiwestwater.com/live-shows/2025/3/22/reclaiming-folk-boston" target="_blank">info link</a>
-
 ### Sip & Shop in Boston - Makers Market by Pop Up Gallery
 
 **03/22 12:00PM - 03/22 05:00PM @ Time Out Market Boston**  
 ✌️☀️ Join us for a Sip & Shop event in Boston, hosted by Time Out Market!  
 <a href="https://www.eventbrite.com/e/sip-shop-in-boston-makers-market-by-pop-up-gallery-tickets-1259115762139" target="_blank">info link</a>
 
-### Elevate & Celebrate: Women’s Market at View Boston
+### Reclaiming Folk: Boston
 
-**03/22 12:00PM - 03/22 05:00PM @ View Boston**  
-Celebrate Women’s History Month 52 floors above the city at View Boston, where you’ll shop 15 incredible woman-founded small businesses, sip craft cocktails, and take in the most stunning panoramic views of Boston.  
-<a href="https://www.bostonwomensmarket.com/events-calendar/boston-womens-market-at-view-boston-march-22" target="_blank">info link</a>
+**03/22 01:00PM - 03/22 03:00PM @ Boston Public Library**  
+Join us for a celebration of Women’s History month with Reclaiming Folk: Celebrating People of Color in Folk Music at The Boston Public Library, featuring Naomi Westwater, Pamela Means, and Adeline Um, plus a special guest!  
+<a href="https://www.naomiwestwater.com/live-shows/2025/3/22/reclaiming-folk-boston" target="_blank">info link</a>
 
 ### Holi Mela by Shanti
 
@@ -182,23 +24,29 @@ Celebrate Women’s History Month 52 floors above the city at View Boston, where
 Welcome to Holi Mela by Shanti!Come join us for a vibrant and colorful celebration at Adams Park on Sat, Mar 22, 2025.  
 <a href="https://www.eventbrite.com/e/holi-mela-by-shanti-tickets-1217081045169" target="_blank">info link</a>
 
+### Elevate & Celebrate: Women’s Market at View Boston
+
+**03/22 12:00PM - 03/22 05:00PM @ View Boston**  
+Celebrate Women’s History Month 52 floors above the city at View Boston, where you’ll shop 15 incredible woman-founded small businesses, sip craft cocktails, and take in the most stunning panoramic views of Boston.  
+<a href="https://www.bostonwomensmarket.com/events-calendar/boston-womens-market-at-view-boston-march-22" target="_blank">info link</a>
+
 ### Celebrate The First Pitch
 
 **03/22 12:00PM - 03/22 03:00PM @ DICK'S House of Sport**  
 Join us on Saturday, March 22, from 12:00 PM to 3:00 PM for a fun-filled afternoon to Celebrate the First Pitch!  
 <a href="https://www.dickssportinggoods.com/s/scheduling/f/962970f6-0e8d-4800-88ce-4117d92d9607?s=1536" target="_blank">info link</a>
 
-### Hello Spring! Yoga & No-Mosas at Dray
-
-**03/22 10:00AM - 03/22 12:00PM @ Dray Non-Alcoholic Bottle Shop**  
-We're back with another introductory yoga class with Peter Sacco of BulldogFlowBoston!  
-<a href="https://www.draydrinks.com/collections/events/products/hello-spring-yoga-no-mosas-dray-and-bulldogflowboston" target="_blank">info link</a>
-
 ### Hidden Figures in the Mugar Omni Theater
 
 **03/22 08:00PM - 03/22 10:30PM @ Museum of Science**  
 Hidden Figures tells the incredible untold story of Katherine Johnson (Taraji P.  
 <a href="https://www.mos.org/visit/omni/hidden-figures" target="_blank">info link</a>
+
+### Hello Spring! Yoga & No-Mosas at Dray
+
+**03/22 10:00AM - 03/22 12:00PM @ Dray Non-Alcoholic Bottle Shop**  
+We're back with another introductory yoga class with Peter Sacco of BulldogFlowBoston!  
+<a href="https://www.draydrinks.com/collections/events/products/hello-spring-yoga-no-mosas-dray-and-bulldogflowboston" target="_blank">info link</a>
 
 ### Mini March Madness
 
@@ -211,12 +59,6 @@ Get your littles in on the March Madness fun!
 **03/22 11:00AM - 03/22 03:00PM @ Metropolitan Waterworks Museum**  
 Join us at the Metropolitan Waterworks Museum on Saturday, March 22nd from 11am to 3pm to help us celebrate World Water Day with some special hands-on activities inspired by this year's theme: Glacier Preservation.  
 <a href="https://waterworksmuseum.org/events/world-water-day-at-the-waterworks/" target="_blank">info link</a>
-
-### Bar Moxy then GO PARTY at ICON! FREE!
-
-**03/21 09:00PM - 03/22 02:00AM @ Bar Moxy**  
-These events are designed so people that actually want to come out, drink, party, and make new friends in Boston can, while mitigating some cost along the way.  
-<a href="https://www.meetup.com/fuckitimsocial/events/306773529" target="_blank">info link</a>
 
 ### Mush Love: Mushroom Beverage Tasting Event with House of Seven
 
@@ -242,12 +84,6 @@ Grab your lucky charms, sip on a cocktail, and get ready for a night of serious 
 Elevate your Saturday night plans with View Boston’s new Sunset Sound Series.  
 <a href="https://viewboston.com/berklee-sunset-sound-series/" target="_blank">info link</a>
 
-### The Addams Family at the Wang Theatre
-
-**03/21 08:00PM - 03/23 10:00PM @ Wang Theatre**  
-A comical feast that embraces the wackiness in every family, THE ADDAMS FAMILY is the magnificently macabre hit musical featuring everyone’s favorite creepy, kooky characters.  
-<a href="https://bit.ly/41qSfbj" target="_blank">info link</a>
-
 ### Moakley Park Clean Up
 
 **03/22 09:30AM - 03/22 11:30AM @ Moakley Park**  
@@ -290,12 +126,6 @@ Jamaica Pond parkrun is a free, weekly, timed 5k around Jamaica Pond for people 
 parkrun is a FREE 5k and takes place every Saturday morning at Danehy Park in Cambridge.  
 <a href="https://www.parkrun.us/danehypark/" target="_blank">info link</a>
 
-### fizzy fridays: all pop, all night
-
-**03/21 10:00PM - 03/22 02:00AM @ The Turing Tavern**  
-join DJ Frazzo every Friday night 10pm–close 🪩🌟 for a night of pure pop.  
-<a href="https://theturingtavern.com/cambridge-inman-square-the-turing-tavern-events" target="_blank">info link</a>
-
 ### Traditional Irish Music Sessions at The Druid
 
 **03/22 04:00PM - 03/22 11:00PM @ The Druid**  
@@ -319,12 +149,6 @@ Flow Together. Glow Together. (all levels)A dynamic vinyasa yoga experience that
 **03/22 11:30AM - 03/22 12:30PM @ Night Shift Brewing Everett Taproom**  
 Night Shift Brewing Run Club at Everett Taproom All levels are welcome for a 5K.  
 <a href="https://www.nightshiftbrewing.com" target="_blank">info link</a>
-
-### 77 things to do in Boston this weekend
-
-**03/21 07:00AM - 03/23 11:00PM @ Boston**  
-Happy Boston spring from us to you! Kick off the first weekend of spring with festivals, live music and other performances, fun markets, movies, and more.  
-<a href="https://www.thebostoncalendar.com/" target="_blank">info link</a>
 
 ### 6th Annual Bow Market Book Fair
 
@@ -368,12 +192,6 @@ Hidden Figures tells the incredible untold story of Katherine Johnson (Taraji P
 Join us at the Metropolitan Waterworks Museum on Saturday, March 22nd from 11am to 3pm to help us celebrate World Water Day with some special hands-on activities inspired by this year's theme: Glacier Preservation.  
 <a href="https://waterworksmuseum.org/events/world-water-day-at-the-waterworks/" target="_blank">info link</a>
 
-### Bar Moxy then GO PARTY at ICON! FREE!
-
-**03/21 09:00PM - 03/22 02:00AM @ Bar Moxy**  
-These events are designed so people that actually want to come out, drink, party, and make new friends in Boston can, while mitigating some cost along the way.  
-<a href="https://www.meetup.com/fuckitimsocial/events/306773529" target="_blank">info link</a>
-
 ### Moakley Park Clean Up
 
 **03/22 09:30AM - 03/22 11:30AM @ Moakley Park**  
@@ -416,12 +234,6 @@ Jamaica Pond parkrun is a free, weekly, timed 5k around Jamaica Pond for people 
 parkrun is a FREE 5k and takes place every Saturday morning at Danehy Park in Cambridge.  
 <a href="https://www.parkrun.us/danehypark/" target="_blank">info link</a>
 
-### fizzy fridays: all pop, all night
-
-**03/21 10:00PM - 03/22 02:00AM @ The Turing Tavern**  
-join DJ Frazzo every Friday night 10pm–close 🪩🌟 for a night of pure pop.  
-<a href="https://theturingtavern.com/cambridge-inman-square-the-turing-tavern-events" target="_blank">info link</a>
-
 ### Traditional Irish Music Sessions at The Druid
 
 **03/22 04:00PM - 03/22 11:00PM @ The Druid**  
@@ -436,17 +248,17 @@ Back by popular demand, Boston Seaport's children's programming series, Seaport 
 
 # Sunday, March 23, 2025
 
-### Spring Thrift Festival Market by Select
-
-**03/23 01:00PM - 03/23 06:00PM @ Reggie Lewis Center**  
-BOSTON, we are hosting one of the BIGGEST Vintage Markets in the Northeast!  
-<a href="https://instagram.com/select.markets" target="_blank">info link</a>
-
 ### Battle of the Bartenders
 
 **03/23 01:00PM - 03/23 05:00PM @ Time Out Market Boston**  
 Get ready for an unforgettable afternoon at Time Out Market Boston with our first-ever Battle of the Bartenders!  
 <a href="https://www.eventbrite.com/e/battle-of-the-bartenders-tickets-1253160890959" target="_blank">info link</a>
+
+### Spring Thrift Festival Market by Select
+
+**03/23 01:00PM - 03/23 06:00PM @ Reggie Lewis Center**  
+BOSTON, we are hosting one of the BIGGEST Vintage Markets in the Northeast!  
+<a href="https://instagram.com/select.markets" target="_blank">info link</a>
 
 ### Boston Public Market FiberFest 2025
 
@@ -490,12 +302,6 @@ Get ready for Swiftie Sundays on December 22nd!
 Come paint, sip, and unwind in the heart of Boston's art district—an experience not to be missed!  
 <a href="https://shopairi.com" target="_blank">info link</a>
 
-### The Addams Family at the Wang Theatre
-
-**03/21 08:00PM - 03/23 10:00PM @ Wang Theatre**  
-A comical feast that embraces the wackiness in every family, THE ADDAMS FAMILY is the magnificently macabre hit musical featuring everyone’s favorite creepy, kooky characters.  
-<a href="https://bit.ly/41qSfbj" target="_blank">info link</a>
-
 ### Coffee+Crafts
 
 **03/23 01:00PM - 03/23 04:00PM @ Boston Fiber Company**  
@@ -520,17 +326,11 @@ Noir Bar Sunday Night FREE Trivia – Starting January 12th, 2025!
 Join us for a fun evening of open mic poetry!  
 <a href="https://www.tridentbookscafe.com/event/poetry-open-mic-1" target="_blank">info link</a>
 
-### 77 things to do in Boston this weekend
+### Boston Public Market FiberFest 2025
 
-**03/21 07:00AM - 03/23 11:00PM @ Boston**  
-Happy Boston spring from us to you! Kick off the first weekend of spring with festivals, live music and other performances, fun markets, movies, and more.  
-<a href="https://www.thebostoncalendar.com/" target="_blank">info link</a>
-
-### Battle of the Bartenders
-
-**03/23 01:00PM - 03/23 05:00PM @ Time Out Market Boston**  
-Get ready for an unforgettable afternoon at Time Out Market Boston with our first-ever Battle of the Bartenders!  
-<a href="https://www.eventbrite.com/e/battle-of-the-bartenders-tickets-1253160890959" target="_blank">info link</a>
+**03/23 10:00AM - 03/23 05:00PM @ Boston Public Market**  
+This festival brings together New England fiber farmers, producers, and crafters.  
+<a href="https://www.eventbrite.com/e/boston-public-market-fiberfest-2025-tickets-1218371204069?aff=oddtdtcreator" target="_blank">info link</a>
 
 ### Spring Thrift Festival Market by Select
 
@@ -538,11 +338,11 @@ Get ready for an unforgettable afternoon at Time Out Market Boston with our fir
 BOSTON, we are hosting one of the BIGGEST Vintage Markets in the Northeast!  
 <a href="https://instagram.com/select.markets" target="_blank">info link</a>
 
-### Boston Public Market FiberFest 2025
+### Battle of the Bartenders
 
-**03/23 10:00AM - 03/23 05:00PM @ Boston Public Market**  
-This festival brings together New England fiber farmers, producers, and crafters.  
-<a href="https://www.eventbrite.com/e/boston-public-market-fiberfest-2025-tickets-1218371204069?aff=oddtdtcreator" target="_blank">info link</a>
+**03/23 01:00PM - 03/23 05:00PM @ Time Out Market Boston**  
+Get ready for an unforgettable afternoon at Time Out Market Boston with our first-ever Battle of the Bartenders!  
+<a href="https://www.eventbrite.com/e/battle-of-the-bartenders-tickets-1253160890959" target="_blank">info link</a>
 
 ### Movie Night at Lamplighter Brewing: Inside Out 2
 
@@ -605,4 +405,6 @@ Join us for a fun evening of open mic poetry!
 # Wednesday, March 26, 2025
 
 # Thursday, March 27, 2025
+
+# Friday, March 28, 2025
 
