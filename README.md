@@ -1,41 +1,3 @@
-# Wednesday, March 26, 2025
-
-### Survivor Weekly Watch Party
-
-**03/26 08:00PM - 03/26 10:00PM @ Lamplighter Brewing CX**  
-Join us every Wednesday at Lamplighter CX for a Survivor watch party you won’t want to miss!  
-<a href="https://www.eventbrite.com/e/survivor-weekly-watch-party-tickets-1246453799869?aff=oddtdtcreator" target="_blank">info link</a>
-
-### Roslindale Film Society presents "Love & Basketball" (2000)
-
-**03/26 06:30PM - 03/26 09:30PM @ The Square Root**  
-Film critic Roger Ebert once wrote: "Love & Basketball is about how you can either be in love or play basketball, but it’s tricky to do both at the same time.  
-<a href="https://www.eventbrite.com/e/roslindale-film-society-presents-love-basketball-2000-tickets-1251653131209" target="_blank">info link</a>
-
-### Soloveychicks - The Boston Festival of New Jewish Music
-
-**03/26 07:00PM - 03/26 09:00PM @ The Boston Synagogue**  
-The Boston Festival of New Jewish Music Presents: Soloveychicks!  
-<a href="https://events.humanitix.com/soloveychicks" target="_blank">info link</a>
-
-### Drag Bingo
-
-**03/26 08:00PM - 03/26 10:00PM @ Vera's**  
-On Wednesdays we play bingo! Join us at Vera's every Wednesday from 8-10pm for Drag Bingo!  
-<a href="https://www.instagram.com/veras_cardinal_lounge/" target="_blank">info link</a>
-
-### Jeopardy Bar League at Long Live Roxbury
-
-**03/26 07:00PM - 03/26 09:00PM @ Long Live Roxbury**  
-Teams play along and compete against each other using their smartphones through an interactive Jeopardy!  
-<a href="https://www.longlivebeerworks.com/boston-taproom" target="_blank">info link</a>
-
-### Winter Fitness Series Fit For Life
-
-**03/26 01:00PM - 03/26 02:00PM @ Veronica Smith Senior Center**  
-A low-impact, accessible group exercise class designed for individuals of all fitness levels, focusing on gentle cardio movements, light strength training, and exercises that promote overall health and wellbeing, often tailored towards older adults or those looking for a modified workout routine; it emphasizes building sustainable fitness habits for a healthy lifestyle.  
-<a href="https://www.eventbrite.com/e/winter-fitness-series-fit-for-life-tickets-1115823280469" target="_blank">info link</a>
-
 # Thursday, March 27, 2025
 
 ### Wicked Screening
@@ -50,17 +12,17 @@ Hold space this March for this much awaited screening.
 Join us for an evening of art, fun, food, and more!  
 <a href="https://bit.ly/4hjtxPX" target="_blank">info link</a>
 
-### ArtsThursdays: Ancient Game Night
-
-**03/27 05:00PM - 03/27 09:00PM @ Harvard Museum of the Ancient Near East**  
-Join us for a free night of friendly competition at the Harvard Museums of Science & Culture.  
-<a href="https://hmsc.harvard.edu/calendar_event/artsthursdays-ancient-game-night/" target="_blank">info link</a>
-
 ### Groove at the Park
 
 **03/27 07:00PM - 03/27 10:00PM @ Fenway Park**  
 Come celebrate the launch of Boston's newest social club, the 617 Club, at Fenway Park this Thursday, March 27!  
 <a href="https://www.mlb.com/redsox/fans/617-club/launch-event" target="_blank">info link</a>
+
+### ArtsThursdays: Ancient Game Night
+
+**03/27 05:00PM - 03/27 09:00PM @ Harvard Museum of the Ancient Near East**  
+Join us for a free night of friendly competition at the Harvard Museums of Science & Culture.  
+<a href="https://hmsc.harvard.edu/calendar_event/artsthursdays-ancient-game-night/" target="_blank">info link</a>
 
 ### Twilight at MAAM: Object Odyssey
 
@@ -92,17 +54,17 @@ Fashionably LATE brings Boston’s fashion scene to life.
 Join us for free in-person yoga classes in February, March and April at the Harvard Ed Portal!  
 <a href="https://www.eventbrite.com/e/spring-yoga-the-harvard-ed-portal-march-6-session-registration-1146314600829" target="_blank">info link</a>
 
-### A Night of Line Dancing with Gays for Patsy Dance Club
-
-**03/27 06:00PM - 03/27 08:00PM @ Charlestown Branch of the Boston Public Library**  
-Join us for a night of line dancing hosted by the Gays for Patsy Dance Club!  
-<a href="https://bpl.bibliocommons.com/events/67aa0bca59163a2f003e5a29" target="_blank">info link</a>
-
 ### FREE Thursday Tunes at CanalSide Food + Drink at CambridgeSide
 
 **03/27 05:00PM - 03/27 07:00PM @ CambridgeSide**  
 Gather your friends and coworkers for an evening of FREE music at Thursday Tunes, presented by CanalSide Food + Drink at CambridgeSide.  
 <a href="https://www.cambridgeside.com" target="_blank">info link</a>
+
+### A Night of Line Dancing with Gays for Patsy Dance Club
+
+**03/27 06:00PM - 03/27 08:00PM @ Charlestown Branch of the Boston Public Library**  
+Join us for a night of line dancing hosted by the Gays for Patsy Dance Club!  
+<a href="https://bpl.bibliocommons.com/events/67aa0bca59163a2f003e5a29" target="_blank">info link</a>
 
 ### Revolutionary Harbor Lectures: Seaweeds of Boston Harbor and Beyond
 
@@ -255,17 +217,17 @@ HERE FOR A GOOD TIME AND A LONG TIME ‼️
 join DJ Frazzo every Friday night 10pm–close 🪩🌟 for a night of pure pop.  
 <a href="https://theturingtavern.com/cambridge-inman-square-the-turing-tavern-events" target="_blank">info link</a>
 
-### Seaport Smalls
-
-**03/29 10:00AM - 03/29 11:00AM @ The Paseo at 111 Harbor Way**  
-Back by popular demand, Boston Seaport's children's programming series, Seaport Smalls: Free Fun for your Tiny Crew.  
-<a href="https://www.eventbrite.com/e/seaport-smalls-tickets-1114020959679" target="_blank">info link</a>
-
 ### Traditional Irish Music Sessions at The Druid
 
 **03/29 04:00PM - 03/29 11:00PM @ The Druid**  
 Traditional Irish Sessions are a long-standing tradition and well-known event at the Druid.  
 <a href="https://www.druidpub.com/music" target="_blank">info link</a>
+
+### Seaport Smalls
+
+**03/29 10:00AM - 03/29 11:00AM @ The Paseo at 111 Harbor Way**  
+Back by popular demand, Boston Seaport's children's programming series, Seaport Smalls: Free Fun for your Tiny Crew.  
+<a href="https://www.eventbrite.com/e/seaport-smalls-tickets-1114020959679" target="_blank">info link</a>
 
 # Sunday, March 30, 2025
 
@@ -299,17 +261,17 @@ Join us every Sunday from 1pm-4pm for Coffee+Crafts!
 Roslindale Village Main Street is thrilled to announce the return of its Winter Farmers Market for another season!  
 <a href="https://Roslindale.net" target="_blank">info link</a>
 
-### FREE Sunday Night Trivia at Noir Bar!
-
-**03/30 07:30PM - 03/30 09:30PM @ Noir Bar**  
-Noir Bar Sunday Night FREE Trivia – Starting January 12th, 2025!  
-<a href="https://www.noir-bar.com/" target="_blank">info link</a>
-
 ### Queer and Trans Hiking Fellows
 
 **03/30 10:00AM - 03/30 12:00PM @ TBD - Please check your confirmation email for the address.**  
 Appropriate for: Members of the LGBTQIA+ communityDifficulty: Moderate (rocky trails with some elevation)About the hike: Join us for this FREE hike and meet new friends in the LGBTQIA+ community!  
 <a href="https://www.eventbrite.com/e/queer-and-trans-hiking-fell-ows-tickets-1243588559859" target="_blank">info link</a>
+
+### FREE Sunday Night Trivia at Noir Bar!
+
+**03/30 07:30PM - 03/30 09:30PM @ Noir Bar**  
+Noir Bar Sunday Night FREE Trivia – Starting January 12th, 2025!  
+<a href="https://www.noir-bar.com/" target="_blank">info link</a>
 
 ### Poetry Open Mic at Trident
 
@@ -320,4 +282,6 @@ Join us for a fun evening of open mic poetry!
 # Monday, March 31, 2025
 
 # Tuesday, April 01, 2025
+
+# Wednesday, April 02, 2025
 
