@@ -1,108 +1,3 @@
-# Thursday, March 27, 2025
-
-### Wicked Screening
-
-**03/27 06:30PM - 03/27 09:30PM @ Trident Booksellers & Café**  
-Hold space this March for this much awaited screening.  
-<a href="https://tridentbookscafe.com/event/2025-03-27/wicked-screening" target="_blank">info link</a>
-
-### Harvard Art Museums at Night
-
-**03/27 05:00PM - 03/27 09:00PM @ Harvard Art Museums**  
-Join us for an evening of art, fun, food, and more!  
-<a href="https://bit.ly/4hjtxPX" target="_blank">info link</a>
-
-### Groove at the Park
-
-**03/27 07:00PM - 03/27 10:00PM @ Fenway Park**  
-Come celebrate the launch of Boston's newest social club, the 617 Club, at Fenway Park this Thursday, March 27!  
-<a href="https://www.mlb.com/redsox/fans/617-club/launch-event" target="_blank">info link</a>
-
-### ArtsThursdays: Ancient Game Night
-
-**03/27 05:00PM - 03/27 09:00PM @ Harvard Museum of the Ancient Near East**  
-Join us for a free night of friendly competition at the Harvard Museums of Science & Culture.  
-<a href="https://hmsc.harvard.edu/calendar_event/artsthursdays-ancient-game-night/" target="_blank">info link</a>
-
-### Twilight at MAAM: Object Odyssey
-
-**03/27 06:30PM - 03/27 09:00PM @ MassArt Art Museum**  
-Join us for a special edition of Twilight at MAAM curated by our MassArt Museums Attendants–MassArt students take over the museum for an evening of art and community featuring hands-on fun, a signature mocktail, and more!  
-<a href="https://www.eventbrite.com/e/twilight-at-maam-object-odyssey-tickets-1267654622099?aff=oddtdtcreator" target="_blank">info link</a>
-
-### Trillium Brewing Spirits Retail Launch Party at The Urban Grape Boston!
-
-**03/27 05:00PM - 03/27 08:00PM @ The Urban Grape**  
-Welcome to the Trillium Brewing Spirits Retail Launch Party at The Urban Grape Boston!  
-<a href="https://www.eventbrite.com/e/trillium-brewing-spirits-retail-launch-party-at-the-urban-grape-boston-tickets-1256879874539" target="_blank">info link</a>
-
-### The Lost Paintings Launch Event
-
-**03/27 06:00PM - 03/27 09:00PM @ Overlook Gallery**  
-Join us for an event introducing The Lost Paintings, a Prelude to Return, an exhibition curated by Joëlle Tomb, Rula Khoury, and Haidi Motola presented at the Overlook Gallery in Fall 2025.  
-<a href="https://www.eventbrite.com/e/the-lost-paintings-coming-in-fall-2025-registration-1265311543889?aff=oddtdtcreator" target="_blank">info link</a>
-
-### Fashionably LATE Thursdays
-
-**03/27 09:00PM - 03/27 11:00PM @ Liberty Hotel**  
-Fashionably LATE brings Boston’s fashion scene to life.  
-<a href="https://libertyhotel.com/fashionably-late-thursdays/" target="_blank">info link</a>
-
-### Spring Yoga @ the Harvard Ed Portal
-
-**03/27 06:00PM - 03/27 07:00PM @ Harvard Ed Portal**  
-Join us for free in-person yoga classes in February, March and April at the Harvard Ed Portal!  
-<a href="https://www.eventbrite.com/e/spring-yoga-the-harvard-ed-portal-march-6-session-registration-1146314600829" target="_blank">info link</a>
-
-### FREE Thursday Tunes at CanalSide Food + Drink at CambridgeSide
-
-**03/27 05:00PM - 03/27 07:00PM @ CambridgeSide**  
-Gather your friends and coworkers for an evening of FREE music at Thursday Tunes, presented by CanalSide Food + Drink at CambridgeSide.  
-<a href="https://www.cambridgeside.com" target="_blank">info link</a>
-
-### A Night of Line Dancing with Gays for Patsy Dance Club
-
-**03/27 06:00PM - 03/27 08:00PM @ Charlestown Branch of the Boston Public Library**  
-Join us for a night of line dancing hosted by the Gays for Patsy Dance Club!  
-<a href="https://bpl.bibliocommons.com/events/67aa0bca59163a2f003e5a29" target="_blank">info link</a>
-
-### Revolutionary Harbor Lectures: Seaweeds of Boston Harbor and Beyond
-
-**03/27 06:00PM - 03/27 07:30PM @ Fort Point Room at Atlantic Wharf**  
-Located within the cold waters of the Gulf of Maine, Boston Harbor hosts a rich diversity of seaweeds, including dense kelp forests and fields of calcified red algae.  
-<a href="https://www.eventbrite.com/e/revolutionary-harbor-lectures-seaweeds-of-boston-harbor-and-beyond-tickets-1242801034349" target="_blank">info link</a>
-
-### Live Music Thursdays at The Berkeley
-
-**03/27 06:00PM - 03/27 09:00PM @ The Berkeley Bistro + Bar at Hotel AKA Back Bay**  
-Enjoy a rotating lineup of musicians playing a variety of styles, creating the perfect backdrop for your after-work gathering, night out with friends, or date night.  
-<a href="https://www.theberkeleyboston.com/" target="_blank">info link</a>
-
-### KARAOKE THURSDAY-SATURDAY @SIDEBAR BOSTON
-
-**03/27 08:00PM - 03/29 01:55AM @ SIDEBAR BOSTON**  
-⚠️‼️JOIN US FOR KARAOKE @SIDEBAR BOSTON THURSDAY- SATURDAY 8PM-2AM EVERY WEEK ‼️⚠️ 
-HERE FOR A GOOD TIME AND A LONG TIME ‼️  
-<a href="https://" target="_blank">info link</a>
-
-### Venture Café Cambridge: Thursday Gathering
-
-**03/27 04:30PM - 03/27 07:30PM @ CIC Cambridge**  
-Each week we connect creators, entrepreneurs, investors, academics, corporates, students and visionaries to build strong, inclusive, equitable innovation ecosystems in cities throughout the world.  
-<a href="https://venturecafecambridge.org/programs/thursday-gathering/" target="_blank">info link</a>
-
-### Free Thursdays at the ICA
-
-**03/27 05:00PM - 03/27 09:00PM @ Institute of Contemporary Art**  
-Admission is FREE for all every Thursday from 5 to 9 PM during ICA Free Thursday Nights.  
-<a href="http://www.icaboston.org/visit" target="_blank">info link</a>
-
-### Winter Fitness Series Line Dancing
-
-**03/27 06:30PM - 03/27 07:30PM @ Hyde Park Community Center**  
-Line dancing is a fun activity that has all the necessary elements to improve cardiovascular health.  
-<a href="https://www.eventbrite.com/e/winter-fitness-series-line-dancing-tickets-1115824895299" target="_blank">info link</a>
-
 # Friday, March 28, 2025
 
 ### 20's & 30's Spring Party at Wild Rover! FREE Entry!
@@ -140,13 +35,6 @@ The Orange Line acts as a metaphorical thread which traces its way through the c
 **03/28 07:30PM - 03/28 10:00PM @ Lamplighter Broadway**  
 Do you need a dose of fabulosity in your life?  
 <a href="https://lamplighterbrewing.com/products/rupauls-drag-race-screening" target="_blank">info link</a>
-
-### KARAOKE THURSDAY-SATURDAY @SIDEBAR BOSTON
-
-**03/27 08:00PM - 03/29 01:55AM @ SIDEBAR BOSTON**  
-⚠️‼️JOIN US FOR KARAOKE @SIDEBAR BOSTON THURSDAY- SATURDAY 8PM-2AM EVERY WEEK ‼️⚠️ 
-HERE FOR A GOOD TIME AND A LONG TIME ‼️  
-<a href="https://" target="_blank">info link</a>
 
 ### Friday Night Trivia
 
@@ -192,24 +80,17 @@ Come shop, sip & enjoy at our 2nd Annual BIZZY Spring Market!
 Catch some tunes, vibes, and drinks with us!  
 <a href="https://www.remnantsomerville.com/calendar" target="_blank">info link</a>
 
-### Jamaica Pond parkrun
-
-**03/29 09:00AM - 03/29 11:00AM @ Jamaica Pond**  
-Jamaica Pond parkrun is a free, weekly, timed 5k around Jamaica Pond for people of all ages.  
-<a href="https://www.parkrun.us/jamaicapond/" target="_blank">info link</a>
-
 ### FREE 5k: Danehy Park parkrun
 
 **03/29 09:00AM - 03/29 11:00AM @ Danehy Park**  
 parkrun is a FREE 5k and takes place every Saturday morning at Danehy Park in Cambridge.  
 <a href="https://www.parkrun.us/danehypark/" target="_blank">info link</a>
 
-### KARAOKE THURSDAY-SATURDAY @SIDEBAR BOSTON
+### Jamaica Pond parkrun
 
-**03/27 08:00PM - 03/29 01:55AM @ SIDEBAR BOSTON**  
-⚠️‼️JOIN US FOR KARAOKE @SIDEBAR BOSTON THURSDAY- SATURDAY 8PM-2AM EVERY WEEK ‼️⚠️ 
-HERE FOR A GOOD TIME AND A LONG TIME ‼️  
-<a href="https://" target="_blank">info link</a>
+**03/29 09:00AM - 03/29 11:00AM @ Jamaica Pond**  
+Jamaica Pond parkrun is a free, weekly, timed 5k around Jamaica Pond for people of all ages.  
+<a href="https://www.parkrun.us/jamaicapond/" target="_blank">info link</a>
 
 ### fizzy fridays: all pop, all night
 
@@ -261,17 +142,17 @@ Join us every Sunday from 1pm-4pm for Coffee+Crafts!
 Roslindale Village Main Street is thrilled to announce the return of its Winter Farmers Market for another season!  
 <a href="https://Roslindale.net" target="_blank">info link</a>
 
-### Queer and Trans Hiking Fellows
-
-**03/30 10:00AM - 03/30 12:00PM @ TBD - Please check your confirmation email for the address.**  
-Appropriate for: Members of the LGBTQIA+ communityDifficulty: Moderate (rocky trails with some elevation)About the hike: Join us for this FREE hike and meet new friends in the LGBTQIA+ community!  
-<a href="https://www.eventbrite.com/e/queer-and-trans-hiking-fell-ows-tickets-1243588559859" target="_blank">info link</a>
-
 ### FREE Sunday Night Trivia at Noir Bar!
 
 **03/30 07:30PM - 03/30 09:30PM @ Noir Bar**  
 Noir Bar Sunday Night FREE Trivia – Starting January 12th, 2025!  
 <a href="https://www.noir-bar.com/" target="_blank">info link</a>
+
+### Queer and Trans Hiking Fellows
+
+**03/30 10:00AM - 03/30 12:00PM @ TBD - Please check your confirmation email for the address.**  
+Appropriate for: Members of the LGBTQIA+ communityDifficulty: Moderate (rocky trails with some elevation)About the hike: Join us for this FREE hike and meet new friends in the LGBTQIA+ community!  
+<a href="https://www.eventbrite.com/e/queer-and-trans-hiking-fell-ows-tickets-1243588559859" target="_blank">info link</a>
 
 ### Poetry Open Mic at Trident
 
@@ -284,4 +165,6 @@ Join us for a fun evening of open mic poetry!
 # Tuesday, April 01, 2025
 
 # Wednesday, April 02, 2025
+
+# Thursday, April 03, 2025
 
