@@ -1,246 +1,4 @@
-# Saturday, April 12, 2025
-
-### Vinyl Index presents Record Store Day 2025 @ Bow Market
-
-**04/12 09:00AM - 04/13 01:00AM @ Bow Market**  
-Vinyl Index & Bow Market present Record Store Day 2025…﻿The annual celebration of indie record stores is back on Saturday, April 12th for a fun-packed day of exclusive records*, event tees and totes, DJs spinning inside and out, music-inspired food & drinks, and more!  
-<a href="https://www.eventbrite.com/e/vinyl-index-presents-record-store-day-2025-bow-market-tickets-1272750363599" target="_blank">info link</a>
-
-### 10 places to see spring flowers around Boston in 2025
-
-**04/12 08:00AM - 05/31 08:00PM @ Boston**  
-Boston may not have the best year-round weather, but the city does boast four perfectly defined seasons.  
-<a href="https://joyraft.com/event/10-places-to-see-spring-flowers-around-boston-in-2023-boston-374810" target="_blank">info link</a>
-
-### Silent Disco: Park-9 2-year anniversary party
-
-**04/12 07:00PM - 04/12 10:00PM @ Park-9 Dog Bar**  
-Park-9 is turning two and we want to celebrate with you!  
-<a href="https://www.park9dogbar.com/events/silent-disco-park-9-2-year-bash" target="_blank">info link</a>
-
-### ABBA - The Dance Party
-
-**04/12 08:00PM - 04/12 11:59PM @ Remnant Brewing**  
-Come dance with us on April 12th for our once-a-year ABBA dance party!  
-<a href="https://www.remnantsomerville.com/live/abba-a-dance-party" target="_blank">info link</a>
-
-### Portico Two Year Anniversary Party
-
-**04/12 12:00PM - 04/12 10:00PM @ Portico Brewing**  
-Portico’s Brewery & Taproom is Turning Two!  
-<a href="https://porticobrewing.com/upcoming-events/two-year-anniversary-party" target="_blank">info link</a>
-
-### Be Here! Be YOU!
-
-**04/12 06:30PM - 04/12 08:30PM @ The Skating Club of Boston**  
-Be Here! Be YOU! Skating Party to celebrate and support the LGBTQ+ community!  
-<a href="https://www.eventbrite.com/e/be-here-be-you-tickets-1267637480829?aff=oddtdtcreator" target="_blank">info link</a>
-
-### Spring is Queer Market
-
-**04/12 12:00PM - 04/12 05:00PM @ Time Out Market Boston**  
-Get into the spirit at Time Out Market Boston on Saturday, April 12th where a market extravaganza awaits!  
-<a href="https://www.eventbrite.com/e/spring-is-queer-market-tickets-1280831043129" target="_blank">info link</a>
-
-### Bunny Bar Hop Around Charlestown
-
-**04/12 02:00PM - 04/12 06:00PM @ Warren Tavern**  
-Hop into spring with the Charlestown Women's Club for a bunny-eared bar crawl through Charlestown’s best spots!  
-<a href="https://www.eventbrite.com/e/charlestown-womens-club-bunny-bar-hop-tickets-1317931862679?aff=oddtdtcreator" target="_blank">info link</a>
-
-### Aloha, B*tches! Drag Brunch & Bingo at the White Lotus
-
-**04/12 01:00PM - 04/12 02:30PM @ Time Out Market Boston**  
-🌺 Aloha, B*tches! 🌺Get ready to sip, slay, and sashay the day away at Drag & Bingo at Lotus on April 12th!  
-<a href="https://www.eventbrite.com/e/aloha-btches-drag-brunch-bingo-at-the-white-lotus-tickets-1279428498079" target="_blank">info link</a>
-
-### Your Bestie's Closet
-
-**04/12 06:00PM - 04/12 10:00PM @ Pellas Gallery**  
-Your Bestie’s Closet is a curated consignment pop-up featuring pieces from local closets.  
-<a href="https://" target="_blank">info link</a>
-
-### Immersive Yoga @ The WNDR Museum
-
-**04/12 09:00AM - 04/12 10:00AM @ WNDR Museum**  
-Get ready for another unforgettable session with Pete Sacco, aka @bulldogflowboston, at WNDR Boston!  
-<a href="https://wndrmuseum.com/event/immersive-yoga-with-pete-sacco/" target="_blank">info link</a>
-
-### The Makanda Project Free Concert in Nubian Square
-
-**04/12 07:00PM - 04/12 09:30PM @ Twelfth Baptist Church**  
-The Makanda Project's spring Nubian Square concert series continues with a performance at the historic Twelfth Baptist Church, as the group continues its explorations of the distinct music of Bostonian Makanda Ken McIntyre (1931-2001).  
-<a href="https://makandaproject.com" target="_blank">info link</a>
-
-### Earth Month Gallery Stroll and Reception
-
-**04/12 04:30PM - 04/12 08:00PM @ FPAC Art Space**  
-"EARTH MONTH: Environmental Awareness," curated by Liliana Folta is coming to FPAC.  
-<a href="https://www.eventbrite.com/e/earth-month-gallery-stroll-and-reception-tickets-1275409818099?utm-campaign=social&utm-content=attendeeshare&utm-medium=discovery&utm-term=listing&utm-source=cp&aff=ebdsshcopyurl" target="_blank">info link</a>
-
-### Social at Scorpion Bar then GO PARTY at the GRAND! FREE!
-
-**04/12 08:00PM - 04/13 02:00AM @ Scorpion Bar**  
-https://www.meetup.com/fuckitimsocial/events/307072957We aren't staying home on a Saturday night!  
-<a href="https://www.meetup.com/fuckitimsocial/events/307072957" target="_blank">info link</a>
-
-### Archery Night Cambridge
-
-**04/12 06:30PM - 04/12 08:00PM @ King School Gym**  
-Let's shoot arrows together on Saturday Night!  
-<a href="https://onthemarkarchery.com/cambridge/" target="_blank">info link</a>
-
-### Make with MAAM: Material Memory
-
-**04/12 12:00PM - 04/13 05:00PM @ MassArt Art Museum**  
-Drop in to the Barkan Family Big Ideas Studio every weekend for hands-on fun.  
-<a href="https://www.eventbrite.com/e/make-with-maam-material-memory-tickets-1267716818129" target="_blank">info link</a>
-
-### Unlimited Brunch buffet
-
-**04/12 10:00AM - 04/13 03:30PM @ Batifol Cambridge**  
-Bonjour, brunch lovers! Join us every Saturday & Sunday, for a French-inspired feast that’s anything but ordinary.  
-<a href="https://www.batifolcambridge.com/brunch-buffet" target="_blank">info link</a>
-
-### Somerville Winter Farmers Market
-
-**04/12 09:30AM - 04/12 01:30PM @ The Center for Arts at the Armory**  
-15th SeasonSeason 2024-2025November 2nd, 2024 -April 12th, 2025, except 11/30, 12/28  Saturdays, 9:30 am - 1:30 pmThe Center for the Arts at the Armory is proud to offer a weekly winter market with 71+ local food vendors with the best locally grown and regionally produced foods, including fresh produce, cheese, eggs, meats, fish, breads, tamales, pastries, chocolate, skincare products, and more.  
-<a href="https://www.somwintermarket.org/" target="_blank">info link</a>
-
-### FREE 5k: Danehy Park parkrun
-
-**04/12 09:00AM - 04/12 11:00AM @ Danehy Park**  
-parkrun is a FREE 5k and takes place every Saturday morning at Danehy Park in Cambridge.  
-<a href="https://www.parkrun.us/danehypark/" target="_blank">info link</a>
-
-### Jamaica Pond parkrun
-
-**04/12 09:00AM - 04/12 11:00AM @ Jamaica Pond**  
-Jamaica Pond parkrun is a free, weekly, timed 5k around Jamaica Pond for people of all ages.  
-<a href="https://www.parkrun.us/jamaicapond/" target="_blank">info link</a>
-
-### Traditional Irish Music Sessions at The Druid
-
-**04/12 04:00PM - 04/12 11:00PM @ The Druid**  
-Traditional Irish Sessions are a long-standing tradition and well-known event at the Druid.  
-<a href="https://www.druidpub.com/music" target="_blank">info link</a>
-
-### Seaport Smalls
-
-**04/12 10:00AM - 04/12 11:00AM @ The Paseo at 111 Harbor Way**  
-Back by popular demand, Boston Seaport's children's programming series, Seaport Smalls: Free Fun for your Tiny Crew.  
-<a href="https://www.eventbrite.com/e/seaport-smalls-tickets-1114020959679" target="_blank">info link</a>
-
-### Rooftop Yoga @ Moxy
-
-**04/12 09:00AM - 04/12 10:00AM @ The Moxy Boston Downtown**  
-Flow Together. Glow Together. (all levels)A dynamic vinyasa yoga experience that blends energizing movement, breath, and community.  
-<a href="https://app.acuityscheduling.com/schedule/02e194a7/?appointmentTypeIds[]=74049896" target="_blank">info link</a>
-
-### $10 Commuter Rail Weekends and Holidays
-
-**04/12 05:00AM - 04/13 11:59PM @ Boston**  
-Enjoy unlimited travel on the Commuter Rail for just $10 every weekend.  
-<a href="https://www.mbta.com/fares/commuter-rail-weekends" target="_blank">info link</a>
-
-### Vinyl Index presents Record Store Day 2025 @ Bow Market
-
-**04/12 09:00AM - 04/13 01:00AM @ Bow Market**  
-Vinyl Index & Bow Market present Record Store Day 2025…﻿The annual celebration of indie record stores is back on Saturday, April 12th for a fun-packed day of exclusive records*, event tees and totes, DJs spinning inside and out, music-inspired food & drinks, and more!  
-<a href="https://www.eventbrite.com/e/vinyl-index-presents-record-store-day-2025-bow-market-tickets-1272750363599" target="_blank">info link</a>
-
-### Portico Two Year Anniversary Party
-
-**04/12 12:00PM - 04/12 10:00PM @ Portico Brewing**  
-Portico’s Brewery & Taproom is Turning Two!  
-<a href="https://porticobrewing.com/upcoming-events/two-year-anniversary-party" target="_blank">info link</a>
-
-### Aloha, B*tches! Drag Brunch & Bingo at the White Lotus
-
-**04/12 01:00PM - 04/12 02:30PM @ Time Out Market Boston**  
-🌺 Aloha, B*tches! 🌺Get ready to sip, slay, and sashay the day away at Drag & Bingo at Lotus on April 12th!  
-<a href="https://www.eventbrite.com/e/aloha-btches-drag-brunch-bingo-at-the-white-lotus-tickets-1279428498079" target="_blank">info link</a>
-
-### Spring is Queer Market
-
-**04/12 12:00PM - 04/12 05:00PM @ Time Out Market Boston**  
-Get into the spirit at Time Out Market Boston on Saturday, April 12th where a market extravaganza awaits!  
-<a href="https://www.eventbrite.com/e/spring-is-queer-market-tickets-1280831043129" target="_blank">info link</a>
-
-### Earth Month Gallery Stroll and Reception
-
-**04/12 04:30PM - 04/12 08:00PM @ FPAC Art Space**  
-"EARTH MONTH: Environmental Awareness," curated by Liliana Folta is coming to FPAC.  
-<a href="https://www.eventbrite.com/e/earth-month-gallery-stroll-and-reception-tickets-1275409818099?utm-campaign=social&utm-content=attendeeshare&utm-medium=discovery&utm-term=listing&utm-source=cp&aff=ebdsshcopyurl" target="_blank">info link</a>
-
-### The Makanda Project Free Concert in Nubian Square
-
-**04/12 07:00PM - 04/12 09:30PM @ Twelfth Baptist Church**  
-The Makanda Project's spring Nubian Square concert series continues with a performance at the historic Twelfth Baptist Church, as the group continues its explorations of the distinct music of Bostonian Makanda Ken McIntyre (1931-2001).  
-<a href="https://makandaproject.com" target="_blank">info link</a>
-
-### Social at Scorpion Bar then GO PARTY at the GRAND! FREE!
-
-**04/12 08:00PM - 04/13 02:00AM @ Scorpion Bar**  
-https://www.meetup.com/fuckitimsocial/events/307072957We aren't staying home on a Saturday night!  
-<a href="https://www.meetup.com/fuckitimsocial/events/307072957" target="_blank">info link</a>
-
-### Play Playe: Game Night for Adults
-
-**04/12 07:00PM - 04/12 10:00PM @ Roundhead Brewing**  
-Get ready for summer and BAMS Fest 2025 with the return of Play Playe: Game Night for Adults!  
-<a href="https://www.departurearts.org/events/playplayeapril" target="_blank">info link</a>
-
-### Somerville Winter Farmers Market
-
-**04/12 09:30AM - 04/12 01:30PM @ The Center for Arts at the Armory**  
-15th SeasonSeason 2024-2025November 2nd, 2024 -April 12th, 2025, except 11/30, 12/28  Saturdays, 9:30 am - 1:30 pmThe Center for the Arts at the Armory is proud to offer a weekly winter market with 71+ local food vendors with the best locally grown and regionally produced foods, including fresh produce, cheese, eggs, meats, fish, breads, tamales, pastries, chocolate, skincare products, and more.  
-<a href="https://www.somwintermarket.org/" target="_blank">info link</a>
-
-### Free Live Music Matinee at Remnant Satellite in Cambridge
-
-**04/12 03:00PM - 04/12 05:00PM @ Remnant Satellite**  
-Catch some tunes, vibes, and drinks with us!  
-<a href="https://www.remnantsomerville.com/calendar" target="_blank">info link</a>
-
-### Jamaica Pond parkrun
-
-**04/12 09:00AM - 04/12 11:00AM @ Jamaica Pond**  
-Jamaica Pond parkrun is a free, weekly, timed 5k around Jamaica Pond for people of all ages.  
-<a href="https://www.parkrun.us/jamaicapond/" target="_blank">info link</a>
-
-### FREE 5k: Danehy Park parkrun
-
-**04/12 09:00AM - 04/12 11:00AM @ Danehy Park**  
-parkrun is a FREE 5k and takes place every Saturday morning at Danehy Park in Cambridge.  
-<a href="https://www.parkrun.us/danehypark/" target="_blank">info link</a>
-
-### Traditional Irish Music Sessions at The Druid
-
-**04/12 04:00PM - 04/12 11:00PM @ The Druid**  
-Traditional Irish Sessions are a long-standing tradition and well-known event at the Druid.  
-<a href="https://www.druidpub.com/music" target="_blank">info link</a>
-
-### Seaport Smalls
-
-**04/12 10:00AM - 04/12 11:00AM @ The Paseo at 111 Harbor Way**  
-Back by popular demand, Boston Seaport's children's programming series, Seaport Smalls: Free Fun for your Tiny Crew.  
-<a href="https://www.eventbrite.com/e/seaport-smalls-tickets-1114020959679" target="_blank">info link</a>
-
 # Sunday, April 13, 2025
-
-### Vinyl Index presents Record Store Day 2025 @ Bow Market
-
-**04/12 09:00AM - 04/13 01:00AM @ Bow Market**  
-Vinyl Index & Bow Market present Record Store Day 2025…﻿The annual celebration of indie record stores is back on Saturday, April 12th for a fun-packed day of exclusive records*, event tees and totes, DJs spinning inside and out, music-inspired food & drinks, and more!  
-<a href="https://www.eventbrite.com/e/vinyl-index-presents-record-store-day-2025-bow-market-tickets-1272750363599" target="_blank">info link</a>
-
-### 10 places to see spring flowers around Boston in 2025
-
-**04/12 08:00AM - 05/31 08:00PM @ Boston**  
-Boston may not have the best year-round weather, but the city does boast four perfectly defined seasons.  
-<a href="https://joyraft.com/event/10-places-to-see-spring-flowers-around-boston-in-2023-boston-374810" target="_blank">info link</a>
 
 ### The Elks Lodge Bazaar: 2025 Season Opening Day
 
@@ -266,12 +24,6 @@ Come join us for a fun-filled day at Long Live Roxbury!
 Join All She Wrote Books on Sunday, April 13th at 10:30am at All She Wrote Books for a discussion of A Gentleman's Gentleman by TJ Alexander, a groundbreaking trans Regency romance that's both delightfully witty and refreshingly iconoclastic.  
 <a href="https://www.allshewrotebooks.com/events-1/april-queer-romance-book-club" target="_blank">info link</a>
 
-### Social at Scorpion Bar then GO PARTY at the GRAND! FREE!
-
-**04/12 08:00PM - 04/13 02:00AM @ Scorpion Bar**  
-https://www.meetup.com/fuckitimsocial/events/307072957We aren't staying home on a Saturday night!  
-<a href="https://www.meetup.com/fuckitimsocial/events/307072957" target="_blank">info link</a>
-
 ### Snail Mail Sunday: A Letter Writing Event!
 
 **04/13 11:00AM - 04/13 01:30PM @ Albertine Press**  
@@ -290,23 +42,11 @@ New Films from GermanyIn cooperation with the Boston Turkish Film and Music Fest
 Join us for the latest installment in our Books and Brews bookfair series!  
 <a href="https://www.eventbrite.com/e/books-and-brews-bookfair-at-medford-brewing-company-tickets-1287378426529" target="_blank">info link</a>
 
-### Make with MAAM: Material Memory
-
-**04/12 12:00PM - 04/13 05:00PM @ MassArt Art Museum**  
-Drop in to the Barkan Family Big Ideas Studio every weekend for hands-on fun.  
-<a href="https://www.eventbrite.com/e/make-with-maam-material-memory-tickets-1267716818129" target="_blank">info link</a>
-
 ### Porter Square Books: Book Swap
 
 **04/13 02:00PM - 04/13 03:00PM @ Porter Square Books: Boston Edition**  
 Do you have a bunch of books hanging out that you know you're not going to read again?  
 <a href="https://www.portersquarebooks.com/event/book-swap-winter-event-series" target="_blank">info link</a>
-
-### Unlimited Brunch buffet
-
-**04/12 10:00AM - 04/13 03:30PM @ Batifol Cambridge**  
-Bonjour, brunch lovers! Join us every Saturday & Sunday, for a French-inspired feast that’s anything but ordinary.  
-<a href="https://www.batifolcambridge.com/brunch-buffet" target="_blank">info link</a>
 
 ### FREE Sunday Night Trivia at Noir Bar!
 
@@ -320,35 +60,17 @@ Noir Bar Sunday Night FREE Trivia – Starting January 12th, 2025!
 Join us for a fun evening of open mic poetry!  
 <a href="https://www.tridentbookscafe.com/event/poetry-open-mic-1" target="_blank">info link</a>
 
-### $10 Commuter Rail Weekends and Holidays
-
-**04/12 05:00AM - 04/13 11:59PM @ Boston**  
-Enjoy unlimited travel on the Commuter Rail for just $10 every weekend.  
-<a href="https://www.mbta.com/fares/commuter-rail-weekends" target="_blank">info link</a>
-
 ### Sunday Scaries
 
 **04/13 06:00PM - 04/13 09:00PM @ Sam Adams Boston Brewery**  
 Escape the dread of the impending week at the brewery with our weekly watch parties!  
 <a href="https://www.eventbrite.com/e/sunday-scaries-tickets-1126282965669?aff=oddtdtcreator" target="_blank">info link</a>
 
-### Vinyl Index presents Record Store Day 2025 @ Bow Market
-
-**04/12 09:00AM - 04/13 01:00AM @ Bow Market**  
-Vinyl Index & Bow Market present Record Store Day 2025…﻿The annual celebration of indie record stores is back on Saturday, April 12th for a fun-packed day of exclusive records*, event tees and totes, DJs spinning inside and out, music-inspired food & drinks, and more!  
-<a href="https://www.eventbrite.com/e/vinyl-index-presents-record-store-day-2025-bow-market-tickets-1272750363599" target="_blank">info link</a>
-
 ### The Elks Lodge Bazaar: 2025 Season Opening Day
 
 **04/13 11:00AM - 04/13 06:00PM @ Brighton Elks Lodge**  
 Our classic Elks Lodge Bazaar is back for 2025!  
 <a href="https://www.facebook.com/share/15aibCrazr/" target="_blank">info link</a>
-
-### Social at Scorpion Bar then GO PARTY at the GRAND! FREE!
-
-**04/12 08:00PM - 04/13 02:00AM @ Scorpion Bar**  
-https://www.meetup.com/fuckitimsocial/events/307072957We aren't staying home on a Saturday night!  
-<a href="https://www.meetup.com/fuckitimsocial/events/307072957" target="_blank">info link</a>
 
 ### Books and Brews Bookfair at Medford Brewing Company
 
@@ -382,41 +104,13 @@ Join us for a fun evening of open mic poetry!
 
 # Monday, April 14, 2025
 
-### 10 places to see spring flowers around Boston in 2025
-
-**04/12 08:00AM - 05/31 08:00PM @ Boston**  
-Boston may not have the best year-round weather, but the city does boast four perfectly defined seasons.  
-<a href="https://joyraft.com/event/10-places-to-see-spring-flowers-around-boston-in-2023-boston-374810" target="_blank">info link</a>
-
 # Tuesday, April 15, 2025
-
-### 10 places to see spring flowers around Boston in 2025
-
-**04/12 08:00AM - 05/31 08:00PM @ Boston**  
-Boston may not have the best year-round weather, but the city does boast four perfectly defined seasons.  
-<a href="https://joyraft.com/event/10-places-to-see-spring-flowers-around-boston-in-2023-boston-374810" target="_blank">info link</a>
 
 # Wednesday, April 16, 2025
 
-### 10 places to see spring flowers around Boston in 2025
-
-**04/12 08:00AM - 05/31 08:00PM @ Boston**  
-Boston may not have the best year-round weather, but the city does boast four perfectly defined seasons.  
-<a href="https://joyraft.com/event/10-places-to-see-spring-flowers-around-boston-in-2023-boston-374810" target="_blank">info link</a>
-
 # Thursday, April 17, 2025
-
-### 10 places to see spring flowers around Boston in 2025
-
-**04/12 08:00AM - 05/31 08:00PM @ Boston**  
-Boston may not have the best year-round weather, but the city does boast four perfectly defined seasons.  
-<a href="https://joyraft.com/event/10-places-to-see-spring-flowers-around-boston-in-2023-boston-374810" target="_blank">info link</a>
 
 # Friday, April 18, 2025
 
-### 10 places to see spring flowers around Boston in 2025
-
-**04/12 08:00AM - 05/31 08:00PM @ Boston**  
-Boston may not have the best year-round weather, but the city does boast four perfectly defined seasons.  
-<a href="https://joyraft.com/event/10-places-to-see-spring-flowers-around-boston-in-2023-boston-374810" target="_blank">info link</a>
+# Saturday, April 19, 2025
 
