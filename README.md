@@ -1,222 +1,10 @@
-# Friday, April 18, 2025
-
-### Boston Marathon Fan Fest
-
-**04/18 03:00PM - 04/20 06:00PM @ City Hall Plaza**  
-Boston Marathon Fan Fest presented by DICK'S Sporting Goods is the place to soak in the race-week atmosphere and have fun as you gear up for race day.  
-<a href="https://www.baa.org/races/boston-marathon/fan-fest" target="_blank">info link</a>
-
-### Cisco Brewers Seaport Popup 2025
-
-**04/18 04:00PM - 10/13 11:00PM @ Cisco Brewers Seaport**  
-Cisco Brewers Seaport is open April 18, 2025 until October 13, 2025.  
-<a href="https://www.ciscobrewers.com/" target="_blank">info link</a>
-
-### Boston 250 Launch: Anniversary of Paul Revere's Ride
-
-**04/18 05:30PM - 04/18 10:00PM @ Boston**  
-Join us in commemorating the 250th anniversary of Paul Revere’s Ride W/ Mayor Michelle Wu and special guests.  
-<a href="https://www.boston.gov/calendar/boston-250-launch-anniversary-paul-reveres-ride" target="_blank">info link</a>
-
-### Boston Marathon Finish Line Entertainment
-
-**04/18 04:00PM - 04/20 09:15AM @ Boylston St**  
-Friday, April 18th4:00 p.m. B.A.A. Youth Relay Challenge 5:30 p.  
-<a href="https://www.baa.org/races/boston-marathon/enter/finish-area" target="_blank">info link</a>
-
-### BRAT BOSTON - 3rd Friday's at ZUZU
-
-**04/18 10:00PM - 04/19 02:00AM @ zuzu**  
-BRAT BOSTON SPRING BREAK 🌸💖Spring is here, but BRAT is FOREVER!  
-<a href="https://bratboston.com" target="_blank">info link</a>
-
-### Boot Scootin' BBQ Line Dancing Bash
-
-**04/18 09:30PM - 04/19 01:00AM @ Sweet Cheeks Q**  
-Welcome y'all to the Boot Scootin' BBQ Line Dancing Bash at Sweet Cheeks Q!  
-<a href="https://www.eventbrite.com/e/boot-scootin-bbq-line-dancing-bash-tickets-1314220331389" target="_blank">info link</a>
-
-### Boston Marathon Expo
-
-**04/18 10:00AM - 04/20 06:00PM @ John B. Hynes Veterans Memorial Convention Center**  
-The Bank of America Boston Marathon Expo will be open to participants, friends, and fans, and will feature an adidas store as well as Official Boston Marathon Sponsors and Licensees.  
-<a href="https://www.baa.org/bank-america-boston-marathon-expo" target="_blank">info link</a>
-
-### Free Outdoor Meditation @ Boston Public Garden
-
-**04/18 06:30PM - 04/18 07:15PM @ Boston Public Garden**  
-Curious about meditation and mindfulness? Let’s enjoy some FREE outdoor meditation in the beautiful surroundings of Boston Public Garden together!  
-<a href="https://www.meditationinboston.org/outdoor-meditation" target="_blank">info link</a>
-
-### Movie Night: Black Panther
-
-**04/18 07:30PM - 04/18 09:45PM @ Kendall/MIT Open Space**  
-Outdoor movie night! Featuring Black Panther (PG-13).  
-<a href="https://www.eventbrite.com/e/movie-night-black-panther-tickets-1261594395799" target="_blank">info link</a>
-
-### Two if By Sea, Evening Harbor Cruise
-
-**04/18 07:30PM - 04/18 09:00PM @ Long Wharf North**  
-Embark on a captivating one-hour cruise through Boston Harbor and witness Paul Revere's legendary midnight crossing to Charlestown.  
-<a href="https://www.eventbrite.com/e/two-if-by-sea-evening-harbor-cruise-tickets-1277846285639?aff=oddtdtcreator" target="_blank">info link</a>
-
-### Samba Central: A Night of Brazilian Music and Dance
-
-**04/18 06:30PM - 04/18 08:30PM @ The Dance Complex**  
-Join us for Friday Night Lights: Samba Central edition!  
-<a href="https://www.eventbrite.com/e/friday-night-lights-samba-central-tickets-1293027001569?aff=oddtdtcreator" target="_blank">info link</a>
-
-### 20's & 30's Dress to Impress Social at a Cocktail Lounge! (Boston)
-
-**04/18 07:30PM - 04/18 11:30PM @ Carrie Nation cocktail Lounge**  
-Hi, my name is Tal and I run the Make Friends After College group on Facebook.  
-<a href="https://" target="_blank">info link</a>
-
-### Tarot + Art Workshop
-
-**04/18 07:00PM - 04/18 09:00PM @ Long Live Roxbury**  
-A casual space to learn about tarot and make art together!  
-<a href="https://www.hoamsy.com/experiences/detail/hP5n7KLRb6qMlfmKSPyW" target="_blank">info link</a>
-
-### 2000s Music Trivia at Boston Public Market
-
-**04/18 05:30PM - 04/18 07:30PM @ Boston Public Market**  
-If you have an encyclopedic knowledge of top hits and are searching for an outlet, join us in the Hub on Friday, April 18, for 2000s music trivia!  
-<a href="https://www.eventbrite.com/e/2000s-music-trivia-at-boston-public-market-tickets-1297077506739?aff=ebdsoporgprofile" target="_blank">info link</a>
-
-### RuPaul's Drag Race Screening
-
-**04/18 07:30PM - 04/18 10:00PM @ Lamplighter Broadway**  
-Do you need a dose of fabulosity in your life?  
-<a href="https://lamplighterbrewing.com/products/rupauls-drag-race-screening" target="_blank">info link</a>
-
-### Jazz Fridays at The Fed
-
-**04/18 06:00PM - 04/18 09:00PM @ The Fed**  
-The Fed at The Langham, Boston presents Jazz Fridays with Speechless Music!  
-<a href="https://www.opentable.com/r/the-fed-at-the-langham-boston" target="_blank">info link</a>
-
-### Friday Night Trivia
-
-**04/18 07:00PM - 04/18 09:00PM @ Trident Booksellers and Cafe**  
-Join us for seven rounds of general knowledge trivia, every Friday at 7 pm!  
-<a href="https://tridentbookscafe.com/events" target="_blank">info link</a>
-
-### ¡Conversaciones Crepusculares!: free in-person Spanish convo practice
-
-**04/18 04:00PM - 04/18 05:00PM @ Boston Area Spanish Exchange (BASE)**  
-¡Conversaciones Crepusculares!Free open-level Spanish informal conversation workshops with el profesor Luis.  
-<a href="https://www.spanishclassesboston.com/events/2022/2/23/conversaciones-crepusculares" target="_blank">info link</a>
-
-### Boston Swing Central- Friday Dance
-
-**04/18 08:00PM - 04/18 11:30PM @ Q Ballroom**  
-Boston Swing Central is a dancer-formed, non-profit, volunteer-run organization dedicated to promoting positive and fun swing dancing experiences in Boston.  
-<a href="https://www.bostonswingcentral.org/" target="_blank">info link</a>
-
-### 86 things to do in Boston this weekend
-
-**04/18 07:00AM - 04/20 11:00PM @ Boston**  
-Happy long weekend. There’s so much in store from Marathon happenings to Boston’s 250th celebrations.  
-<a href="https://www.thebostoncalendar.com/" target="_blank">info link</a>
-
-### Boston Marathon Fan Fest
-
-**04/18 03:00PM - 04/20 06:00PM @ City Hall Plaza**  
-Boston Marathon Fan Fest presented by DICK'S Sporting Goods is the place to soak in the race-week atmosphere and have fun as you gear up for race day.  
-<a href="https://www.baa.org/races/boston-marathon/fan-fest" target="_blank">info link</a>
-
-### Boston 250 Launch: Anniversary of Paul Revere's Ride
-
-**04/18 05:30PM - 04/18 10:00PM @ Boston**  
-Join us in commemorating the 250th anniversary of Paul Revere’s Ride W/ Mayor Michelle Wu and special guests.  
-<a href="https://www.boston.gov/calendar/boston-250-launch-anniversary-paul-reveres-ride" target="_blank">info link</a>
-
-### Boston Marathon Finish Line Entertainment
-
-**04/18 04:00PM - 04/20 09:15AM @ Boylston St**  
-Friday, April 18th4:00 p.m. B.A.A. Youth Relay Challenge 5:30 p.  
-<a href="https://www.baa.org/races/boston-marathon/enter/finish-area" target="_blank">info link</a>
-
-### Boston Marathon Expo
-
-**04/18 10:00AM - 04/20 06:00PM @ John B. Hynes Veterans Memorial Convention Center**  
-The Bank of America Boston Marathon Expo will be open to participants, friends, and fans, and will feature an adidas store as well as Official Boston Marathon Sponsors and Licensees.  
-<a href="https://www.baa.org/bank-america-boston-marathon-expo" target="_blank">info link</a>
-
-### Free Outdoor Meditation @ Boston Public Garden
-
-**04/18 06:30PM - 04/18 07:15PM @ Boston Public Garden**  
-Curious about meditation and mindfulness? Let’s enjoy some FREE outdoor meditation in the beautiful surroundings of Boston Public Garden together!  
-<a href="https://www.meditationinboston.org/outdoor-meditation" target="_blank">info link</a>
-
-### Movie Night: Black Panther
-
-**04/18 07:30PM - 04/18 09:45PM @ Kendall/MIT Open Space**  
-Outdoor movie night! Featuring Black Panther (PG-13).  
-<a href="https://www.eventbrite.com/e/movie-night-black-panther-tickets-1261594395799" target="_blank">info link</a>
-
-### 20's & 30's Dress to Impress Social at a Cocktail Lounge! (Boston)
-
-**04/18 07:30PM - 04/18 11:30PM @ Carrie Nation cocktail Lounge**  
-Hi, my name is Tal and I run the Make Friends After College group on Facebook.  
-<a href="https://" target="_blank">info link</a>
-
-### 2000s Music Trivia at Boston Public Market
-
-**04/18 05:30PM - 04/18 07:30PM @ Boston Public Market**  
-If you have an encyclopedic knowledge of top hits and are searching for an outlet, join us in the Hub on Friday, April 18, for 2000s music trivia!  
-<a href="https://www.eventbrite.com/e/2000s-music-trivia-at-boston-public-market-tickets-1297077506739?aff=ebdsoporgprofile" target="_blank">info link</a>
-
-### Jazz Fridays at The Fed
-
-**04/18 06:00PM - 04/18 09:00PM @ The Fed**  
-The Fed at The Langham, Boston presents Jazz Fridays with Speechless Music!  
-<a href="https://www.opentable.com/r/the-fed-at-the-langham-boston" target="_blank">info link</a>
-
-### RuPaul's Drag Race Screening
-
-**04/18 07:30PM - 04/18 10:00PM @ Lamplighter Broadway**  
-Do you need a dose of fabulosity in your life?  
-<a href="https://lamplighterbrewing.com/products/rupauls-drag-race-screening" target="_blank">info link</a>
-
-### Friday Night Trivia
-
-**04/18 07:00PM - 04/18 09:00PM @ Trident Booksellers and Cafe**  
-Join us for seven rounds of general knowledge trivia, every Friday at 7 pm!  
-<a href="https://tridentbookscafe.com/events" target="_blank">info link</a>
-
-### ¡Conversaciones Crepusculares!: free in-person Spanish convo practice
-
-**04/18 04:00PM - 04/18 05:00PM @ Boston Area Spanish Exchange (BASE)**  
-¡Conversaciones Crepusculares!Free open-level Spanish informal conversation workshops with el profesor Luis.  
-<a href="https://www.spanishclassesboston.com/events/2022/2/23/conversaciones-crepusculares" target="_blank">info link</a>
-
 # Saturday, April 19, 2025
-
-### Boston Marathon Fan Fest
-
-**04/18 03:00PM - 04/20 06:00PM @ City Hall Plaza**  
-Boston Marathon Fan Fest presented by DICK'S Sporting Goods is the place to soak in the race-week atmosphere and have fun as you gear up for race day.  
-<a href="https://www.baa.org/races/boston-marathon/fan-fest" target="_blank">info link</a>
 
 ### Boston Public Garden Swan Boats
 
 **04/19 10:00AM - 09/01 05:00PM @ Boston Public Garden**  
 Opening Day: Saturday, April 19, 2025 at 10amThe Swan Boats are a fleet of pontoon pleasure boats which operate in a pond in the Public Garden in Boston, Massachusetts.  
 <a href="https://swanboats.com/take-a-ride/" target="_blank">info link</a>
-
-### Cisco Brewers Seaport Popup 2025
-
-**04/18 04:00PM - 10/13 11:00PM @ Cisco Brewers Seaport**  
-Cisco Brewers Seaport is open April 18, 2025 until October 13, 2025.  
-<a href="https://www.ciscobrewers.com/" target="_blank">info link</a>
-
-### Boston Marathon Finish Line Entertainment
-
-**04/18 04:00PM - 04/20 09:15AM @ Boylston St**  
-Friday, April 18th4:00 p.m. B.A.A. Youth Relay Challenge 5:30 p.  
-<a href="https://www.baa.org/races/boston-marathon/enter/finish-area" target="_blank">info link</a>
 
 ### The Tall Ship Boston: Floating Oyster Bar & Waterfront Experience (Live Music, Food Trucks, Popups, & More)
 
@@ -260,18 +48,6 @@ Join the Charlestown Mothers Association (CMA) for their beloved annual Spring E
 Join us for a high-energy, cultural celebration in the heart of Boston ahead of the 2025 Boston Marathon!  
 <a href="https://lu.ma/8ykfk7bq" target="_blank">info link</a>
 
-### BRAT BOSTON - 3rd Friday's at ZUZU
-
-**04/18 10:00PM - 04/19 02:00AM @ zuzu**  
-BRAT BOSTON SPRING BREAK 🌸💖Spring is here, but BRAT is FOREVER!  
-<a href="https://bratboston.com" target="_blank">info link</a>
-
-### Boot Scootin' BBQ Line Dancing Bash
-
-**04/18 09:30PM - 04/19 01:00AM @ Sweet Cheeks Q**  
-Welcome y'all to the Boot Scootin' BBQ Line Dancing Bash at Sweet Cheeks Q!  
-<a href="https://www.eventbrite.com/e/boot-scootin-bbq-line-dancing-bash-tickets-1314220331389" target="_blank">info link</a>
-
 ### BEER FEST Party
 
 **04/19 01:00PM - 04/19 05:00PM @ Time Out Market Boston**  
@@ -290,6 +66,12 @@ The Boston Progressive Jazz Festival makes its return on 4/19-4/20 at Arts at th
 Save the date for our next Puppy Yoga class with The Point EB + adoptable pups from Sweet Paws Rescue!  
 <a href="https://www.eventbrite.com/e/park-9-puppy-yoga-with-sweet-paws-rescue-and-the-point-eb-tickets-1262514818809?aff=oddtdtcreator" target="_blank">info link</a>
 
+### The JOY Dance Party
+
+**04/19 06:00PM - 04/19 10:00PM @ Roundhead Brewing Company**  
+We are excited to welcome special guest DJ Kelvin Sylvester to the JOY party with and resident DJs Jenene Cook and Jesse Cardoso.  
+<a href="https://www.facebook.com/share/15mteAQNrT/" target="_blank">info link</a>
+
 ### We Black Folk Presents Cultural Crossroads (Feat Fabiola Méndez & Kina Zoré)
 
 **04/19 06:00PM - 04/19 10:00PM @ Croma Space**  
@@ -301,18 +83,6 @@ Join us for the second installment of Cultural Crossroads, a vibrant celebratio
 **04/19 12:00PM - 04/19 05:00PM @ Satellite**  
 Spritz season is here, and we’re kicking things off with a little garden party at Satellite on Friday 4/19 from 12-5pm!  
 <a href="https://www.remnantsomerville.com/live/spritz-party" target="_blank">info link</a>
-
-### The JOY Dance Party
-
-**04/19 06:00PM - 04/19 10:00PM @ Roundhead Brewing Company**  
-We are excited to welcome special guest DJ Kelvin Sylvester to the JOY party with and resident DJs Jenene Cook and Jesse Cardoso.  
-<a href="https://www.facebook.com/share/15mteAQNrT/" target="_blank">info link</a>
-
-### Boston Marathon Expo
-
-**04/18 10:00AM - 04/20 06:00PM @ John B. Hynes Veterans Memorial Convention Center**  
-The Bank of America Boston Marathon Expo will be open to participants, friends, and fans, and will feature an adidas store as well as Official Boston Marathon Sponsors and Licensees.  
-<a href="https://www.baa.org/bank-america-boston-marathon-expo" target="_blank">info link</a>
 
 ### Joy As Resistance: A community event for collective liberation
 
@@ -392,17 +162,17 @@ Bonjour, brunch lovers! Join us every Saturday & Sunday, for a French-inspired f
 Catch some tunes, vibes, and drinks with us!  
 <a href="https://www.remnantsomerville.com/calendar" target="_blank">info link</a>
 
-### Jamaica Pond parkrun
-
-**04/19 09:00AM - 04/19 11:00AM @ Jamaica Pond**  
-Jamaica Pond parkrun is a free, weekly, timed 5k around Jamaica Pond for people of all ages.  
-<a href="https://www.parkrun.us/jamaicapond/" target="_blank">info link</a>
-
 ### Danehy Park parkrun 5k
 
 **04/19 09:00AM - 04/19 11:00AM @ Danehy Park**  
 parkrun is a FREE 5k and takes place every Saturday morning at Danehy Park in Cambridge.  
 <a href="https://www.parkrun.us/danehypark/" target="_blank">info link</a>
+
+### Jamaica Pond parkrun
+
+**04/19 09:00AM - 04/19 11:00AM @ Jamaica Pond**  
+Jamaica Pond parkrun is a free, weekly, timed 5k around Jamaica Pond for people of all ages.  
+<a href="https://www.parkrun.us/jamaicapond/" target="_blank">info link</a>
 
 ### Traditional Irish Music Sessions at The Druid
 
@@ -427,18 +197,6 @@ Flow Together. Glow Together. (all levels)A dynamic vinyasa yoga experience that
 **04/19 05:00AM - 04/20 11:59PM @ Boston**  
 Enjoy unlimited travel on the Commuter Rail for just $10 every weekend.  
 <a href="https://www.mbta.com/fares/commuter-rail-weekends" target="_blank">info link</a>
-
-### 86 things to do in Boston this weekend
-
-**04/18 07:00AM - 04/20 11:00PM @ Boston**  
-Happy long weekend. There’s so much in store from Marathon happenings to Boston’s 250th celebrations.  
-<a href="https://www.thebostoncalendar.com/" target="_blank">info link</a>
-
-### Boston Marathon Fan Fest
-
-**04/18 03:00PM - 04/20 06:00PM @ City Hall Plaza**  
-Boston Marathon Fan Fest presented by DICK'S Sporting Goods is the place to soak in the race-week atmosphere and have fun as you gear up for race day.  
-<a href="https://www.baa.org/races/boston-marathon/fan-fest" target="_blank">info link</a>
 
 ### Spring Thrift Market @ The Cyclorama | Select Markets
 
@@ -470,18 +228,6 @@ Grow With Us: Earth Day Celebration Festival and MarketWe know you’ve been wai
 Join us for a high-energy, cultural celebration in the heart of Boston ahead of the 2025 Boston Marathon!  
 <a href="https://lu.ma/8ykfk7bq" target="_blank">info link</a>
 
-### Boston Marathon Finish Line Entertainment
-
-**04/18 04:00PM - 04/20 09:15AM @ Boylston St**  
-Friday, April 18th4:00 p.m. B.A.A. Youth Relay Challenge 5:30 p.  
-<a href="https://www.baa.org/races/boston-marathon/enter/finish-area" target="_blank">info link</a>
-
-### Boston Marathon Expo
-
-**04/18 10:00AM - 04/20 06:00PM @ John B. Hynes Veterans Memorial Convention Center**  
-The Bank of America Boston Marathon Expo will be open to participants, friends, and fans, and will feature an adidas store as well as Official Boston Marathon Sponsors and Licensees.  
-<a href="https://www.baa.org/bank-america-boston-marathon-expo" target="_blank">info link</a>
-
 ### BEER FEST Party
 
 **04/19 01:00PM - 04/19 05:00PM @ Time Out Market Boston**  
@@ -506,17 +252,17 @@ Join us for the second installment of Cultural Crossroads, a vibrant celebratio
 We are excited to welcome special guest DJ Kelvin Sylvester to the JOY party with and resident DJs Jenene Cook and Jesse Cardoso.  
 <a href="https://www.facebook.com/share/15mteAQNrT/" target="_blank">info link</a>
 
-### Joy As Resistance: A community event for collective liberation
-
-**04/19 11:00AM - 04/19 04:00PM @ Urban Farming Institute**  
-Join the Stinging Nettles Brujxs Healing Collective for our annual decolonizing healing event.  
-<a href="https://www.eventbrite.com/e/joy-as-resistance-a-community-event-for-collective-liberation-tickets-1295981197649" target="_blank">info link</a>
-
 ### Marathon Daffodil Dash
 
 **04/19 10:00AM - 04/19 01:00PM @ Suffolk Downs**  
 Join us for the fourth annual Marathon Daffodil Dash on Saturday, April 19th from 10am – 1pm at The Track at Suffolk Downs.  
 <a href="https://atsuffolkdowns.com/blog/marathon-daffodil-dash-4/" target="_blank">info link</a>
+
+### Joy As Resistance: A community event for collective liberation
+
+**04/19 11:00AM - 04/19 04:00PM @ Urban Farming Institute**  
+Join the Stinging Nettles Brujxs Healing Collective for our annual decolonizing healing event.  
+<a href="https://www.eventbrite.com/e/joy-as-resistance-a-community-event-for-collective-liberation-tickets-1295981197649" target="_blank">info link</a>
 
 ### Lamplighter Earth Day Plant Swap
 
@@ -548,17 +294,17 @@ Our Open Houses are a great way to learn more about Community Boating and how YO
 Jamaica Pond parkrun is a free, weekly, timed 5k around Jamaica Pond for people of all ages.  
 <a href="https://www.parkrun.us/jamaicapond/" target="_blank">info link</a>
 
-### Free Live Music Matinee at Remnant Satellite in Cambridge
-
-**04/19 03:00PM - 04/19 05:00PM @ Remnant Satellite**  
-Catch some tunes, vibes, and drinks with us!  
-<a href="https://www.remnantsomerville.com/calendar" target="_blank">info link</a>
-
 ### Danehy Park parkrun 5k
 
 **04/19 09:00AM - 04/19 11:00AM @ Danehy Park**  
 parkrun is a FREE 5k and takes place every Saturday morning at Danehy Park in Cambridge.  
 <a href="https://www.parkrun.us/danehypark/" target="_blank">info link</a>
+
+### Free Live Music Matinee at Remnant Satellite in Cambridge
+
+**04/19 03:00PM - 04/19 05:00PM @ Remnant Satellite**  
+Catch some tunes, vibes, and drinks with us!  
+<a href="https://www.remnantsomerville.com/calendar" target="_blank">info link</a>
 
 ### Traditional Irish Music Sessions at The Druid
 
@@ -574,29 +320,11 @@ Back by popular demand, Boston Seaport's children's programming series, Seaport 
 
 # Sunday, April 20, 2025
 
-### Boston Marathon Fan Fest
-
-**04/18 03:00PM - 04/20 06:00PM @ City Hall Plaza**  
-Boston Marathon Fan Fest presented by DICK'S Sporting Goods is the place to soak in the race-week atmosphere and have fun as you gear up for race day.  
-<a href="https://www.baa.org/races/boston-marathon/fan-fest" target="_blank">info link</a>
-
 ### Boston Public Garden Swan Boats
 
 **04/19 10:00AM - 09/01 05:00PM @ Boston Public Garden**  
 Opening Day: Saturday, April 19, 2025 at 10amThe Swan Boats are a fleet of pontoon pleasure boats which operate in a pond in the Public Garden in Boston, Massachusetts.  
 <a href="https://swanboats.com/take-a-ride/" target="_blank">info link</a>
-
-### Cisco Brewers Seaport Popup 2025
-
-**04/18 04:00PM - 10/13 11:00PM @ Cisco Brewers Seaport**  
-Cisco Brewers Seaport is open April 18, 2025 until October 13, 2025.  
-<a href="https://www.ciscobrewers.com/" target="_blank">info link</a>
-
-### Boston Marathon Finish Line Entertainment
-
-**04/18 04:00PM - 04/20 09:15AM @ Boylston St**  
-Friday, April 18th4:00 p.m. B.A.A. Youth Relay Challenge 5:30 p.  
-<a href="https://www.baa.org/races/boston-marathon/enter/finish-area" target="_blank">info link</a>
 
 ### The Tall Ship Boston: Floating Oyster Bar & Waterfront Experience (Live Music, Food Trucks, Popups, & More)
 
@@ -615,12 +343,6 @@ The Boston Progressive Jazz Festival makes its return on 4/19-4/20 at Arts at th
 **04/20 04:00PM - 04/21 11:00PM @ South Street Diner**  
 South Street Diner, Boston’s longest-running late-night restaurant invites guests to stop by before the iconic 129th Boston Marathon on Sunday, April 20th from 4:00pm to 11:00pm to fuel up for the race with all-you-can-eat pancakes for just $10!  
 <a href="https://www.southstreetdiner.com" target="_blank">info link</a>
-
-### Boston Marathon Expo
-
-**04/18 10:00AM - 04/20 06:00PM @ John B. Hynes Veterans Memorial Convention Center**  
-The Bank of America Boston Marathon Expo will be open to participants, friends, and fans, and will feature an adidas store as well as Official Boston Marathon Sponsors and Licensees.  
-<a href="https://www.baa.org/bank-america-boston-marathon-expo" target="_blank">info link</a>
 
 ### LoveStrukk Indoors - DANCE PARTY
 
@@ -688,30 +410,6 @@ Join us for a fun evening of open mic poetry!
 Enjoy unlimited travel on the Commuter Rail for just $10 every weekend.  
 <a href="https://www.mbta.com/fares/commuter-rail-weekends" target="_blank">info link</a>
 
-### 86 things to do in Boston this weekend
-
-**04/18 07:00AM - 04/20 11:00PM @ Boston**  
-Happy long weekend. There’s so much in store from Marathon happenings to Boston’s 250th celebrations.  
-<a href="https://www.thebostoncalendar.com/" target="_blank">info link</a>
-
-### Boston Marathon Fan Fest
-
-**04/18 03:00PM - 04/20 06:00PM @ City Hall Plaza**  
-Boston Marathon Fan Fest presented by DICK'S Sporting Goods is the place to soak in the race-week atmosphere and have fun as you gear up for race day.  
-<a href="https://www.baa.org/races/boston-marathon/fan-fest" target="_blank">info link</a>
-
-### Boston Marathon Finish Line Entertainment
-
-**04/18 04:00PM - 04/20 09:15AM @ Boylston St**  
-Friday, April 18th4:00 p.m. B.A.A. Youth Relay Challenge 5:30 p.  
-<a href="https://www.baa.org/races/boston-marathon/enter/finish-area" target="_blank">info link</a>
-
-### Boston Marathon Expo
-
-**04/18 10:00AM - 04/20 06:00PM @ John B. Hynes Veterans Memorial Convention Center**  
-The Bank of America Boston Marathon Expo will be open to participants, friends, and fans, and will feature an adidas store as well as Official Boston Marathon Sponsors and Licensees.  
-<a href="https://www.baa.org/bank-america-boston-marathon-expo" target="_blank">info link</a>
-
 ### "Blooms and Brews!" Pop Up Market Series at Aeronaut Somerville
 
 **04/20 02:00PM - 04/20 07:00PM @ Aeronaut Brewing Company**  
@@ -750,23 +448,17 @@ Join us for a fun evening of open mic poetry!
 
 # Monday, April 21, 2025
 
-### 129th Boston Marathon
-
-**04/21 08:50AM - 04/21 04:00PM @ Hopkington to Boston**  
-The Boston Marathon is the world's oldest annual marathon and ranks as one of the world's most prestigious road racing events.  
-<a href="https://www.baa.org/" target="_blank">info link</a>
-
 ### Boston Public Garden Swan Boats
 
 **04/19 10:00AM - 09/01 05:00PM @ Boston Public Garden**  
 Opening Day: Saturday, April 19, 2025 at 10amThe Swan Boats are a fleet of pontoon pleasure boats which operate in a pond in the Public Garden in Boston, Massachusetts.  
 <a href="https://swanboats.com/take-a-ride/" target="_blank">info link</a>
 
-### Cisco Brewers Seaport Popup 2025
+### 129th Boston Marathon
 
-**04/18 04:00PM - 10/13 11:00PM @ Cisco Brewers Seaport**  
-Cisco Brewers Seaport is open April 18, 2025 until October 13, 2025.  
-<a href="https://www.ciscobrewers.com/" target="_blank">info link</a>
+**04/21 08:50AM - 04/21 04:00PM @ Hopkington to Boston**  
+The Boston Marathon is the world's oldest annual marathon and ranks as one of the world's most prestigious road racing events.  
+<a href="https://www.baa.org/" target="_blank">info link</a>
 
 ### Patriots Day Parade
 
@@ -792,17 +484,17 @@ OPENING on Saturday, April 19, 2025 ⚓️The Tall Ship—a 245" vessel turned f
 Patriots’ Day commemorates the first battle of the American Revolution.  
 <a href="https://docs.google.com/document/d/e/2PACX-1vTT8bOPHBdDOpFW_dCOkJIzreMbomhqRm0WJNe8mRg-nKnpNmMnBywddTnwODwrPXLqa_4HmCBkrC9n/pub" target="_blank">info link</a>
 
-### Celebrate the 129th Boston Marathon with All-You-Can-Eat Pancakes at South Street Diner
-
-**04/20 04:00PM - 04/21 11:00PM @ South Street Diner**  
-South Street Diner, Boston’s longest-running late-night restaurant invites guests to stop by before the iconic 129th Boston Marathon on Sunday, April 20th from 4:00pm to 11:00pm to fuel up for the race with all-you-can-eat pancakes for just $10!  
-<a href="https://www.southstreetdiner.com" target="_blank">info link</a>
-
 ### Marathon Monday Party
 
 **04/21 12:00PM - 04/21 05:00PM @ Time Out Market Boston**  
 Get ready to keep the marathon vibes going strong at Time Out Market Boston's post-Marathon Monday bash!  
 <a href="https://www.eventbrite.com/e/marathon-monday-party-tickets-1280838425209" target="_blank">info link</a>
+
+### Celebrate the 129th Boston Marathon with All-You-Can-Eat Pancakes at South Street Diner
+
+**04/20 04:00PM - 04/21 11:00PM @ South Street Diner**  
+South Street Diner, Boston’s longest-running late-night restaurant invites guests to stop by before the iconic 129th Boston Marathon on Sunday, April 20th from 4:00pm to 11:00pm to fuel up for the race with all-you-can-eat pancakes for just $10!  
+<a href="https://www.southstreetdiner.com" target="_blank">info link</a>
 
 ### Marathon Afterparty at Sam Adams
 
@@ -816,17 +508,17 @@ Raise a pint of 26.2 Brew to all the runners that logged 26.
 EVENT START-END | 6:30 pm - 8:30 pm ETCHECK-IN BEGINS | 6:15 pm ETWHERE | Aeronaut, 14 Tyler St, Somerville, MA 02143 (map)AGE RANGE | All Ages: While many folks who attend our events are in their 20s and 30s, all guests of all ages will be enthusiastically welcome!  
 <a href="http://www.skipthesmalltalk.com/boston" target="_blank">info link</a>
 
-### 129th Boston Marathon
-
-**04/21 08:50AM - 04/21 04:00PM @ Hopkington to Boston**  
-The Boston Marathon is the world's oldest annual marathon and ranks as one of the world's most prestigious road racing events.  
-<a href="https://www.baa.org/" target="_blank">info link</a>
-
 ### The One-Mile-To-Go Block Party
 
 **04/21 11:00AM - 04/21 05:00PM @ Kenmore Square**  
 The CITGO ‘One-Mile-To-Go Block Party’ will be held on Beacon Street from 11:00AM–5:00PM on Monday, April 21 in Kenmore Square and will include a number of fun and engaging activities for spectators of all ages The event is free and open to the public.  
 <a href="https://bostonyouremyhome.net/" target="_blank">info link</a>
+
+### 129th Boston Marathon
+
+**04/21 08:50AM - 04/21 04:00PM @ Hopkington to Boston**  
+The Boston Marathon is the world's oldest annual marathon and ranks as one of the world's most prestigious road racing events.  
+<a href="https://www.baa.org/" target="_blank">info link</a>
 
 ### Patriots Day Parade
 
@@ -860,12 +552,6 @@ Raise a pint of 26.2 Brew to all the runners that logged 26.
 Opening Day: Saturday, April 19, 2025 at 10amThe Swan Boats are a fleet of pontoon pleasure boats which operate in a pond in the Public Garden in Boston, Massachusetts.  
 <a href="https://swanboats.com/take-a-ride/" target="_blank">info link</a>
 
-### Cisco Brewers Seaport Popup 2025
-
-**04/18 04:00PM - 10/13 11:00PM @ Cisco Brewers Seaport**  
-Cisco Brewers Seaport is open April 18, 2025 until October 13, 2025.  
-<a href="https://www.ciscobrewers.com/" target="_blank">info link</a>
-
 ### The Tall Ship Boston: Floating Oyster Bar & Waterfront Experience (Live Music, Food Trucks, Popups, & More)
 
 **04/19 04:00PM - 09/30 11:00PM @ The Tall Ship**  
@@ -879,12 +565,6 @@ OPENING on Saturday, April 19, 2025 ⚓️The Tall Ship—a 245" vessel turned f
 **04/19 10:00AM - 09/01 05:00PM @ Boston Public Garden**  
 Opening Day: Saturday, April 19, 2025 at 10amThe Swan Boats are a fleet of pontoon pleasure boats which operate in a pond in the Public Garden in Boston, Massachusetts.  
 <a href="https://swanboats.com/take-a-ride/" target="_blank">info link</a>
-
-### Cisco Brewers Seaport Popup 2025
-
-**04/18 04:00PM - 10/13 11:00PM @ Cisco Brewers Seaport**  
-Cisco Brewers Seaport is open April 18, 2025 until October 13, 2025.  
-<a href="https://www.ciscobrewers.com/" target="_blank">info link</a>
 
 ### The Tall Ship Boston: Floating Oyster Bar & Waterfront Experience (Live Music, Food Trucks, Popups, & More)
 
@@ -900,11 +580,19 @@ OPENING on Saturday, April 19, 2025 ⚓️The Tall Ship—a 245" vessel turned f
 Opening Day: Saturday, April 19, 2025 at 10amThe Swan Boats are a fleet of pontoon pleasure boats which operate in a pond in the Public Garden in Boston, Massachusetts.  
 <a href="https://swanboats.com/take-a-ride/" target="_blank">info link</a>
 
-### Cisco Brewers Seaport Popup 2025
+### The Tall Ship Boston: Floating Oyster Bar & Waterfront Experience (Live Music, Food Trucks, Popups, & More)
 
-**04/18 04:00PM - 10/13 11:00PM @ Cisco Brewers Seaport**  
-Cisco Brewers Seaport is open April 18, 2025 until October 13, 2025.  
-<a href="https://www.ciscobrewers.com/" target="_blank">info link</a>
+**04/19 04:00PM - 09/30 11:00PM @ The Tall Ship**  
+OPENING on Saturday, April 19, 2025 ⚓️The Tall Ship—a 245" vessel turned floating oyster bar moored on Pier One in East Boston.  
+<a href="https://www.tallshipboston.com/" target="_blank">info link</a>
+
+# Friday, April 25, 2025
+
+### Boston Public Garden Swan Boats
+
+**04/19 10:00AM - 09/01 05:00PM @ Boston Public Garden**  
+Opening Day: Saturday, April 19, 2025 at 10amThe Swan Boats are a fleet of pontoon pleasure boats which operate in a pond in the Public Garden in Boston, Massachusetts.  
+<a href="https://swanboats.com/take-a-ride/" target="_blank">info link</a>
 
 ### The Tall Ship Boston: Floating Oyster Bar & Waterfront Experience (Live Music, Food Trucks, Popups, & More)
 
