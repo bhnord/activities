@@ -1,47 +1,3 @@
-# Wednesday, April 23, 2025
-
-### CambridgeSide Presents FREE Big Screen Showing of Moana 2
-
-**04/23 01:00PM - 04/23 04:00PM @ CanalSide at CambridgeSide**  
-Shop, dine and play at CambridgeSide during April school vacation.  
-<a href="https://www.cambridgeside.com" target="_blank">info link</a>
-
-### Free Craft Hangout
-
-**04/23 05:00PM - 04/23 06:30PM @ Diesel Cafe**  
-Bring a friend or meet some new ones at this bring-your-own craft night, hosted by The Cozy Artist and Diesel Cafe.  
-<a href="https://www.facebook.com/events/1306999717085389/1306999733752054/" target="_blank">info link</a>
-
-### Survivor Weekly Watch Party
-
-**04/23 08:00PM - 04/23 10:00PM @ Lamplighter Brewing CX**  
-Join us every Wednesday at Lamplighter CX for a Survivor watch party you won’t want to miss!  
-<a href="https://www.eventbrite.com/e/survivor-weekly-watch-party-tickets-1246453799869?aff=oddtdtcreator" target="_blank">info link</a>
-
-### Jeopardy Bar League at Long Live Roxbury
-
-**04/23 07:00PM - 04/23 09:00PM @ Long Live Roxbury**  
-Teams play along and compete against each other using their smartphones through an interactive Jeopardy!  
-<a href="https://www.longlivebeerworks.com/boston-taproom" target="_blank">info link</a>
-
-### Drag Bingo
-
-**04/23 08:00PM - 04/23 10:00PM @ Vera's**  
-On Wednesdays we play bingo! Join us at Vera's every Wednesday from 8-10pm for Drag Bingo!  
-<a href="https://www.instagram.com/veras_cardinal_lounge/" target="_blank">info link</a>
-
-### November Project: Stair Workout at Harvard Stadium
-
-**04/23 05:55AM - 04/23 07:00AM @ Harvard Stadium**  
-Located in lower Allston, Harvard Stadium is one of the favorite workout spots of the November Project™ members.  
-<a href="https://november-project.com/stadium/" target="_blank">info link</a>
-
-### Independent Film Festival Boston 2025
-
-**04/23 07:30PM - 04/30 07:30PM @ Boston Theaters**  
-Independent Film Festival Boston (IFFBoston) was started in 2003 to provide Boston with the type of film event it had been looking for: one that discovers emerging talent and celebrates the leading edge of cinematic story tellers.  
-<a href="https://iffboston.org/" target="_blank">info link</a>
-
 # Thursday, April 24, 2025
 
 ### Harvard Art Museums at Night
@@ -62,17 +18,23 @@ Join us for an evening of art, fun, food, and more!
 Free In-Person EventMuseum galleries open and free to the public.  
 <a href="https://hmsc.harvard.edu/calendar_event/artsthursdays-astrobiology-music/" target="_blank">info link</a>
 
-### Free History Tour of Quincy Market
+### Allston Pudding x handhold Spring Concert Series
 
-**04/24 03:30PM - 04/24 04:00PM @ Quincy Market**  
-Experience a history tour of Quincy Market led by our resident tour guide, Linda Perlman!  
-<a href="https://" target="_blank">info link</a>
+**04/24 07:00PM - 04/24 09:00PM @ Zone 3**  
+Note: This event occurs every two weeks.Join us for a brand new series celebrating Boston’s thriving local music scene!  
+<a href="https://www.eventbrite.com/e/allston-pudding-x-handhold-spring-concert-series-tickets-1269065411809" target="_blank">info link</a>
 
 ### April NOVA Science Trivia
 
 **04/24 05:30PM - 04/24 07:00PM @ Boston Public Library**  
 Join us at the GBH Studios at the Boston Public Library for a night of NOVA science trivia!  
 <a href="https://ticketbud.com/events/cc2d9a36-0e3a-11f0-a594-42010a71703e" target="_blank">info link</a>
+
+### Free History Tour of Quincy Market
+
+**04/24 03:30PM - 04/24 04:00PM @ Quincy Market**  
+Experience a history tour of Quincy Market led by our resident tour guide, Linda Perlman!  
+<a href="https://" target="_blank">info link</a>
 
 ### Umass Boston's Annual Community Easter Egg Hunt
 
@@ -85,12 +47,6 @@ The UMass Boston Early Minds Lab invites all families in the greater Boston area
 **04/24 07:00PM - 04/24 08:30PM @ Time Out Market Boston**  
 Starting April 10, aspiring singers will take the stage every Thursday, competing for a spot in the final round.  
 <a href="https://www.eventbrite.com/e/fenways-got-talent-2025-tickets-1280833691049" target="_blank">info link</a>
-
-### Allston Pudding x handhold Spring Concert Series
-
-**04/24 07:00PM - 04/24 09:00PM @ Zone 3**  
-Note: This event occurs every two weeks.Join us for a brand new series celebrating Boston’s thriving local music scene!  
-<a href="https://www.eventbrite.com/e/allston-pudding-x-handhold-spring-concert-series-tickets-1269065411809" target="_blank">info link</a>
 
 ### KARAOKE THURSDAY-SATURDAY @SIDEBAR BOSTON
 
@@ -110,12 +66,6 @@ Each week we connect creators, entrepreneurs, investors, academics, corporates, 
 **04/24 05:00PM - 04/24 09:00PM @ Institute of Contemporary Art**  
 Admission is FREE for all every Thursday from 5 to 9 PM during ICA Free Thursday Nights.  
 <a href="http://www.icaboston.org/visit" target="_blank">info link</a>
-
-### Independent Film Festival Boston 2025
-
-**04/23 07:30PM - 04/30 07:30PM @ Boston Theaters**  
-Independent Film Festival Boston (IFFBoston) was started in 2003 to provide Boston with the type of film event it had been looking for: one that discovers emerging talent and celebrates the leading edge of cinematic story tellers.  
-<a href="https://iffboston.org/" target="_blank">info link</a>
 
 # Friday, April 25, 2025
 
@@ -187,12 +137,6 @@ HERE FOR A GOOD TIME AND A LONG TIME ‼️
 Join us for seven rounds of general knowledge trivia, every Friday at 7 pm!  
 <a href="https://tridentbookscafe.com/events" target="_blank">info link</a>
 
-### Independent Film Festival Boston 2025
-
-**04/23 07:30PM - 04/30 07:30PM @ Boston Theaters**  
-Independent Film Festival Boston (IFFBoston) was started in 2003 to provide Boston with the type of film event it had been looking for: one that discovers emerging talent and celebrates the leading edge of cinematic story tellers.  
-<a href="https://iffboston.org/" target="_blank">info link</a>
-
 ### BOSTON COMICS IN COLOR FESTIVAL
 
 **04/25 06:00PM - 04/26 05:00PM @ Reggie Lewis Track and Athletic Center (Roxbury Community College)**  
@@ -201,23 +145,17 @@ The Boston Comics in Color Festival is a family-friendly event for all ages focu
 
 # Saturday, April 26, 2025
 
-### 1965 Freedom Rally 60th Anniversary
-
-**04/26 12:00PM - 04/26 02:30PM @ The Boston Common**  
-The year 2025 marks the 60th Anniversary of the 1965 Freedom Rally led by Dr.  
-<a href="https://www.embraceboston.org/1965-freedom-rally-60th-anniversary" target="_blank">info link</a>
-
 ### Courageous Sailing Open House: Saturday 4/26 Free Sailing!
 
 **04/26 11:00AM - 04/26 02:00PM @ Courageous Sailing Center- Pier 4 Charlestown**  
 Join us on Pier 4 in Charlestown (197 8th street) for FREE 20-minute sails for you and your family and friends.  
 <a href="https://courageoussailing.org/events/openhouse/" target="_blank">info link</a>
 
-### Earth Celebration! Harbor Park​, Pier 5 Boston Navy Yard
+### 1965 Freedom Rally 60th Anniversary
 
-**04/26 11:00AM - 04/26 05:00PM @ 197 8th St**  
-Join us for our fourth annual Earth Celebration.  
-<a href="https://www.eventbrite.com/e/earth-celebration-harbor-park-pier-5-boston-navy-yard-tickets-1291499572989" target="_blank">info link</a>
+**04/26 12:00PM - 04/26 02:30PM @ The Boston Common**  
+The year 2025 marks the 60th Anniversary of the 1965 Freedom Rally led by Dr.  
+<a href="https://www.embraceboston.org/1965-freedom-rally-60th-anniversary" target="_blank">info link</a>
 
 ### Japan Festival Boston 2025
 
@@ -225,17 +163,23 @@ Join us for our fourth annual Earth Celebration.
 The 2025 Japan Festival Boston will once again be hosted at the historic Boston Common on Saturday, April 26th and Sunday, April 27th.  
 <a href="https://www.japanfestivalboston.org/2024-festival" target="_blank">info link</a>
 
-### 26th Annual Earth Day Charles River Cleanup
+### Earth Celebration! Harbor Park​, Pier 5 Boston Navy Yard
 
-**04/25 10:00AM - 04/26 12:00PM @ Charles River**  
-Join us for the 26th year of the Earth Day Charles River Cleanup and give back to the river and parks that are a centerpiece of the community!  
-<a href="https://www.charlesrivercleanup.org/registration" target="_blank">info link</a>
+**04/26 11:00AM - 04/26 05:00PM @ 197 8th St**  
+Join us for our fourth annual Earth Celebration.  
+<a href="https://www.eventbrite.com/e/earth-celebration-harbor-park-pier-5-boston-navy-yard-tickets-1291499572989" target="_blank">info link</a>
 
 ### Earth Day n Night -  A 12 Hour Indie Music, Art & EDM Experience
 
 **04/26 01:00PM - 04/27 01:00AM @ The Great American Beer Hall**  
 Earth Day n Night isn’t just a festival—it’s an immersive celebration of music, local culture, and good vibes featuring headlining artists Ashes To Amber, MELT, Lyndsay Simon, ANATTA, and VO.  
 <a href="https://posh.vip/e/earth-day-n-night-experience-2025" target="_blank">info link</a>
+
+### 26th Annual Earth Day Charles River Cleanup
+
+**04/25 10:00AM - 04/26 12:00PM @ Charles River**  
+Join us for the 26th year of the Earth Day Charles River Cleanup and give back to the river and parks that are a centerpiece of the community!  
+<a href="https://www.charlesrivercleanup.org/registration" target="_blank">info link</a>
 
 ### FOUND Earth Fest Boston Vintage Market
 
@@ -255,6 +199,18 @@ As our state and federal governments continue to IGNORE the climate crisis and P
 The Boston Comics in Color Festival is a family-friendly event for all ages focusing on creators of color and stories by and about people of color.  
 <a href="https://www.comicsincolor.org/" target="_blank">info link</a>
 
+### World Tai Chi Day with Bow Sim Mark Tai Chi
+
+**04/26 10:00AM - 04/26 11:30AM @ Rose Fitzgerald Kennedy Greenway Conservancy**  
+Join the instructors, students, and friends of the Bow Sim Mark Tai Chi Arts Association in celebrating World Tai Chi Day once again on the Rose Kennedy Greenway!  
+<a href="https://www.facebook.com/events/565575825978098" target="_blank">info link</a>
+
+### “Hyper-Local” Art Market
+
+**04/26 01:00PM - 04/26 05:00PM @ Boston Figure Arts Center**  
+Come to Boston Figure Arts Center for the first ever HYPER-LOCAL market featuring over 30 local art vendors, live music, and a “Take 1, Leave 1” clothing swap run by @sustainableswaps!  
+<a href="https://www.instagram.com/p/DIeKSsSMnS8/?igsh=bDdiMG11cmh2ZHlz" target="_blank">info link</a>
+
 ### The Great Bookseller Bake-off 2025
 
 **04/26 04:00PM - 04/26 06:00PM @ Porter Square Books**  
@@ -266,18 +222,6 @@ The Great Bookseller Bake-off returns! As part of our annual Independent Booksto
 **04/26 11:00AM - 04/26 03:00PM @ The Shirley-Eustis House**  
 We’re so EGG-cited for this year’s Farm Day at the Shirley-Eustis House!  
 <a href="https://www.shirleyeustishouse.org/events/2025/dudley-farm-day" target="_blank">info link</a>
-
-### “Hyper-Local” Art Market
-
-**04/26 01:00PM - 04/26 05:00PM @ Boston Figure Arts Center**  
-Come to Boston Figure Arts Center for the first ever HYPER-LOCAL market featuring over 30 local art vendors, live music, and a “Take 1, Leave 1” clothing swap run by @sustainableswaps!  
-<a href="https://www.instagram.com/p/DIeKSsSMnS8/?igsh=bDdiMG11cmh2ZHlz" target="_blank">info link</a>
-
-### Dorchester Neighborhood Flea Market
-
-**04/26 10:00AM - 04/26 03:00PM @ Second Church**  
-Welcome to the Dorchester Neighborhood Flea Market!  
-<a href="https://dorchesterfleamarket.eventbrite.com" target="_blank">info link</a>
 
 ### Neponset River Spring Cleanup
 
@@ -291,11 +235,11 @@ Neponset River Spring Cleanup – Volunteers Needed!
 The Muddy River Cleanup is a part of the Annual Earth Day Charles River Cleanup; this event takes place throughout the Charles River Watershed and builds on a national effort as part of American Rivers’ National River Cleanup® which, to date, has removed over 25 million pounds of trash from America’s waterways.  
 <a href="https://www.emeraldnecklace.org/volunteer/muddy-river-cleanup/" target="_blank">info link</a>
 
-### World Tai Chi Day with Bow Sim Mark Tai Chi
+### Dorchester Neighborhood Flea Market
 
-**04/26 10:00AM - 04/26 11:30AM @ Rose Fitzgerald Kennedy Greenway Conservancy**  
-Join the instructors, students, and friends of the Bow Sim Mark Tai Chi Arts Association in celebrating World Tai Chi Day once again on the Rose Kennedy Greenway!  
-<a href="https://www.facebook.com/events/565575825978098" target="_blank">info link</a>
+**04/26 10:00AM - 04/26 03:00PM @ Second Church**  
+Welcome to the Dorchester Neighborhood Flea Market!  
+<a href="https://dorchesterfleamarket.eventbrite.com" target="_blank">info link</a>
 
 ### Abilities Dance Boston presents the fourth iteration of our Intersections series: highlighting BIPOC and disabled honorees past and present April 25th & 26, 2025
 
@@ -328,18 +272,18 @@ Complimentary Yoga and Sculpt Classes taught by Equinox Instructors are offered
 Jamaica Pond parkrun is a free, weekly, timed 5k around Jamaica Pond for people of all ages.  
 <a href="https://www.parkrun.us/jamaicapond/" target="_blank">info link</a>
 
+### Danehy Park parkrun 5k
+
+**04/26 09:00AM - 04/26 11:00AM @ Danehy Park**  
+parkrun is a FREE 5k and takes place every Saturday morning at Danehy Park in Cambridge.  
+<a href="https://www.parkrun.us/danehypark/" target="_blank">info link</a>
+
 ### KARAOKE THURSDAY-SATURDAY @SIDEBAR BOSTON
 
 **04/24 08:00PM - 04/26 01:55AM @ SIDEBAR BOSTON**  
 ⚠️‼️JOIN US FOR KARAOKE @SIDEBAR BOSTON THURSDAY- SATURDAY 8PM-2AM EVERY WEEK ‼️⚠️ 
 HERE FOR A GOOD TIME AND A LONG TIME ‼️  
 <a href="https://" target="_blank">info link</a>
-
-### Danehy Park parkrun 5k
-
-**04/26 09:00AM - 04/26 11:00AM @ Danehy Park**  
-parkrun is a FREE 5k and takes place every Saturday morning at Danehy Park in Cambridge.  
-<a href="https://www.parkrun.us/danehypark/" target="_blank">info link</a>
 
 ### Traditional Irish Music Sessions at The Druid
 
@@ -353,11 +297,11 @@ Traditional Irish Sessions are a long-standing tradition and well-known event at
 Back by popular demand, Boston Seaport's children's programming series, Seaport Smalls: Free Fun for your Tiny Crew.  
 <a href="https://www.eventbrite.com/e/seaport-smalls-tickets-1114020959679" target="_blank">info link</a>
 
-### Independent Film Festival Boston 2025
+### 1965 Freedom Rally 60th Anniversary
 
-**04/23 07:30PM - 04/30 07:30PM @ Boston Theaters**  
-Independent Film Festival Boston (IFFBoston) was started in 2003 to provide Boston with the type of film event it had been looking for: one that discovers emerging talent and celebrates the leading edge of cinematic story tellers.  
-<a href="https://iffboston.org/" target="_blank">info link</a>
+**04/26 12:00PM - 04/26 02:30PM @ The Boston Common**  
+The year 2025 marks the 60th Anniversary of the 1965 Freedom Rally led by Dr.  
+<a href="https://www.embraceboston.org/1965-freedom-rally-60th-anniversary" target="_blank">info link</a>
 
 ### Dudley Farm Day
 
@@ -365,23 +309,11 @@ Independent Film Festival Boston (IFFBoston) was started in 2003 to provide Bost
 We’re so EGG-cited for this year’s Farm Day at the Shirley-Eustis House!  
 <a href="https://www.shirleyeustishouse.org/events/2025/dudley-farm-day" target="_blank">info link</a>
 
-### 1965 Freedom Rally 60th Anniversary
-
-**04/26 12:00PM - 04/26 02:30PM @ The Boston Common**  
-The year 2025 marks the 60th Anniversary of the 1965 Freedom Rally led by Dr.  
-<a href="https://www.embraceboston.org/1965-freedom-rally-60th-anniversary" target="_blank">info link</a>
-
 ### Sheepshearing Festival
 
 **04/26 10:00AM - 04/26 05:00PM @ Gore Place**  
 Since 1987, this annual event has entertained guests with music, 100+ craft and fiber artists, demonstrations of traditional shearing and herding dogs, and historic re-enactors on the beautiful grounds of this historic, 50-acre estate.  
 <a href="https://goreplace.org/sheepshearing-festival" target="_blank">info link</a>
-
-### Massachusetts Craft Brewers Festival
-
-**04/26 01:00PM - 04/26 08:00PM @ Boston Center for the Arts, Cyclorama**  
-Raise a Glass to Independence: Celebrate Craft Beer’s Past, Present, and FutureMassachusetts Craft Brewers Festival Returns April 26, 2025The year was 1933, and America was ready to raise a glass.  
-<a href="https://www.massbrewersguild.org/masscraftbrewersfest" target="_blank">info link</a>
 
 ### BOSTON COMICS IN COLOR FESTIVAL
 
@@ -394,6 +326,12 @@ The Boston Comics in Color Festival is a family-friendly event for all ages focu
 **04/26 11:00AM - 04/27 05:00PM @ Boston Common**  
 The 2025 Japan Festival Boston will once again be hosted at the historic Boston Common on Saturday, April 26th and Sunday, April 27th.  
 <a href="https://www.japanfestivalboston.org/2024-festival" target="_blank">info link</a>
+
+### Massachusetts Craft Brewers Festival
+
+**04/26 01:00PM - 04/26 08:00PM @ Boston Center for the Arts, Cyclorama**  
+Raise a Glass to Independence: Celebrate Craft Beer’s Past, Present, and FutureMassachusetts Craft Brewers Festival Returns April 26, 2025The year was 1933, and America was ready to raise a glass.  
+<a href="https://www.massbrewersguild.org/masscraftbrewersfest" target="_blank">info link</a>
 
 # Sunday, April 27, 2025
 
@@ -439,29 +377,17 @@ Join us for a FREE open house at our Watertown location (100 Parker Street, Wate
 Join us every Sunday from 1pm-4pm for Coffee+Crafts!  
 <a href="https://www.bostonfibercompany.com" target="_blank">info link</a>
 
-### Poetry Open Mic at Trident
-
-**04/27 07:00PM - 04/27 09:00PM @ Trident Booksellers & Cafe**  
-Join us for a fun evening of open mic poetry!  
-<a href="https://www.tridentbookscafe.com/event/poetry-open-mic-1" target="_blank">info link</a>
-
 ### FREE Sunday Night Trivia at Noir Bar!
 
 **04/27 07:30PM - 04/27 09:30PM @ Noir Bar**  
 Noir Bar Sunday Night FREE Trivia – Starting January 12th, 2025!  
 <a href="https://www.noir-bar.com/" target="_blank">info link</a>
 
-### Independent Film Festival Boston 2025
+### Poetry Open Mic at Trident
 
-**04/23 07:30PM - 04/30 07:30PM @ Boston Theaters**  
-Independent Film Festival Boston (IFFBoston) was started in 2003 to provide Boston with the type of film event it had been looking for: one that discovers emerging talent and celebrates the leading edge of cinematic story tellers.  
-<a href="https://iffboston.org/" target="_blank">info link</a>
-
-### 29th Annual Greek Independence Day Parade & Festival of Boston
-
-**04/27 01:00PM - 04/27 04:00PM @ Boston Common**  
-The 29th Annual Greek Independence Day Parade of Boston will return on Sunday, April 27th, which will welcome nearly 100 registered Hellenic groups marching along Boston’s Boylston Street in commemoration of Greece’s independence from Ottoman Rule, which began on March 25, 1821.  
-<a href="https://www.greekboston.com/event/greek-independence-parade/" target="_blank">info link</a>
+**04/27 07:00PM - 04/27 09:00PM @ Trident Booksellers & Cafe**  
+Join us for a fun evening of open mic poetry!  
+<a href="https://www.tridentbookscafe.com/event/poetry-open-mic-1" target="_blank">info link</a>
 
 ### Japan Festival Boston 2025
 
@@ -469,19 +395,15 @@ The 29th Annual Greek Independence Day Parade of Boston will return on Sunday, A
 The 2025 Japan Festival Boston will once again be hosted at the historic Boston Common on Saturday, April 26th and Sunday, April 27th.  
 <a href="https://www.japanfestivalboston.org/2024-festival" target="_blank">info link</a>
 
+### 29th Annual Greek Independence Day Parade & Festival of Boston
+
+**04/27 01:00PM - 04/27 04:00PM @ Boston Common**  
+The 29th Annual Greek Independence Day Parade of Boston will return on Sunday, April 27th, which will welcome nearly 100 registered Hellenic groups marching along Boston’s Boylston Street in commemoration of Greece’s independence from Ottoman Rule, which began on March 25, 1821.  
+<a href="https://www.greekboston.com/event/greek-independence-parade/" target="_blank">info link</a>
+
 # Monday, April 28, 2025
-
-### Independent Film Festival Boston 2025
-
-**04/23 07:30PM - 04/30 07:30PM @ Boston Theaters**  
-Independent Film Festival Boston (IFFBoston) was started in 2003 to provide Boston with the type of film event it had been looking for: one that discovers emerging talent and celebrates the leading edge of cinematic story tellers.  
-<a href="https://iffboston.org/" target="_blank">info link</a>
 
 # Tuesday, April 29, 2025
 
-### Independent Film Festival Boston 2025
-
-**04/23 07:30PM - 04/30 07:30PM @ Boston Theaters**  
-Independent Film Festival Boston (IFFBoston) was started in 2003 to provide Boston with the type of film event it had been looking for: one that discovers emerging talent and celebrates the leading edge of cinematic story tellers.  
-<a href="https://iffboston.org/" target="_blank">info link</a>
+# Wednesday, April 30, 2025
 
