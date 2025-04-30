@@ -1,42 +1,4 @@
-# Tuesday, April 29, 2025
-
-### Meet Boston Regional Career Fair
-
-**04/29 11:00AM - 04/29 03:00PM @ Hyatt Regency Boston**  
-Boston’s hospitality industry is booming and employers are looking to fill hundreds of open positions!  
-<a href="https://www.meetboston.com/partners/current-partners/partner-events/career-fair/?utm_source=digital&utm_medium=boston_calendar" target="_blank">info link</a>
-
-### Celebrating YardArt Watertown 2025
-
-**04/29 05:30PM - 04/29 07:30PM @ Mosesian Center for the Arts**  
-Celebrate YardArt Watertown 2025! Join us at the Mosesian Center for the Arts to meet fellow YardArtists and celebrate creativity in our community.  
-<a href="https://www.eventbrite.com/e/celebrating-yardart-watertown-2025-tickets-1312888247089" target="_blank">info link</a>
-
-### Arts Action Consortium Launch Party
-
-**04/29 06:00PM - 04/29 09:00PM @ CROMA**  
-Six leading cultural organizations have joined forces to form the Arts Action Consortium (AAC), a dynamic collective dedicated to empowering Boston artists with the resources they need to thrive.  
-<a href="https://www.boston.gov/calendar/arts-action-consortium-launch-party" target="_blank">info link</a>
-
-### Drop The Mic Karaoke
-
-**04/29 11:00PM - 04/30 02:00AM @ An Sibin**  
-Fun late night Karaoke, Hosted by local Comedian Scotty Lombardo.  
-<a href="https://" target="_blank">info link</a>
-
-### FREE Music Bingo at CanalSide Food + Drink at CambridgeSide
-
-**04/29 06:00PM - 04/29 08:00PM @ CanalSide at CambridgeSide**  
-Get ready to tap your toes and test your musical knowledge with Musical Bingo, a captivating game show that combines the thrill of bingo with the charm of melodies.  
-<a href="https://www.cambridgeside.com/events/" target="_blank">info link</a>
-
 # Wednesday, April 30, 2025
-
-### The Sixth Annual MIT Playwrights Lab-Hereafter
-
-**04/30 08:00PM - 04/30 09:00PM @ MIT Theater Arts Building**  
-The Sixth Annual MIT Playwrights LabA weeks-long festival of new student plays from Senior Lecturer Ken Urban’s Course 21T.  
-<a href="https://www.eventbrite.com/e/the-sixth-annual-mit-playwrights-lab-tickets-1255883714999?aff=oddtdtcreator" target="_blank">info link</a>
 
 ### Climate Tech on the Plaza and Block Party
 
@@ -44,17 +6,17 @@ The Sixth Annual MIT Playwrights LabA weeks-long festival of new student plays f
 Climate Tech on the Plaza offers a unique opportunity for forward-thinking companies to present their cutting-edge technologies to mitigate and combat climate change.  
 <a href="https://www.boston.gov/departments/economic-opportunity-and-inclusion/climate-tech-plaza" target="_blank">info link</a>
 
+### The Sixth Annual MIT Playwrights Lab-Hereafter
+
+**04/30 08:00PM - 04/30 09:00PM @ MIT Theater Arts Building**  
+The Sixth Annual MIT Playwrights LabA weeks-long festival of new student plays from Senior Lecturer Ken Urban’s Course 21T.  
+<a href="https://www.eventbrite.com/e/the-sixth-annual-mit-playwrights-lab-tickets-1255883714999?aff=oddtdtcreator" target="_blank">info link</a>
+
 ### Volunteer Expo at Prudential Center
 
 **04/30 04:30PM - 04/30 06:30PM @ Prudential Center**  
 The 18th Annual Volunteer Expo seeks to assist local nonprofit organizations in their search for volunteers.  
 <a href="https://www.prudentialcenter.com/experiences/events/volunteer-expo-25/" target="_blank">info link</a>
-
-### Drop The Mic Karaoke
-
-**04/29 11:00PM - 04/30 02:00AM @ An Sibin**  
-Fun late night Karaoke, Hosted by local Comedian Scotty Lombardo.  
-<a href="https://" target="_blank">info link</a>
 
 ### 20s and 30s Trivia at PLAY Boston!
 
@@ -304,12 +266,6 @@ Every spring, Bostonians representing every neighborhood unite to showcase their
 Games return to Roundhead Brewing in Hyde Park, MA with a special edition Play Playe: Game Night for Adults on Saturday, May 3, 2025 from 7-10 PM – filled with the best local music artists, delicious artisan pizzas, and fresh craft brews from the first Latino-owned brewery in New England.  
 <a href="https://www.departurearts.org/events/playplayemay" target="_blank">info link</a>
 
-### Jamaica Pond parkrun
-
-**05/03 09:00AM - 05/03 11:00AM @ Jamaica Pond**  
-Jamaica Pond parkrun is a free, weekly, timed 5k around Jamaica Pond for people of all ages.  
-<a href="https://www.parkrun.us/jamaicapond/" target="_blank">info link</a>
-
 ### Danehy Park parkrun 5k
 
 **05/03 09:00AM - 05/03 11:00AM @ Danehy Park**  
@@ -323,6 +279,12 @@ parkrun is a FREE 5k and takes place every Saturday morning at Danehy Park in Ca
 HERE FOR A GOOD TIME AND A LONG TIME ‼️  
 <a href="https://" target="_blank">info link</a>
 
+### Jamaica Pond parkrun
+
+**05/03 09:00AM - 05/03 11:00AM @ Jamaica Pond**  
+Jamaica Pond parkrun is a free, weekly, timed 5k around Jamaica Pond for people of all ages.  
+<a href="https://www.parkrun.us/jamaicapond/" target="_blank">info link</a>
+
 ### Traditional Irish Music Sessions at The Druid
 
 **05/03 04:00PM - 05/03 11:00PM @ The Druid**  
@@ -334,6 +296,12 @@ Traditional Irish Sessions are a long-standing tradition and well-known event at
 **05/03 10:00AM - 05/03 11:00AM @ The Paseo at 111 Harbor Way**  
 Back by popular demand, Boston Seaport's children's programming series, Seaport Smalls: Free Fun for your Tiny Crew.  
 <a href="https://www.eventbrite.com/e/seaport-smalls-tickets-1308146885549" target="_blank">info link</a>
+
+### Wicked New England - Halfway to Halloween Festival
+
+**05/03 11:00AM - 05/03 07:00PM @ Old Town Hall**  
+A Halfway to Halloween Festival for those who can't wait for spooky season!  
+<a href="https://www.halloweennewengland.com/events/wicked-new-england-halloween-festival" target="_blank">info link</a>
 
 ### Tulip Fest - May 3-4 & 10-11
 
@@ -355,17 +323,11 @@ SOMERVILLE OPEN STUDIOS 2025Sat + Sun, MAY 3 + 4, 12–6 pm400 artists • 100+ 
 The 40th Annual Mayfair hits the streets of Harvard Square on Sunday, May 4 (rain date: May 18).  
 <a href="https://www.harvardsquare.com/40th-annual-harvard-square-mayfair/" target="_blank">info link</a>
 
-### 2025 SoWa Open Market
+### 3rd Annual Asian Street Food and Music Festival at the 40th Harvard Square Mayfair
 
-**05/04 11:00AM - 05/04 05:00PM @ SoWa Open Market**  
-Join us every weekend starting in May 4, 2025!  
-<a href="https://www.sowaboston.com/sowa-open-market/" target="_blank">info link</a>
-
-### The Lawn On D: A Public Park in Boston's Seaport with Pickleball, Games, Live Music, Drinks, Food & More
-
-**05/02 07:00AM - 10/31 11:00PM @ The Lawn on D**  
-THE LAWN ON D OPENS FRIDAY, MAY 2!We’re excited to get this season underway!  
-<a href="https://www.signatureboston.com/lawn-on-d" target="_blank">info link</a>
+**05/04 11:00AM - 05/04 06:00PM @ Harvard Square (Church Street parking lot)**  
+The 40th Annual MayFair and the 3rd Asian Street Food & Music Festival  is presented by The Harvard Square Business Association in cooperation with the Harvard Square Philippine American Alliance.  
+<a href="https://www.harvardsquare.com/40th-annual-harvard-square-mayfair/" target="_blank">info link</a>
 
 ### Cinco de Mayo at Bow Market
 
@@ -373,17 +335,23 @@ THE LAWN ON D OPENS FRIDAY, MAY 2!We’re excited to get this season underway!
 Cinco Comes Early at Bow – Sunday, May 4th!  
 <a href="https://www.bowmarketsomerville.com/upcomingevents/cinco-comes-early-at-bow-sunday-may-4th" target="_blank">info link</a>
 
-### 3rd Annual Asian Street Food and Music Festival at the 40th Harvard Square Mayfair
+### The Lawn On D: A Public Park in Boston's Seaport with Pickleball, Games, Live Music, Drinks, Food & More
 
-**05/04 11:00AM - 05/04 06:00PM @ Harvard Square (Church Street parking lot)**  
-The 40th Annual MayFair and the 3rd Asian Street Food & Music Festival  is presented by The Harvard Square Business Association in cooperation with the Harvard Square Philippine American Alliance.  
-<a href="https://www.harvardsquare.com/40th-annual-harvard-square-mayfair/" target="_blank">info link</a>
+**05/02 07:00AM - 10/31 11:00PM @ The Lawn on D**  
+THE LAWN ON D OPENS FRIDAY, MAY 2!We’re excited to get this season underway!  
+<a href="https://www.signatureboston.com/lawn-on-d" target="_blank">info link</a>
 
 ### SoWa Sundays/ SoWa Art Walk
 
 **05/04 11:00AM - 05/04 05:00PM @ SoWa Art + Design District**  
 MAY SUNDAYS ARE IN FULL BLOOM.There is only one 450 Harrison Ave.  
 <a href="https://" target="_blank">info link</a>
+
+### 2025 SoWa Open Market
+
+**05/04 11:00AM - 05/04 05:00PM @ SoWa Open Market**  
+Join us every weekend starting in May 4, 2025!  
+<a href="https://www.sowaboston.com/sowa-open-market/" target="_blank">info link</a>
 
 ### Harvard Arts Festival
 
@@ -403,17 +371,17 @@ Our first ever full weekend market at the Elks Lodge!
 Enjoy blooming orchard walks, hard cider bars, free live music, food truck and fitness events, family activities, pop-up events and cut-your-own tulips.  
 <a href="https://www.ciderhill.com/tulipfest" target="_blank">info link</a>
 
-### The Overlook Rooftop Cinco de Mayo Party Legal Harborside
-
-**05/04 01:00PM - 05/04 06:00PM @ Harborside The Overlook**  
-Join Legal Sea Foods on Sunday, May 4th from 1PM – 6PM to celebrate Cinco de Mayo at The Overlook, their third floor roof deck and bar at Harborside!  
-<a href="https://www.legalseafoods.com/whats-on/cinco-de-mayo/" target="_blank">info link</a>
-
 ### Greenway Artisan Market
 
 **05/03 11:00AM - 05/04 05:00PM @ Rose Kennedy Greenway**  
 A vibrant open-air market featuring talented area artists, makers, stylists and independent designers on the Boston Waterfront.  
 <a href="https://www.greenwayartisanmarket.com/" target="_blank">info link</a>
+
+### The Overlook Rooftop Cinco de Mayo Party Legal Harborside
+
+**05/04 01:00PM - 05/04 06:00PM @ Harborside The Overlook**  
+Join Legal Sea Foods on Sunday, May 4th from 1PM – 6PM to celebrate Cinco de Mayo at The Overlook, their third floor roof deck and bar at Harborside!  
+<a href="https://www.legalseafoods.com/whats-on/cinco-de-mayo/" target="_blank">info link</a>
 
 ### Star Wars Movie Marathon at Lamplighter CX
 
@@ -438,6 +406,12 @@ It is a time of great celebration. Rebel readers from across the galaxy, prepare
 **05/04 05:00PM - 05/04 09:30PM @ The Substation**  
 Join us for a movie night at The Substation!  
 <a href="https://www.eventbrite.com/e/roslindale-film-society-fantastic-mr-fox-2009-tickets-1303392795939" target="_blank">info link</a>
+
+### May the Fourth be With You - Star Wars Trivia
+
+**05/04 05:00PM - 05/04 07:00PM @ Craft Food Halls - Cambridge**  
+If you've never been to Craft Food Halls you're in for a treat with our self-pour beer wall with 24 taps, delicious food, and creative cocktails.  
+<a href="https://www.eventbrite.com/e/may-the-fourth-be-with-you-star-wars-trivia-tickets-1330301279939" target="_blank">info link</a>
 
 ### Formula 1: Miami Grand Prix group watching
 
@@ -470,6 +444,26 @@ Enjoy blooming orchard walks, hard cider bars, free live music, food truck and f
 <a href="https://www.ciderhill.com/tulipfest" target="_blank">info link</a>
 
 # Monday, May 05, 2025
+
+### The Lawn On D: A Public Park in Boston's Seaport with Pickleball, Games, Live Music, Drinks, Food & More
+
+**05/02 07:00AM - 10/31 11:00PM @ The Lawn on D**  
+THE LAWN ON D OPENS FRIDAY, MAY 2!We’re excited to get this season underway!  
+<a href="https://www.signatureboston.com/lawn-on-d" target="_blank">info link</a>
+
+### Tulip Fest - May 3-4 & 10-11
+
+**05/03 08:30AM - 05/11 04:30PM @ Cider Hill Farm**  
+Enjoy blooming orchard walks, hard cider bars, free live music, food truck and fitness events, family activities, pop-up events and cut-your-own tulips.  
+<a href="https://www.ciderhill.com/tulipfest" target="_blank">info link</a>
+
+### Tulip Fest - May 3-4 & 10-11
+
+**05/03 08:30AM - 05/11 04:30PM @ Cider Hill Farm**  
+Enjoy blooming orchard walks, hard cider bars, free live music, food truck and fitness events, family activities, pop-up events and cut-your-own tulips.  
+<a href="https://www.ciderhill.com/tulipfest" target="_blank">info link</a>
+
+# Tuesday, May 06, 2025
 
 ### The Lawn On D: A Public Park in Boston's Seaport with Pickleball, Games, Live Music, Drinks, Food & More
 
