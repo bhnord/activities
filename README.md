@@ -1,47 +1,3 @@
-# Wednesday, April 30, 2025
-
-### Climate Tech on the Plaza and Block Party
-
-**04/30 10:00AM - 04/30 07:00PM @ Boston City Hall Plaza**  
-Climate Tech on the Plaza offers a unique opportunity for forward-thinking companies to present their cutting-edge technologies to mitigate and combat climate change.  
-<a href="https://www.boston.gov/departments/economic-opportunity-and-inclusion/climate-tech-plaza" target="_blank">info link</a>
-
-### The Sixth Annual MIT Playwrights Lab-Hereafter
-
-**04/30 08:00PM - 04/30 09:00PM @ MIT Theater Arts Building**  
-The Sixth Annual MIT Playwrights LabA weeks-long festival of new student plays from Senior Lecturer Ken Urban’s Course 21T.  
-<a href="https://www.eventbrite.com/e/the-sixth-annual-mit-playwrights-lab-tickets-1255883714999?aff=oddtdtcreator" target="_blank">info link</a>
-
-### Volunteer Expo at Prudential Center
-
-**04/30 04:30PM - 04/30 06:30PM @ Prudential Center**  
-The 18th Annual Volunteer Expo seeks to assist local nonprofit organizations in their search for volunteers.  
-<a href="https://www.prudentialcenter.com/experiences/events/volunteer-expo-25/" target="_blank">info link</a>
-
-### 20s and 30s Trivia at PLAY Boston!
-
-**04/30 07:00PM - 04/30 09:30PM @ PLAY Boston**  
-Hi, my name is Tal and I run the Make Friends After College group on Facebook.  
-<a href="https://" target="_blank">info link</a>
-
-### Survivor Weekly Watch Party
-
-**04/30 08:00PM - 04/30 10:00PM @ Lamplighter Brewing CX**  
-Join us every Wednesday at Lamplighter CX for a Survivor watch party you won’t want to miss!  
-<a href="https://www.eventbrite.com/e/survivor-weekly-watch-party-tickets-1246453799869?aff=oddtdtcreator" target="_blank">info link</a>
-
-### Jeopardy Bar League at Long Live Roxbury
-
-**04/30 07:00PM - 04/30 09:00PM @ Long Live Roxbury**  
-Teams play along and compete against each other using their smartphones through an interactive Jeopardy!  
-<a href="https://www.longlivebeerworks.com/boston-taproom" target="_blank">info link</a>
-
-### November Project: Stair Workout at Harvard Stadium
-
-**04/30 05:55AM - 04/30 07:00AM @ Harvard Stadium**  
-Located in lower Allston, Harvard Stadium is one of the favorite workout spots of the November Project™ members.  
-<a href="https://november-project.com/stadium/" target="_blank">info link</a>
-
 # Thursday, May 01, 2025
 
 ### Harvard Arts Festival
@@ -155,18 +111,18 @@ Join us with DJs RaDJoy and Stealthmode as they spin vinyl classics and faves.
 The Fed at The Langham, Boston presents Jazz Fridays with Speechless Music!  
 <a href="https://www.opentable.com/r/the-fed-at-the-langham-boston" target="_blank">info link</a>
 
+### Friday Night Trivia
+
+**05/02 07:00PM - 05/02 09:00PM @ Trident Booksellers and Cafe**  
+Join us for seven rounds of general knowledge trivia, every Friday at 7 pm!  
+<a href="https://tridentbookscafe.com/events" target="_blank">info link</a>
+
 ### KARAOKE THURSDAY-SATURDAY @SIDEBAR BOSTON
 
 **05/01 08:00PM - 05/03 01:55AM @ SIDEBAR BOSTON**  
 ⚠️‼️JOIN US FOR KARAOKE @SIDEBAR BOSTON THURSDAY- SATURDAY 8PM-2AM EVERY WEEK ‼️⚠️ 
 HERE FOR A GOOD TIME AND A LONG TIME ‼️  
 <a href="https://" target="_blank">info link</a>
-
-### Friday Night Trivia
-
-**05/02 07:00PM - 05/02 09:00PM @ Trident Booksellers and Cafe**  
-Join us for seven rounds of general knowledge trivia, every Friday at 7 pm!  
-<a href="https://tridentbookscafe.com/events" target="_blank">info link</a>
 
 # Saturday, May 03, 2025
 
@@ -218,17 +174,17 @@ A vibrant open-air market featuring talented area artists, makers, stylists and 
 Join us for a fun spring event for all ages with a scavenger hunt, tastings, recipe card collection, and a raffle!  
 <a href="https://www.eventbrite.com/e/north-cambridge-spring-stroll-tickets-1323164232839?aff=oddtdtcreator" target="_blank">info link</a>
 
-### GISB Flea Market – Flohmarkt
-
-**05/03 01:00PM - 05/03 04:00PM @ German International School Boston**  
-Mark your calendar! The Annual GISB Flea Market is happening on Saturday, May 3, from 1:00 – 4:00 PM at the GISB Upper Campus on Holton Street in Boston.  
-<a href="https://gisbos.org/de/flea-market/" target="_blank">info link</a>
-
 ### Lucky 7's: Anniversary PARTY
 
 **05/03 12:00PM - 05/03 07:00PM @ Remnant Brewing**  
 We’re turning 7!  🎉Come celebrate with us on May 3rd from noon to 5pm at Remnant Brewing.  
 <a href="https://www.tickettailor.com/events/satellite2/1671436" target="_blank">info link</a>
+
+### GISB Flea Market – Flohmarkt
+
+**05/03 01:00PM - 05/03 04:00PM @ German International School Boston**  
+Mark your calendar! The Annual GISB Flea Market is happening on Saturday, May 3, from 1:00 – 4:00 PM at the GISB Upper Campus on Holton Street in Boston.  
+<a href="https://gisbos.org/de/flea-market/" target="_blank">info link</a>
 
 ### Derby Day at Time Out Market
 
@@ -266,6 +222,12 @@ Every spring, Bostonians representing every neighborhood unite to showcase their
 Games return to Roundhead Brewing in Hyde Park, MA with a special edition Play Playe: Game Night for Adults on Saturday, May 3, 2025 from 7-10 PM – filled with the best local music artists, delicious artisan pizzas, and fresh craft brews from the first Latino-owned brewery in New England.  
 <a href="https://www.departurearts.org/events/playplayemay" target="_blank">info link</a>
 
+### Jamaica Pond parkrun
+
+**05/03 09:00AM - 05/03 11:00AM @ Jamaica Pond**  
+Jamaica Pond parkrun is a free, weekly, timed 5k around Jamaica Pond for people of all ages.  
+<a href="https://www.parkrun.us/jamaicapond/" target="_blank">info link</a>
+
 ### Danehy Park parkrun 5k
 
 **05/03 09:00AM - 05/03 11:00AM @ Danehy Park**  
@@ -278,12 +240,6 @@ parkrun is a FREE 5k and takes place every Saturday morning at Danehy Park in Ca
 ⚠️‼️JOIN US FOR KARAOKE @SIDEBAR BOSTON THURSDAY- SATURDAY 8PM-2AM EVERY WEEK ‼️⚠️ 
 HERE FOR A GOOD TIME AND A LONG TIME ‼️  
 <a href="https://" target="_blank">info link</a>
-
-### Jamaica Pond parkrun
-
-**05/03 09:00AM - 05/03 11:00AM @ Jamaica Pond**  
-Jamaica Pond parkrun is a free, weekly, timed 5k around Jamaica Pond for people of all ages.  
-<a href="https://www.parkrun.us/jamaicapond/" target="_blank">info link</a>
 
 ### Traditional Irish Music Sessions at The Druid
 
@@ -317,16 +273,16 @@ Enjoy blooming orchard walks, hard cider bars, free live music, food truck and f
 SOMERVILLE OPEN STUDIOS 2025Sat + Sun, MAY 3 + 4, 12–6 pm400 artists • 100+ locations citywide • Free entry + trolleyFor the 26th year, Somerville Open Studios spotlights our diverse community of visual artists, arts organizations, and cultural supporters.  
 <a href="https://www.somervilleopenstudios.org" target="_blank">info link</a>
 
+### 2025 SoWa Open Market
+
+**05/04 11:00AM - 05/04 05:00PM @ SoWa Open Market**  
+Join us every weekend starting in May 4, 2025!  
+<a href="https://www.sowaboston.com/sowa-open-market/" target="_blank">info link</a>
+
 ### 40th Annual Mayfair in Harvard Square
 
 **05/04 11:00AM - 05/04 06:00PM @ Harvard Square**  
 The 40th Annual Mayfair hits the streets of Harvard Square on Sunday, May 4 (rain date: May 18).  
-<a href="https://www.harvardsquare.com/40th-annual-harvard-square-mayfair/" target="_blank">info link</a>
-
-### 3rd Annual Asian Street Food and Music Festival at the 40th Harvard Square Mayfair
-
-**05/04 11:00AM - 05/04 06:00PM @ Harvard Square (Church Street parking lot)**  
-The 40th Annual MayFair and the 3rd Asian Street Food & Music Festival  is presented by The Harvard Square Business Association in cooperation with the Harvard Square Philippine American Alliance.  
 <a href="https://www.harvardsquare.com/40th-annual-harvard-square-mayfair/" target="_blank">info link</a>
 
 ### Cinco de Mayo at Bow Market
@@ -347,11 +303,11 @@ THE LAWN ON D OPENS FRIDAY, MAY 2!We’re excited to get this season underway!
 MAY SUNDAYS ARE IN FULL BLOOM.There is only one 450 Harrison Ave.  
 <a href="https://" target="_blank">info link</a>
 
-### 2025 SoWa Open Market
+### 3rd Annual Asian Street Food and Music Festival at the 40th Harvard Square Mayfair
 
-**05/04 11:00AM - 05/04 05:00PM @ SoWa Open Market**  
-Join us every weekend starting in May 4, 2025!  
-<a href="https://www.sowaboston.com/sowa-open-market/" target="_blank">info link</a>
+**05/04 11:00AM - 05/04 06:00PM @ Harvard Square (Church Street parking lot)**  
+The 40th Annual MayFair and the 3rd Asian Street Food & Music Festival  is presented by The Harvard Square Business Association in cooperation with the Harvard Square Philippine American Alliance.  
+<a href="https://www.harvardsquare.com/40th-annual-harvard-square-mayfair/" target="_blank">info link</a>
 
 ### Harvard Arts Festival
 
@@ -464,6 +420,26 @@ Enjoy blooming orchard walks, hard cider bars, free live music, food truck and f
 <a href="https://www.ciderhill.com/tulipfest" target="_blank">info link</a>
 
 # Tuesday, May 06, 2025
+
+### The Lawn On D: A Public Park in Boston's Seaport with Pickleball, Games, Live Music, Drinks, Food & More
+
+**05/02 07:00AM - 10/31 11:00PM @ The Lawn on D**  
+THE LAWN ON D OPENS FRIDAY, MAY 2!We’re excited to get this season underway!  
+<a href="https://www.signatureboston.com/lawn-on-d" target="_blank">info link</a>
+
+### Tulip Fest - May 3-4 & 10-11
+
+**05/03 08:30AM - 05/11 04:30PM @ Cider Hill Farm**  
+Enjoy blooming orchard walks, hard cider bars, free live music, food truck and fitness events, family activities, pop-up events and cut-your-own tulips.  
+<a href="https://www.ciderhill.com/tulipfest" target="_blank">info link</a>
+
+### Tulip Fest - May 3-4 & 10-11
+
+**05/03 08:30AM - 05/11 04:30PM @ Cider Hill Farm**  
+Enjoy blooming orchard walks, hard cider bars, free live music, food truck and fitness events, family activities, pop-up events and cut-your-own tulips.  
+<a href="https://www.ciderhill.com/tulipfest" target="_blank">info link</a>
+
+# Wednesday, May 07, 2025
 
 ### The Lawn On D: A Public Park in Boston's Seaport with Pickleball, Games, Live Music, Drinks, Food & More
 
