@@ -1,17 +1,3 @@
-# Tuesday, May 06, 2025
-
-### Star Wars Trivia w/ Geeks Who Drink
-
-**05/06 06:00PM - 05/06 08:00PM @ Sam Adams Downtown Boston Taproom**  
-You might really need the force for this night so you better do everything you can to make sure it's with you.  
-<a href="https://www.eventbrite.com/e/star-wars-trivia-w-geeks-who-drink-tickets-1242678307269" target="_blank">info link</a>
-
-### Drop The Mic Karaoke
-
-**05/06 11:00PM - 05/07 02:00AM @ An Sibin**  
-Fun late night Karaoke, Hosted by local Comedian Scotty Lombardo.  
-<a href="https://" target="_blank">info link</a>
-
 # Wednesday, May 07, 2025
 
 ### South End Spring Stroll
@@ -38,6 +24,12 @@ Astronomy on Tap is back to Boston at Aeronaut Brewing Co.
 ‼️PLEASE RSVP HERE: https://partiful.com/e/7xU0paKQlY7aeEpJV1vVHey babes!  
 <a href="https://partiful.com/e/7xU0paKQlY7aeEpJV1vV" target="_blank">info link</a>
 
+### Grand Ten Line Dancin' Lessons
+
+**05/07 06:30PM - 05/07 09:30PM @ Grand Ten Distilling**  
+Mosey on down to South Boston on the 1st and 3rd Wednesdays of the month for three hours of line dance breakdowns and walk throughs.  
+<a href="https://" target="_blank">info link</a>
+
 ### Off The Cuff 2: Open Jam Session
 
 **05/07 06:00PM - 05/07 08:00PM @ The Lab**  
@@ -50,23 +42,11 @@ Come join Loudlands Music Lab for our second open jam and music hang.
 Looking for a special way to celebrate the amazing women in your life?  
 <a href="https://www.bostonwomensmarket.com/events-calendar/boston-womens-market-at-atlantic-ave-mothers-day-market" target="_blank">info link</a>
 
-### Grand Ten Line Dancin' Lessons
-
-**05/07 06:30PM - 05/07 09:30PM @ Grand Ten Distilling**  
-Mosey on down to South Boston on the 1st and 3rd Wednesdays of the month for three hours of line dance breakdowns and walk throughs.  
-<a href="https://" target="_blank">info link</a>
-
 ### Film Screening: Exit Through the Gift Shop
 
 **05/07 02:00PM - 05/07 03:30PM @ Harvard Art Museums**  
 Join us for a fascinating look at the chaos, creativity, and commercialization of street art, in this film by Banksy that blurs the lines between documentary and art-world satire.  
 <a href="https://bit.ly/4jFqmE8" target="_blank">info link</a>
-
-### Drop The Mic Karaoke
-
-**05/06 11:00PM - 05/07 02:00AM @ An Sibin**  
-Fun late night Karaoke, Hosted by local Comedian Scotty Lombardo.  
-<a href="https://" target="_blank">info link</a>
 
 ### Drag Bingo
 
@@ -86,11 +66,11 @@ Teams play along and compete against each other using their smartphones through 
 Located in lower Allston, Harvard Stadium is one of the favorite workout spots of the November Project™ members.  
 <a href="https://november-project.com/stadium/" target="_blank">info link</a>
 
-### Mother’s Day Market at Atlantic Wharf
+### South End Spring Stroll
 
-**05/07 04:30PM - 05/07 07:00PM @ Atlantic Wharf**  
-Looking for a special way to celebrate the amazing women in your life?  
-<a href="https://www.bostonwomensmarket.com/events-calendar/boston-womens-market-at-atlantic-ave-mothers-day-market" target="_blank">info link</a>
+**05/07 04:00PM - 05/07 09:00PM @ South End**  
+South End Business Alliance is thrilled to announce the annual South End Spring Stroll on Wednesday, May 7th from 4-8pm!  
+<a href="https://www.instagram.com/southendbusiness/" target="_blank">info link</a>
 
 ### Astronomy on Tap Boston: The Dark Side of the Force
 
@@ -104,11 +84,11 @@ Astronomy on Tap is back to Boston at Aeronaut Brewing Co.
 Mosey on down to South Boston on the 1st and 3rd Wednesdays of the month for three hours of line dance breakdowns and walk throughs.  
 <a href="https://" target="_blank">info link</a>
 
-### South End Spring Stroll
+### Mother’s Day Market at Atlantic Wharf
 
-**05/07 04:00PM - 05/07 09:00PM @ South End**  
-South End Business Alliance is thrilled to announce the annual South End Spring Stroll on Wednesday, May 7th from 4-8pm!  
-<a href="https://www.instagram.com/southendbusiness/" target="_blank">info link</a>
+**05/07 04:30PM - 05/07 07:00PM @ Atlantic Wharf**  
+Looking for a special way to celebrate the amazing women in your life?  
+<a href="https://www.bostonwomensmarket.com/events-calendar/boston-womens-market-at-atlantic-ave-mothers-day-market" target="_blank">info link</a>
 
 # Thursday, May 08, 2025
 
@@ -193,17 +173,17 @@ Hi, my name is Tal and I run the Make Friends After College group on Facebook.
 Step into a nostalgic time warp at our exclusive 21+ Game Night, where we're turning up the voltage for an unforgettable evening!  
 <a href="https://www.eventbrite.com/e/retro-video-game-night-castle-island-south-boston-tickets-1312321772749?aff=oddtdtcreator" target="_blank">info link</a>
 
-### Downtown Boston Arts Market
-
-**05/08 11:00AM - 05/09 05:00PM @ Downtown Crossing**  
-Operating in Downtown Crossing on Summer Street Plaza between Macy’s and Roche Bros.  
-<a href="https://www.facebook.com/events/1476255992770517/1476255999437183" target="_blank">info link</a>
-
 ### Free outdoor meditation @ Boston Public Garden
 
 **05/09 06:30PM - 05/09 07:15PM @ Boston Public Garden**  
 Curious about meditation and mindfulness? Let’s enjoy some FREE outdoor meditation in the beautiful surroundings of Boston Public Garden together!  
 <a href="https://www.meditationinboston.org/outdoor-meditation" target="_blank">info link</a>
+
+### Downtown Boston Arts Market
+
+**05/08 11:00AM - 05/09 05:00PM @ Downtown Crossing**  
+Operating in Downtown Crossing on Summer Street Plaza between Macy’s and Roche Bros.  
+<a href="https://www.facebook.com/events/1476255992770517/1476255999437183" target="_blank">info link</a>
 
 ### Last Boss Beer Release Party
 
@@ -254,17 +234,17 @@ Curious about meditation and mindfulness? Let’s enjoy some FREE outdoor medita
 Team up, meet some new friends, play some games, and try out our new beer The Last Boss, which is a delicious blueberry blackberry sour, perfect to fuel your battle with the final Boss.  
 <a href="https://www.eventbrite.com/e/sam-adams-last-boss-release-game-night-tickets-1319024621149?aff=oddtdtcreator" target="_blank">info link</a>
 
-### GyroFest
-
-**05/09 04:00PM - 05/10 11:00PM @ Dormition Greek Church**  
-🇬🇷✨ Save the Date for Our May Mini Festival!  
-<a href="https://allevents.in/somerville/greek-gyrofest-2025-somerville/200027949856630" target="_blank">info link</a>
-
 ### Retro Video Game Night @ Castle Island South Boston
 
 **05/09 07:00PM - 05/09 10:00PM @ Castle Island Brewing Co**  
 Step into a nostalgic time warp at our exclusive 21+ Game Night, where we're turning up the voltage for an unforgettable evening!  
 <a href="https://www.eventbrite.com/e/retro-video-game-night-castle-island-south-boston-tickets-1312321772749?aff=oddtdtcreator" target="_blank">info link</a>
+
+### GyroFest
+
+**05/09 04:00PM - 05/10 11:00PM @ Dormition Greek Church**  
+🇬🇷✨ Save the Date for Our May Mini Festival!  
+<a href="https://allevents.in/somerville/greek-gyrofest-2025-somerville/200027949856630" target="_blank">info link</a>
 
 ### Mother's Day Shopping Market at the Boston Public Market
 
@@ -340,17 +320,17 @@ Join Union Square Main Streets and 60+ of your favorite local food producers for
 At New England Open Markets, our mission is to spotlight and uplift the vibrant tapestry of New England's local artisans and small businesses.  
 <a href="https://www.newenglandopenmarkets.com/" target="_blank">info link</a>
 
-### GREEK GYRO MINI-FEST
-
-**05/10 11:00AM - 05/10 08:00PM @ The Function Hall of St. Nectarios Chruch**  
-Celebrate Mother's Day Weekend with Greek Gyro & LoukoumadesST.  
-<a href="https://st-nectarios-church-gyro-fest.square.site/" target="_blank">info link</a>
-
 ### Boston Women’s Market at Assembly Row
 
 **05/10 11:00AM - 05/10 04:00PM @ Assembly Row**  
 Spring is here, and there’s no better way to spend a Saturday than shopping over 30 incredible woman-founded small businesses at Assembly Row!  
 <a href="https://www.bostonwomensmarket.com/events-calendar/boston-womens-market-at-assembly-row-may-market" target="_blank">info link</a>
+
+### GREEK GYRO MINI-FEST
+
+**05/10 11:00AM - 05/10 08:00PM @ The Function Hall of St. Nectarios Chruch**  
+Celebrate Mother's Day Weekend with Greek Gyro & LoukoumadesST.  
+<a href="https://st-nectarios-church-gyro-fest.square.site/" target="_blank">info link</a>
 
 ### Boston Chamber Symphony Presents Historic Free Concert
 
@@ -382,6 +362,13 @@ Celebrate Mother's Day with us at the Boston Public Market 🌷Join us for our M
 Join us for a free performance of The Dragon King by Tanglewood Marionettes!  
 <a href="https://www.jfklibrary.org/events-and-awards/celebrate-family-programming/the-dragon-king-20250510" target="_blank">info link</a>
 
+### KARAOKE THURSDAY-SATURDAY @SIDEBAR BOSTON
+
+**05/08 08:00PM - 05/10 01:55AM @ SIDEBAR BOSTON**  
+⚠️‼️JOIN US FOR KARAOKE @SIDEBAR BOSTON THURSDAY- SATURDAY 8PM-2AM EVERY WEEK ‼️⚠️ 
+HERE FOR A GOOD TIME AND A LONG TIME ‼️  
+<a href="https://" target="_blank">info link</a>
+
 ### Jamaica Pond parkrun
 
 **05/10 09:00AM - 05/10 11:00AM @ Jamaica Pond**  
@@ -394,24 +381,17 @@ Jamaica Pond parkrun is a free, weekly, timed 5k around Jamaica Pond for people 
 parkrun is a FREE 5k and takes place every Saturday morning at Danehy Park in Cambridge.  
 <a href="https://www.parkrun.us/danehypark/" target="_blank">info link</a>
 
-### KARAOKE THURSDAY-SATURDAY @SIDEBAR BOSTON
+### Seaport Smalls
 
-**05/08 08:00PM - 05/10 01:55AM @ SIDEBAR BOSTON**  
-⚠️‼️JOIN US FOR KARAOKE @SIDEBAR BOSTON THURSDAY- SATURDAY 8PM-2AM EVERY WEEK ‼️⚠️ 
-HERE FOR A GOOD TIME AND A LONG TIME ‼️  
-<a href="https://" target="_blank">info link</a>
+**05/10 10:00AM - 05/10 11:00AM @ The Paseo at 111 Harbor Way**  
+Back by popular demand, Boston Seaport's children's programming series, Seaport Smalls: Free Fun for your Tiny Crew.  
+<a href="https://www.eventbrite.com/e/seaport-smalls-tickets-1308146885549" target="_blank">info link</a>
 
 ### Traditional Irish Music Sessions at The Druid
 
 **05/10 04:00PM - 05/10 11:00PM @ The Druid**  
 Traditional Irish Sessions are a long-standing tradition and well-known event at the Druid.  
 <a href="https://www.druidpub.com/music" target="_blank">info link</a>
-
-### Seaport Smalls
-
-**05/10 10:00AM - 05/10 11:00AM @ The Paseo at 111 Harbor Way**  
-Back by popular demand, Boston Seaport's children's programming series, Seaport Smalls: Free Fun for your Tiny Crew.  
-<a href="https://www.eventbrite.com/e/seaport-smalls-tickets-1308146885549" target="_blank">info link</a>
 
 ### GyroFest
 
@@ -437,12 +417,6 @@ On Saturday, May 10th, we will host our Annual Kite Festival on Revere Beach.
 Be-In Joy Boston’ is a place to rediscover joy.  
 <a href="https://www.be-in.life" target="_blank">info link</a>
 
-### Somerville PorchFest 2025
-
-**05/10 12:00PM - 05/10 06:00PM @ Citywide**  
-Somerville Arts Council is thrilled to announce the date for PorchFest 2025!  
-<a href="https://somervilleartscouncil.org/porchfest/" target="_blank">info link</a>
-
 ### GREEK GYRO MINI-FEST
 
 **05/10 11:00AM - 05/10 08:00PM @ The Function Hall of St. Nectarios Chruch**  
@@ -467,6 +441,12 @@ Small Mart at Crystal Ballroom🗓 Saturday, May 10 | ⏰ 11 AM – 4 PM📍 Cry
 The Joy party is the season opener for our outdoor dance parties, May 11th, from 1-7 pm at Magazine Beach in Cambridge.  
 <a href="http://befreeradio.net" target="_blank">info link</a>
 
+### Somerville PorchFest 2025
+
+**05/10 12:00PM - 05/10 06:00PM @ Citywide**  
+Somerville Arts Council is thrilled to announce the date for PorchFest 2025!  
+<a href="https://somervilleartscouncil.org/porchfest/" target="_blank">info link</a>
+
 ### Boston Chamber Symphony Presents Historic Free Concert
 
 **05/10 07:30PM - 05/10 09:30PM @ Grace Episcopal Church**  
@@ -479,17 +459,17 @@ Join us for a landmark evening of musical masterworks at the acoustically superb
 Join Union Square Main Streets and 60+ of your favorite local food producers for the 21st Annual Union Square Farmers Market!  
 <a href="https://www.unionsquaremain.org/2025-season" target="_blank">info link</a>
 
-### BSG Launch Party
-
-**05/10 06:00PM - 05/10 10:00PM @ The Green Room**  
-Join us for the Bloom Studio Group Launch Party—a celebration of creativity and community!  
-<a href="https://www.instagram.com/bloomstudiogroup/" target="_blank">info link</a>
-
 ### Seaport Summer Market
 
 **05/10 11:00AM - 05/11 06:00PM @ Seaport Summer Market**  
 Our partners at The Makers Show is bringing a diverse group, predominantly consisting of local, women, and minority-owned businesses.  
 <a href="https://www.themakersshow.com/seaport-summer-market" target="_blank">info link</a>
+
+### BSG Launch Party
+
+**05/10 06:00PM - 05/10 10:00PM @ The Green Room**  
+Join us for the Bloom Studio Group Launch Party—a celebration of creativity and community!  
+<a href="https://www.instagram.com/bloomstudiogroup/" target="_blank">info link</a>
 
 # Sunday, May 11, 2025
 
@@ -511,17 +491,17 @@ The Seaport Summer Market is back for the 2025 season and located on Seaport Bou
 Join us every weekend starting in May 4, 2025!  
 <a href="https://www.sowaboston.com/sowa-open-market/" target="_blank">info link</a>
 
-### Greenway Artisan Market
-
-**05/10 11:00AM - 05/11 05:00PM @ Rose Kennedy Greenway**  
-A vibrant open-air market featuring talented area artists, makers, stylists and independent designers on the Boston Waterfront.  
-<a href="https://www.greenwayartisanmarket.com/" target="_blank">info link</a>
-
 ### Memorial Drive Recreation Sundays 2025
 
 **05/11 11:00AM - 05/11 07:00PM @ Riverbend Park**  
 The Department of Conservation and Recreation (DCR) closes a portion Memorial Drive to motor vehicle traffic each weekend from the end of April to mid-November to allow pedestrians, cyclists, and others to enjoy the riverfront roadway without cars.  
 <a href="https://www.cambridgema.gov/streetsandtransportation/memorialdrive" target="_blank">info link</a>
+
+### Greenway Artisan Market
+
+**05/10 11:00AM - 05/11 05:00PM @ Rose Kennedy Greenway**  
+A vibrant open-air market featuring talented area artists, makers, stylists and independent designers on the Boston Waterfront.  
+<a href="https://www.greenwayartisanmarket.com/" target="_blank">info link</a>
 
 ### Mother's Day Shopping Market at the Boston Public Market
 
@@ -565,17 +545,19 @@ Our partners at The Makers Show is bringing a diverse group, predominantly con
 Experience the springtime bloom of our renowned collection of over 400 lilacs.  
 <a href="https://arboretum.harvard.edu/events-2/lilacs-at-the-arnold-arboretum/" target="_blank">info link</a>
 
-### Duckling Day
-
-**05/11 10:00AM - 05/11 12:30PM @ Parkman Bandstand**  
-Duckling Day is a celebration of the children’s classic book Make Way for Ducklings by Robert McCloskey, held annually on Mother’s Day.  
-<a href="http://friendsofthepublicgarden.org/events/ducklingday/" target="_blank">info link</a>
-
 ### Volo's Women's Walk Club - Somerville
 
 **05/11 09:30AM - 05/11 11:00AM @ Club Volo Assembly Row**  
 Join us for our Volo Boston Women's Walk Club in Assembly Row!  
 <a href="https://www.volosports.com/d/67ddafad3e1827c79f255295" target="_blank">info link</a>
 
+### Duckling Day
+
+**05/11 10:00AM - 05/11 12:30PM @ Parkman Bandstand**  
+Duckling Day is a celebration of the children’s classic book Make Way for Ducklings by Robert McCloskey, held annually on Mother’s Day.  
+<a href="http://friendsofthepublicgarden.org/events/ducklingday/" target="_blank">info link</a>
+
 # Monday, May 12, 2025
+
+# Tuesday, May 13, 2025
 
