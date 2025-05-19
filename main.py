@@ -125,7 +125,7 @@ def addEventPage(url: str):
 if __name__ == "__main__":
     filename = "README"
 
-    event_list_urls = getEventsLists(2)
+    event_list_urls = getEventsLists(3)
     for event_url in event_list_urls:
         addEventPage(BASE_URL + event_url)
     with open(filename + ".md", "w") as file:
