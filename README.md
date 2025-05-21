@@ -1,41 +1,3 @@
-# Tuesday, May 20, 2025
-
-### Flow Forward: An Evening at the Waterworks Museum with the Boston Preservation Alliance
-
-**05/20 06:00PM - 05/20 08:00PM @ Waterworks Museum**  
-Join the Young Advisors for a casual, after-hours gathering at the Waterworks Museum for private access to view the museum, known as the Cathedral of Steam.  
-<a href="https://bostonpreservation.org/news-item/event-flow-forward" target="_blank">info link</a>
-
-### Boston Handbell Festival
-
-**05/20 07:30PM - 05/20 09:00PM @ Old South Church in Boston**  
-Join us for the 17th annual Boston Handbell Festival at the Old South Church in Boston for an evening filled with beautiful handbell music.  
-<a href="https://www.eventbrite.com/e/boston-handbell-festival-tickets-1318107859089" target="_blank">info link</a>
-
-### Craft on Draft: Fiction in the Real World
-
-**05/20 07:00PM - 05/20 09:00PM @ Trident Booksellers & Café**  
-Craft on Draft: Fiction in the Real WorldHow can you address difficult real-world issues in the context of emotionally engaging fiction, especially when those issues are of pressing contemporary concern, such as drug addiction, sexual violence, war, and basic human rights?  
-<a href="https://craft-of-draft-ueq2q.tripleseattickets.com/registration/select" target="_blank">info link</a>
-
-### Coworking Day (Seaport)
-
-**05/20 09:00AM - 05/20 05:00PM @ Capital One Cafe Seaport**  
-Work from home, but not at home!We supply the coffee (your choice of any coffee on the cafe menu) and well appointed work space while you work side by side with other professionals that want a break from isolation or a refreshing alternative to their apartment.  
-<a href="https://www.eventbrite.com/e/1313264482419/?discount=TBC" target="_blank">info link</a>
-
-### CanalSide at CambridgeSide Hosts FREE Music Bingo
-
-**05/20 06:00PM - 05/20 08:00PM @ CanalSide at CambridgeSide**  
-Get ready to tap your toes and test your musical knowledge with Music Bingo every Tuesday from 6pm to 8pm located in CanalSide Food + Drink.  
-<a href="https://www.cambridgeside.com" target="_blank">info link</a>
-
-### Drop The Mic Karaoke
-
-**05/20 11:00PM - 05/21 02:00AM @ An Sibin**  
-Fun late night Karaoke, Hosted by local Comedian Scotty Lombardo.  
-<a href="https://" target="_blank">info link</a>
-
 # Wednesday, May 21, 2025
 
 ### Memorial Day Garden of Flags: 37,000+ flags on Boston Common
@@ -61,12 +23,6 @@ Our summer movie series, Coolidge at The Speedway, is back—and we’re kicking
 **05/21 01:00PM - 05/21 03:00PM @ Boston City Hall**  
 The large-format banners will hang in the Mezzanine until July 18.  
 <a href="https://www.boston.gov/calendar/city-belonging-festival" target="_blank">info link</a>
-
-### Drop The Mic Karaoke
-
-**05/20 11:00PM - 05/21 02:00AM @ An Sibin**  
-Fun late night Karaoke, Hosted by local Comedian Scotty Lombardo.  
-<a href="https://" target="_blank">info link</a>
 
 ### Drag Bingo
 
@@ -110,7 +66,7 @@ Located in lower Allston, Harvard Stadium is one of the favorite workout spots o
 
 **05/22 04:30PM - 05/22 09:00PM @ Urban Park Roof Garden**  
 Join us at Urban Park once a month, June through October, for a special Beer Garden Pop UP done in collaboration with Lamplighter Brewing!  
-<a href="https://www.kendallcenter.com/paint-and-sip-nights/" target="_blank">info link</a>
+<a href="https://www.eventbrite.com/e/season-preview-beer-garden-pop-up-urban-park-tickets-1259838453729?aff=oddtdtcreator" target="_blank">info link</a>
 
 ### Sam Sessions Mini Music Festival
 
@@ -310,17 +266,17 @@ Join Panethnic Pourovers for our inaugural signature event, our AAPI Heritage 
 A Classic Rock Revival Concert will take place on the Hancock Adams Common on Saturday, May 24th from 1:00 p.  
 <a href="https://www.quincyma.gov/specialevents/classic_rock_concert.php" target="_blank">info link</a>
 
-### Gourmet Kreyol Grand Opening
-
-**05/24 01:00PM - 05/24 04:00PM @ Gourmet Kreyol**  
-You're Invited to the Gourmet Kreyol Grand Opening!  
-<a href="https://www.eventbrite.com/e/gourmet-kreyol-grand-opening-tickets-1301387126929" target="_blank">info link</a>
-
 ### 🍓🍵 Picnic and hangout on the Common
 
 **05/24 01:00PM - 05/24 04:00PM @ Boston Common**  
 Looking to meet new people in your 20s or 30s — without the pressure of loud bars or surface-level small talk?  
 <a href="https://forms.gle/bCYnihyD3XHUf6h57" target="_blank">info link</a>
+
+### Gourmet Kreyol Grand Opening
+
+**05/24 01:00PM - 05/24 04:00PM @ Gourmet Kreyol**  
+You're Invited to the Gourmet Kreyol Grand Opening!  
+<a href="https://www.eventbrite.com/e/gourmet-kreyol-grand-opening-tickets-1301387126929" target="_blank">info link</a>
 
 ### ROS Flea Market
 
@@ -364,17 +320,17 @@ Artists Take the Street Festival Creative Malden and The Gallery@57 invite you t
 A vibrant open-air market featuring talented area artists, makers, stylists and independent designers on the Boston Waterfront.  
 <a href="https://www.greenwayartisanmarket.com/" target="_blank">info link</a>
 
-### 21st Annual Union Square Farmers Market
-
-**05/24 09:00AM - 05/24 01:00PM @ Union Square Plaza**  
-Join Union Square Main Streets and 60+ of your favorite local food producers for the 21st Annual Union Square Farmers Market!  
-<a href="https://www.unionsquaremain.org/2025-season" target="_blank">info link</a>
-
 ### 2025 Boston Open Market
 
 **05/24 12:00PM - 05/24 05:00PM @ The Boston Open Market**  
 At New England Open Markets, our mission is to spotlight and uplift the vibrant tapestry of New England's local artisans and small businesses.  
 <a href="https://www.newenglandopenmarkets.com/" target="_blank">info link</a>
+
+### 21st Annual Union Square Farmers Market
+
+**05/24 09:00AM - 05/24 01:00PM @ Union Square Plaza**  
+Join Union Square Main Streets and 60+ of your favorite local food producers for the 21st Annual Union Square Farmers Market!  
+<a href="https://www.unionsquaremain.org/2025-season" target="_blank">info link</a>
 
 ### Jamaica Pond parkrun
 
@@ -382,18 +338,18 @@ At New England Open Markets, our mission is to spotlight and uplift the vibrant 
 Jamaica Pond parkrun is a free, weekly, timed 5k around Jamaica Pond for people of all ages.  
 <a href="https://www.parkrun.us/jamaicapond/" target="_blank">info link</a>
 
-### Danehy Park parkrun 5k
-
-**05/24 09:00AM - 05/24 11:00AM @ Danehy Park**  
-parkrun is a FREE 5k and takes place every Saturday morning at Danehy Park in Cambridge.  
-<a href="https://www.parkrun.us/danehypark/" target="_blank">info link</a>
-
 ### KARAOKE THURSDAY-SATURDAY @SIDEBAR BOSTON
 
 **05/22 08:00PM - 05/24 01:55AM @ SIDEBAR BOSTON**  
 ⚠️‼️JOIN US FOR KARAOKE @SIDEBAR BOSTON THURSDAY- SATURDAY 8PM-2AM EVERY WEEK ‼️⚠️ 
 HERE FOR A GOOD TIME AND A LONG TIME ‼️  
 <a href="https://" target="_blank">info link</a>
+
+### Danehy Park parkrun 5k
+
+**05/24 09:00AM - 05/24 11:00AM @ Danehy Park**  
+parkrun is a FREE 5k and takes place every Saturday morning at Danehy Park in Cambridge.  
+<a href="https://www.parkrun.us/danehypark/" target="_blank">info link</a>
 
 ### Traditional Irish Music Sessions at The Druid
 
@@ -413,17 +369,17 @@ Back by popular demand, Boston Seaport's children's programming series, Seaport 
 6pm- pre party, 8pm- movie starts‍Join us for the return of Boston Landing's Outdoor Movie Nights!  
 <a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
 
-### Massachusetts Fallen Heroes: Memorial Day Fireworks
-
-**05/24 09:00PM - 05/24 09:30PM @ 85 Northern Ave**  
-CANCELLED. The Memorial Day Fireworks Show in the Boston Seaport, sponsored by Massachusetts Fallen Heroes and InnoVets, will be a spectacular celebration to honor our nation's Fallen Heroes.  
-<a href="https://www.innovets.org/memorialrededication-0" target="_blank">info link</a>
-
 ### Courtroom Kiki! Drag Brunch & Bingo
 
 **05/24 01:00PM - 05/24 02:30PM @ Time Out Market Boston**  
 You're hereby summoned… to slay.Get ready to plead guilty to having too much fun at the most fabulous drag show + bingo bash on the docket!  
 <a href="https://www.eventbrite.com/e/courtroom-kiki-drag-brunch-bingo-tickets-1339007851529" target="_blank">info link</a>
+
+### Massachusetts Fallen Heroes: Memorial Day Fireworks
+
+**05/24 09:00PM - 05/24 09:30PM @ 85 Northern Ave**  
+CANCELLED. The Memorial Day Fireworks Show in the Boston Seaport, sponsored by Massachusetts Fallen Heroes and InnoVets, will be a spectacular celebration to honor our nation's Fallen Heroes.  
+<a href="https://www.innovets.org/memorialrededication-0" target="_blank">info link</a>
 
 ### Memorial Day Weekend Bazaar
 
@@ -561,6 +517,12 @@ Start your summer off right at our annual Memorial Day Open House.
 The ICA is offering FREE museum admission for all on Memorial Day, Monday, May 26.  
 <a href="https://www.icaboston.org/visit/" target="_blank">info link</a>
 
+### 20's & 30's Memorial Day Picnic at the Cambridge Commons (Harvard)
+
+**05/26 12:00PM - 05/26 04:00PM @ Cambridge Common**  
+Hi, my name is Tal and I run the Make Friends After College group on Facebook.  
+<a href="https://" target="_blank">info link</a>
+
 ### Boston Conversations - May Event
 
 **05/26 06:30PM - 05/26 08:30PM @ Aeronaut Brewing Company**  
@@ -572,6 +534,12 @@ Please RSVP on Lu.ma: https://lu.ma/y62cm714The Boston Conversations series offe
 **05/22 06:30PM - 09/04 08:30PM @ Boston Landing**  
 6pm- pre party, 8pm- movie starts‍Join us for the return of Boston Landing's Outdoor Movie Nights!  
 <a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
+
+### Boston Conversations - May Event
+
+**05/26 06:30PM - 05/26 08:30PM @ Aeronaut Brewing Company**  
+Please RSVP on Lu.ma: https://lu.ma/y62cm714The Boston Conversations series offers a way for Millennials and Gen Z-ers to find friendships that go beyond the surface.  
+<a href="https://lu.ma/y62cm714" target="_blank">info link</a>
 
 ### Free MFA Admission on Memorial Day 2025: Museum of Fine Arts Open House
 
@@ -585,9 +553,23 @@ Start your summer off right at our annual Memorial Day Open House.
 The ICA is offering FREE museum admission for all on Memorial Day, Monday, May 26.  
 <a href="https://www.icaboston.org/visit/" target="_blank">info link</a>
 
-### Boston Conversations - May Event
+# Tuesday, May 27, 2025
 
-**05/26 06:30PM - 05/26 08:30PM @ Aeronaut Brewing Company**  
-Please RSVP on Lu.ma: https://lu.ma/y62cm714The Boston Conversations series offers a way for Millennials and Gen Z-ers to find friendships that go beyond the surface.  
-<a href="https://lu.ma/y62cm714" target="_blank">info link</a>
+### Boston Landing Outdoor Movies
+
+**05/22 06:30PM - 09/04 08:30PM @ Boston Landing**  
+6pm- pre party, 8pm- movie starts‍Join us for the return of Boston Landing's Outdoor Movie Nights!  
+<a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
+
+### Boston Landing Outdoor Movies
+
+**05/22 06:30PM - 09/04 08:30PM @ Boston Landing**  
+6pm- pre party, 8pm- movie starts‍Join us for the return of Boston Landing's Outdoor Movie Nights!  
+<a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
+
+### Guyana Flag Raising
+
+**05/27 12:00PM - 05/27 01:00PM @ City Hall**  
+Join community leaders and members of the Guyanese diaspora for a flag raising ceremony on City Hall Plaza to celebrate Guyana’s Independence and recognize the contributions of Guyanese Bostonians to the fabric of the city.  
+<a href="https://www.boston.gov/calendar/guyana-flag-raising" target="_blank">info link</a>
 
