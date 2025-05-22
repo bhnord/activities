@@ -1,65 +1,9 @@
-# Wednesday, May 21, 2025
-
-### Memorial Day Garden of Flags: 37,000+ flags on Boston Common
-
-**05/21 12:00PM - 05/26 06:00PM @ Soldiers and Sailors Monument**  
-2025 Home Base Memorial Day Flag Garden to honor those who made the ultimate sacrificeWednesday, May 21 - Monday, May 26, 2025Soldiers & Sailors Monument, Boston CommonEach of the 37,000+ American flags planted at the Soldiers and Sailors Monument this Memorial Day will represent every brave Massachusetts service member who gave his or her life defending our country since the Revolutionary War.  
-<a href="https://because.massgeneral.org/event/2025-home-base-memorial-day-flag-planting/e654196" target="_blank">info link</a>
-
-### GroundBeat Concert Series: Soul Resonance
-
-**05/21 06:00PM - 05/21 08:00PM @ DCR Hatch Memorial Shell**  
-Welcome the Spring with a free concert at the Hatch Memorial Shell on May 21st featuring local Hip Hop, Rap, R&B and Neo-Soul artists as part of the Esplanade Association’s Groundbeat Concert Series.  
-<a href="https://events.humanitix.com/groundbeat-concert-series-may-21?hxchl=hex-pfl" target="_blank">info link</a>
-
-### Coolidge @ The Speedway: Josie + The Pussycats
-
-**05/21 08:00PM - 05/21 10:00PM @ The Charles River Speedway**  
-Our summer movie series, Coolidge at The Speedway, is back—and we’re kicking it off with a 2000’s throwback: Josie and the Pussycats hits the screen on May 21st at sundown (around 8PM)!  
-<a href="https://charlesriverspeedway.com/event/coolidge-the-speedway/" target="_blank">info link</a>
-
-### City of Belonging Festival
-
-**05/21 01:00PM - 05/21 03:00PM @ Boston City Hall**  
-The large-format banners will hang in the Mezzanine until July 18.  
-<a href="https://www.boston.gov/calendar/city-belonging-festival" target="_blank">info link</a>
-
-### Drag Bingo
-
-**05/21 08:00PM - 05/21 10:00PM @ Vera's**  
-On Wednesdays we play bingo! Join us at Vera's every Wednesday from 8-10pm for Drag Bingo!  
-<a href="https://www.instagram.com/veras_cardinal_lounge/" target="_blank">info link</a>
-
-### ¡Miércoles Maravilloso!: free in-person Spanish convo practice
-
-**05/21 05:00PM - 05/21 06:00PM @ Boston Area Spanish Exchange (BASE)**  
-¡Miércoles Maravilloso!Free open-level Spanish informal conversation workshops.  
-<a href="https://www.spanishclassesboston.com/events/miercolesmaravilloso" target="_blank">info link</a>
-
-### Jeopardy Bar League at Long Live Roxbury
-
-**05/21 07:00PM - 05/21 09:00PM @ Long Live Roxbury**  
-Teams play along and compete against each other using their smartphones through an interactive Jeopardy!  
-<a href="https://www.longlivebeerworks.com/boston-taproom" target="_blank">info link</a>
-
-### November Project: Stair Workout at Harvard Stadium
-
-**05/21 05:55AM - 05/21 07:00AM @ Harvard Stadium**  
-Located in lower Allston, Harvard Stadium is one of the favorite workout spots of the November Project™ members.  
-<a href="https://november-project.com/stadium/" target="_blank">info link</a>
-
 # Thursday, May 22, 2025
-
-### Memorial Day Garden of Flags: 37,000+ flags on Boston Common
-
-**05/21 12:00PM - 05/26 06:00PM @ Soldiers and Sailors Monument**  
-2025 Home Base Memorial Day Flag Garden to honor those who made the ultimate sacrificeWednesday, May 21 - Monday, May 26, 2025Soldiers & Sailors Monument, Boston CommonEach of the 37,000+ American flags planted at the Soldiers and Sailors Monument this Memorial Day will represent every brave Massachusetts service member who gave his or her life defending our country since the Revolutionary War.  
-<a href="https://because.massgeneral.org/event/2025-home-base-memorial-day-flag-planting/e654196" target="_blank">info link</a>
 
 ### Boston Landing Outdoor Movies
 
 **05/22 06:30PM - 09/04 08:30PM @ Boston Landing**  
-6pm- pre party, 8pm- movie starts‍Join us for the return of Boston Landing's Outdoor Movie Nights!  
+UPDATE: Due to inclement weather, Mean Girls screening (originally on Thursday, May 22) will now be rescheduled to Thursday, June 12.  
 <a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
 
 ### Beer Garden Pop UPs with Lamplighter Brewing at the Urban Park Roof Garden
@@ -117,30 +61,24 @@ Each week we connect creators, entrepreneurs, investors, academics, corporates, 
 Admission is FREE for all every Thursday from 5 to 9 PM during ICA Free Thursday Nights.  
 <a href="http://www.icaboston.org/visit" target="_blank">info link</a>
 
+### Boston Landing Outdoor Movies
+
+**05/22 06:30PM - 09/04 08:30PM @ Boston Landing**  
+UPDATE: Due to inclement weather, Mean Girls screening (originally on Thursday, May 22) will now be rescheduled to Thursday, June 12.  
+<a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
+
 ### Sam Sessions Mini Music Festival
 
 **05/22 05:00PM - 05/22 10:00PM @ Samuel Adams Boston Brewery**  
 As a proud partner of Boston's iconic summer festival Boston Calling, we're thrilled to host the unofficial kickoff to the weekend once again with Sam Sessions Mini Music Fest, and along with it, the release of Stage Hopper, a dry hopped pilsner brewed in collaboration with Boston Calling and paired perfectly with live music.  
 <a href="https://www.eventbrite.com/e/sam-sessions-mini-music-festival-tickets-1336642396389" target="_blank">info link</a>
 
-### Boston Landing Outdoor Movies
-
-**05/22 06:30PM - 09/04 08:30PM @ Boston Landing**  
-6pm- pre party, 8pm- movie starts‍Join us for the return of Boston Landing's Outdoor Movie Nights!  
-<a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
-
 # Friday, May 23, 2025
 
-### Memorial Day Garden of Flags: 37,000+ flags on Boston Common
-
-**05/21 12:00PM - 05/26 06:00PM @ Soldiers and Sailors Monument**  
-2025 Home Base Memorial Day Flag Garden to honor those who made the ultimate sacrificeWednesday, May 21 - Monday, May 26, 2025Soldiers & Sailors Monument, Boston CommonEach of the 37,000+ American flags planted at the Soldiers and Sailors Monument this Memorial Day will represent every brave Massachusetts service member who gave his or her life defending our country since the Revolutionary War.  
-<a href="https://because.massgeneral.org/event/2025-home-base-memorial-day-flag-planting/e654196" target="_blank">info link</a>
-
 ### Boston Landing Outdoor Movies
 
 **05/22 06:30PM - 09/04 08:30PM @ Boston Landing**  
-6pm- pre party, 8pm- movie starts‍Join us for the return of Boston Landing's Outdoor Movie Nights!  
+UPDATE: Due to inclement weather, Mean Girls screening (originally on Thursday, May 22) will now be rescheduled to Thursday, June 12.  
 <a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
 
 ### Boston Calling Post-Show Block Party at Garden Bar!
@@ -207,7 +145,7 @@ Join us for seven rounds of general knowledge trivia, every Friday at 7 pm!
 ### Boston Landing Outdoor Movies
 
 **05/22 06:30PM - 09/04 08:30PM @ Boston Landing**  
-6pm- pre party, 8pm- movie starts‍Join us for the return of Boston Landing's Outdoor Movie Nights!  
+UPDATE: Due to inclement weather, Mean Girls screening (originally on Thursday, May 22) will now be rescheduled to Thursday, June 12.  
 <a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
 
 # Saturday, May 24, 2025
@@ -218,29 +156,23 @@ Join us for seven rounds of general knowledge trivia, every Friday at 7 pm!
 Welcome to the Open House of 2025 at First Reef Sailing!  
 <a href="https://www.eventbrite.com/e/sailing-school-open-house-free-sailing-tickets-1267717239389" target="_blank">info link</a>
 
-### Memorial Day Garden of Flags: 37,000+ flags on Boston Common
-
-**05/21 12:00PM - 05/26 06:00PM @ Soldiers and Sailors Monument**  
-2025 Home Base Memorial Day Flag Garden to honor those who made the ultimate sacrificeWednesday, May 21 - Monday, May 26, 2025Soldiers & Sailors Monument, Boston CommonEach of the 37,000+ American flags planted at the Soldiers and Sailors Monument this Memorial Day will represent every brave Massachusetts service member who gave his or her life defending our country since the Revolutionary War.  
-<a href="https://because.massgeneral.org/event/2025-home-base-memorial-day-flag-planting/e654196" target="_blank">info link</a>
-
 ### Boston Landing Outdoor Movies
 
 **05/22 06:30PM - 09/04 08:30PM @ Boston Landing**  
-6pm- pre party, 8pm- movie starts‍Join us for the return of Boston Landing's Outdoor Movie Nights!  
+UPDATE: Due to inclement weather, Mean Girls screening (originally on Thursday, May 22) will now be rescheduled to Thursday, June 12.  
 <a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
-
-### Boston Calling Post-Show Block Party at Garden Bar!
-
-**05/23 04:00PM - 05/25 12:00AM @ One Reason Garden Bar**  
-🎉 ONE REASON GARDEN BAR BLOCK PARTYBoston Calling Weekend | 5/23-5/25 | Open until 12AMLocation: One Reason Garden Bar, 1 Bennett St, Cambridge, MA, 02138Not heading to the festival?  
-<a href="https://www.onereasongardenbar.com/" target="_blank">info link</a>
 
 ### Memorial Day Weekend Bazaar
 
 **05/24 11:00AM - 05/25 06:00PM @ The Charles River Speedway**  
 On Sat. + Sun. May 24 & 25 from 11am-6pm, over 100 small local businesses are popping up at The Charles River Speedway in Boston to sell art, vinyl, vintage, & more!  
 <a href="https://www.facebook.com/share/16b2VZAPrG/" target="_blank">info link</a>
+
+### Boston Calling Post-Show Block Party at Garden Bar!
+
+**05/23 04:00PM - 05/25 12:00AM @ One Reason Garden Bar**  
+🎉 ONE REASON GARDEN BAR BLOCK PARTYBoston Calling Weekend | 5/23-5/25 | Open until 12AMLocation: One Reason Garden Bar, 1 Bennett St, Cambridge, MA, 02138Not heading to the festival?  
+<a href="https://www.onereasongardenbar.com/" target="_blank">info link</a>
 
 ### Boston Babes Girl’s Night Out @ Caveau
 
@@ -266,17 +198,17 @@ Join Panethnic Pourovers for our inaugural signature event, our AAPI Heritage 
 A Classic Rock Revival Concert will take place on the Hancock Adams Common on Saturday, May 24th from 1:00 p.  
 <a href="https://www.quincyma.gov/specialevents/classic_rock_concert.php" target="_blank">info link</a>
 
-### 🍓🍵 Picnic and hangout on the Common
-
-**05/24 01:00PM - 05/24 04:00PM @ Boston Common**  
-Looking to meet new people in your 20s or 30s — without the pressure of loud bars or surface-level small talk?  
-<a href="https://forms.gle/bCYnihyD3XHUf6h57" target="_blank">info link</a>
-
 ### Gourmet Kreyol Grand Opening
 
 **05/24 01:00PM - 05/24 04:00PM @ Gourmet Kreyol**  
 You're Invited to the Gourmet Kreyol Grand Opening!  
 <a href="https://www.eventbrite.com/e/gourmet-kreyol-grand-opening-tickets-1301387126929" target="_blank">info link</a>
+
+### 🍓🍵 Picnic and hangout on the Common
+
+**05/24 01:00PM - 05/24 04:00PM @ Boston Common**  
+Looking to meet new people in your 20s or 30s — without the pressure of loud bars or surface-level small talk?  
+<a href="https://forms.gle/bCYnihyD3XHUf6h57" target="_blank">info link</a>
 
 ### ROS Flea Market
 
@@ -284,17 +216,17 @@ You're Invited to the Gourmet Kreyol Grand Opening!
 Date: Saturday, May 24  Time: 9:00 AM – 12:00 PM  Location: Adams Park, Roslindale  Treasure hunters, collectors, and bargain lovers—don’t miss the Roslindale Flea Market!  
 <a href="https://" target="_blank">info link</a>
 
-### Sam Summer Saturday Kickoff Party
-
-**05/24 12:00PM - 05/24 08:00PM @ Sam Adams Boston Brewery**  
-Sam Summer Saturdays are HERE! Join us in celebrating the very first one with festivities all day long.  
-<a href="https://www.eventbrite.com/e/1360977884489?aff=oddtdtcreator" target="_blank">info link</a>
-
 ### Sam Adams Presents: Decked Out
 
 **05/23 08:00PM - 05/24 11:00PM @ Sam Adams Downtown Boston Taproom**  
 The vibes are vibin' once again! We're bringing back our Rooftop Deck DJs this Summer in Downtown Boston to kick off Memorial Day Weekend on Fridays and Saturdays from 8-11pm.  
 <a href="https://www.eventbrite.com/e/sam-adams-presents-decked-out-tickets-1285180572689" target="_blank">info link</a>
+
+### Sam Summer Saturday Kickoff Party
+
+**05/24 12:00PM - 05/24 08:00PM @ Sam Adams Boston Brewery**  
+Sam Summer Saturdays are HERE! Join us in celebrating the very first one with festivities all day long.  
+<a href="https://www.eventbrite.com/e/1360977884489?aff=oddtdtcreator" target="_blank">info link</a>
 
 ### Courtroom Kiki! Drag Brunch & Bingo
 
@@ -320,17 +252,17 @@ Artists Take the Street Festival Creative Malden and The Gallery@57 invite you t
 A vibrant open-air market featuring talented area artists, makers, stylists and independent designers on the Boston Waterfront.  
 <a href="https://www.greenwayartisanmarket.com/" target="_blank">info link</a>
 
-### 2025 Boston Open Market
-
-**05/24 12:00PM - 05/24 05:00PM @ The Boston Open Market**  
-At New England Open Markets, our mission is to spotlight and uplift the vibrant tapestry of New England's local artisans and small businesses.  
-<a href="https://www.newenglandopenmarkets.com/" target="_blank">info link</a>
-
 ### 21st Annual Union Square Farmers Market
 
 **05/24 09:00AM - 05/24 01:00PM @ Union Square Plaza**  
 Join Union Square Main Streets and 60+ of your favorite local food producers for the 21st Annual Union Square Farmers Market!  
 <a href="https://www.unionsquaremain.org/2025-season" target="_blank">info link</a>
+
+### 2025 Boston Open Market
+
+**05/24 12:00PM - 05/24 05:00PM @ The Boston Open Market**  
+At New England Open Markets, our mission is to spotlight and uplift the vibrant tapestry of New England's local artisans and small businesses.  
+<a href="https://www.newenglandopenmarkets.com/" target="_blank">info link</a>
 
 ### Jamaica Pond parkrun
 
@@ -338,18 +270,18 @@ Join Union Square Main Streets and 60+ of your favorite local food producers for
 Jamaica Pond parkrun is a free, weekly, timed 5k around Jamaica Pond for people of all ages.  
 <a href="https://www.parkrun.us/jamaicapond/" target="_blank">info link</a>
 
+### Danehy Park parkrun 5k
+
+**05/24 09:00AM - 05/24 11:00AM @ Danehy Park**  
+parkrun is a FREE 5k and takes place every Saturday morning at Danehy Park in Cambridge.  
+<a href="https://www.parkrun.us/danehypark/" target="_blank">info link</a>
+
 ### KARAOKE THURSDAY-SATURDAY @SIDEBAR BOSTON
 
 **05/22 08:00PM - 05/24 01:55AM @ SIDEBAR BOSTON**  
 ⚠️‼️JOIN US FOR KARAOKE @SIDEBAR BOSTON THURSDAY- SATURDAY 8PM-2AM EVERY WEEK ‼️⚠️ 
 HERE FOR A GOOD TIME AND A LONG TIME ‼️  
 <a href="https://" target="_blank">info link</a>
-
-### Danehy Park parkrun 5k
-
-**05/24 09:00AM - 05/24 11:00AM @ Danehy Park**  
-parkrun is a FREE 5k and takes place every Saturday morning at Danehy Park in Cambridge.  
-<a href="https://www.parkrun.us/danehypark/" target="_blank">info link</a>
 
 ### Traditional Irish Music Sessions at The Druid
 
@@ -366,20 +298,20 @@ Back by popular demand, Boston Seaport's children's programming series, Seaport 
 ### Boston Landing Outdoor Movies
 
 **05/22 06:30PM - 09/04 08:30PM @ Boston Landing**  
-6pm- pre party, 8pm- movie starts‍Join us for the return of Boston Landing's Outdoor Movie Nights!  
+UPDATE: Due to inclement weather, Mean Girls screening (originally on Thursday, May 22) will now be rescheduled to Thursday, June 12.  
 <a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
-
-### Courtroom Kiki! Drag Brunch & Bingo
-
-**05/24 01:00PM - 05/24 02:30PM @ Time Out Market Boston**  
-You're hereby summoned… to slay.Get ready to plead guilty to having too much fun at the most fabulous drag show + bingo bash on the docket!  
-<a href="https://www.eventbrite.com/e/courtroom-kiki-drag-brunch-bingo-tickets-1339007851529" target="_blank">info link</a>
 
 ### Massachusetts Fallen Heroes: Memorial Day Fireworks
 
 **05/24 09:00PM - 05/24 09:30PM @ 85 Northern Ave**  
 CANCELLED. The Memorial Day Fireworks Show in the Boston Seaport, sponsored by Massachusetts Fallen Heroes and InnoVets, will be a spectacular celebration to honor our nation's Fallen Heroes.  
 <a href="https://www.innovets.org/memorialrededication-0" target="_blank">info link</a>
+
+### Courtroom Kiki! Drag Brunch & Bingo
+
+**05/24 01:00PM - 05/24 02:30PM @ Time Out Market Boston**  
+You're hereby summoned… to slay.Get ready to plead guilty to having too much fun at the most fabulous drag show + bingo bash on the docket!  
+<a href="https://www.eventbrite.com/e/courtroom-kiki-drag-brunch-bingo-tickets-1339007851529" target="_blank">info link</a>
 
 ### Memorial Day Weekend Bazaar
 
@@ -395,29 +327,23 @@ The Greater Newburyport Chamber of Commerce Presents A Celebration Of Arts & Cul
 
 # Sunday, May 25, 2025
 
-### Memorial Day Garden of Flags: 37,000+ flags on Boston Common
-
-**05/21 12:00PM - 05/26 06:00PM @ Soldiers and Sailors Monument**  
-2025 Home Base Memorial Day Flag Garden to honor those who made the ultimate sacrificeWednesday, May 21 - Monday, May 26, 2025Soldiers & Sailors Monument, Boston CommonEach of the 37,000+ American flags planted at the Soldiers and Sailors Monument this Memorial Day will represent every brave Massachusetts service member who gave his or her life defending our country since the Revolutionary War.  
-<a href="https://because.massgeneral.org/event/2025-home-base-memorial-day-flag-planting/e654196" target="_blank">info link</a>
-
 ### Boston Landing Outdoor Movies
 
 **05/22 06:30PM - 09/04 08:30PM @ Boston Landing**  
-6pm- pre party, 8pm- movie starts‍Join us for the return of Boston Landing's Outdoor Movie Nights!  
+UPDATE: Due to inclement weather, Mean Girls screening (originally on Thursday, May 22) will now be rescheduled to Thursday, June 12.  
 <a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
-
-### Boston Calling Post-Show Block Party at Garden Bar!
-
-**05/23 04:00PM - 05/25 12:00AM @ One Reason Garden Bar**  
-🎉 ONE REASON GARDEN BAR BLOCK PARTYBoston Calling Weekend | 5/23-5/25 | Open until 12AMLocation: One Reason Garden Bar, 1 Bennett St, Cambridge, MA, 02138Not heading to the festival?  
-<a href="https://www.onereasongardenbar.com/" target="_blank">info link</a>
 
 ### Memorial Day Weekend Bazaar
 
 **05/24 11:00AM - 05/25 06:00PM @ The Charles River Speedway**  
 On Sat. + Sun. May 24 & 25 from 11am-6pm, over 100 small local businesses are popping up at The Charles River Speedway in Boston to sell art, vinyl, vintage, & more!  
 <a href="https://www.facebook.com/share/16b2VZAPrG/" target="_blank">info link</a>
+
+### Boston Calling Post-Show Block Party at Garden Bar!
+
+**05/23 04:00PM - 05/25 12:00AM @ One Reason Garden Bar**  
+🎉 ONE REASON GARDEN BAR BLOCK PARTYBoston Calling Weekend | 5/23-5/25 | Open until 12AMLocation: One Reason Garden Bar, 1 Bennett St, Cambridge, MA, 02138Not heading to the festival?  
+<a href="https://www.onereasongardenbar.com/" target="_blank">info link</a>
 
 ### Seaport Summer Market
 
@@ -470,7 +396,7 @@ Join us for a fun evening of open mic poetry!
 ### Boston Landing Outdoor Movies
 
 **05/22 06:30PM - 09/04 08:30PM @ Boston Landing**  
-6pm- pre party, 8pm- movie starts‍Join us for the return of Boston Landing's Outdoor Movie Nights!  
+UPDATE: Due to inclement weather, Mean Girls screening (originally on Thursday, May 22) will now be rescheduled to Thursday, June 12.  
 <a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
 
 ### Time Out's 'Best Margarita in Fenway' Competition
@@ -493,23 +419,17 @@ The Greater Newburyport Chamber of Commerce Presents A Celebration Of Arts & Cul
 
 # Monday, May 26, 2025
 
-### Memorial Day Garden of Flags: 37,000+ flags on Boston Common
+### Boston Landing Outdoor Movies
 
-**05/21 12:00PM - 05/26 06:00PM @ Soldiers and Sailors Monument**  
-2025 Home Base Memorial Day Flag Garden to honor those who made the ultimate sacrificeWednesday, May 21 - Monday, May 26, 2025Soldiers & Sailors Monument, Boston CommonEach of the 37,000+ American flags planted at the Soldiers and Sailors Monument this Memorial Day will represent every brave Massachusetts service member who gave his or her life defending our country since the Revolutionary War.  
-<a href="https://because.massgeneral.org/event/2025-home-base-memorial-day-flag-planting/e654196" target="_blank">info link</a>
+**05/22 06:30PM - 09/04 08:30PM @ Boston Landing**  
+UPDATE: Due to inclement weather, Mean Girls screening (originally on Thursday, May 22) will now be rescheduled to Thursday, June 12.  
+<a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
 
 ### Free MFA Admission on Memorial Day 2025: Museum of Fine Arts Open House
 
 **05/26 10:00AM - 05/26 05:00PM @ Museum of Fine Arts**  
 Start your summer off right at our annual Memorial Day Open House.  
 <a href="https://www.mfa.org/event/open-house/memorial-day-open-house" target="_blank">info link</a>
-
-### Boston Landing Outdoor Movies
-
-**05/22 06:30PM - 09/04 08:30PM @ Boston Landing**  
-6pm- pre party, 8pm- movie starts‍Join us for the return of Boston Landing's Outdoor Movie Nights!  
-<a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
 
 ### Memorial Day: Free Admission to ICA Boston
 
@@ -532,14 +452,8 @@ Please RSVP on Lu.ma: https://lu.ma/y62cm714The Boston Conversations series offe
 ### Boston Landing Outdoor Movies
 
 **05/22 06:30PM - 09/04 08:30PM @ Boston Landing**  
-6pm- pre party, 8pm- movie starts‍Join us for the return of Boston Landing's Outdoor Movie Nights!  
+UPDATE: Due to inclement weather, Mean Girls screening (originally on Thursday, May 22) will now be rescheduled to Thursday, June 12.  
 <a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
-
-### Boston Conversations - May Event
-
-**05/26 06:30PM - 05/26 08:30PM @ Aeronaut Brewing Company**  
-Please RSVP on Lu.ma: https://lu.ma/y62cm714The Boston Conversations series offers a way for Millennials and Gen Z-ers to find friendships that go beyond the surface.  
-<a href="https://lu.ma/y62cm714" target="_blank">info link</a>
 
 ### Free MFA Admission on Memorial Day 2025: Museum of Fine Arts Open House
 
@@ -553,18 +467,24 @@ Start your summer off right at our annual Memorial Day Open House.
 The ICA is offering FREE museum admission for all on Memorial Day, Monday, May 26.  
 <a href="https://www.icaboston.org/visit/" target="_blank">info link</a>
 
+### Boston Conversations - May Event
+
+**05/26 06:30PM - 05/26 08:30PM @ Aeronaut Brewing Company**  
+Please RSVP on Lu.ma: https://lu.ma/y62cm714The Boston Conversations series offers a way for Millennials and Gen Z-ers to find friendships that go beyond the surface.  
+<a href="https://lu.ma/y62cm714" target="_blank">info link</a>
+
 # Tuesday, May 27, 2025
 
 ### Boston Landing Outdoor Movies
 
 **05/22 06:30PM - 09/04 08:30PM @ Boston Landing**  
-6pm- pre party, 8pm- movie starts‍Join us for the return of Boston Landing's Outdoor Movie Nights!  
+UPDATE: Due to inclement weather, Mean Girls screening (originally on Thursday, May 22) will now be rescheduled to Thursday, June 12.  
 <a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
 
 ### Boston Landing Outdoor Movies
 
 **05/22 06:30PM - 09/04 08:30PM @ Boston Landing**  
-6pm- pre party, 8pm- movie starts‍Join us for the return of Boston Landing's Outdoor Movie Nights!  
+UPDATE: Due to inclement weather, Mean Girls screening (originally on Thursday, May 22) will now be rescheduled to Thursday, June 12.  
 <a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
 
 ### Guyana Flag Raising
@@ -572,4 +492,18 @@ The ICA is offering FREE museum admission for all on Memorial Day, Monday, May 2
 **05/27 12:00PM - 05/27 01:00PM @ City Hall**  
 Join community leaders and members of the Guyanese diaspora for a flag raising ceremony on City Hall Plaza to celebrate Guyana’s Independence and recognize the contributions of Guyanese Bostonians to the fabric of the city.  
 <a href="https://www.boston.gov/calendar/guyana-flag-raising" target="_blank">info link</a>
+
+# Wednesday, May 28, 2025
+
+### Boston Landing Outdoor Movies
+
+**05/22 06:30PM - 09/04 08:30PM @ Boston Landing**  
+UPDATE: Due to inclement weather, Mean Girls screening (originally on Thursday, May 22) will now be rescheduled to Thursday, June 12.  
+<a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
+
+### Boston Landing Outdoor Movies
+
+**05/22 06:30PM - 09/04 08:30PM @ Boston Landing**  
+UPDATE: Due to inclement weather, Mean Girls screening (originally on Thursday, May 22) will now be rescheduled to Thursday, June 12.  
+<a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
 
