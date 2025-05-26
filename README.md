@@ -1,95 +1,3 @@
-# Sunday, May 25, 2025
-
-### Time Out's 'Best Margarita in Fenway' Competition
-
-**05/25 01:00PM - 05/25 05:00PM @ Time Out Market Boston**  
-🍹 Shake things up at Time Out's ultimate Margarita Showdown!  
-<a href="https://www.eventbrite.com/e/time-outs-best-margarita-in-fenway-competition-tickets-1252311089179" target="_blank">info link</a>
-
-### Memorial Drive Recreation Sundays 2025
-
-**05/25 11:00AM - 05/25 07:00PM @ Riverbend Park**  
-The Department of Conservation and Recreation (DCR) closes a portion Memorial Drive to motor vehicle traffic each weekend from the end of April to mid-November to allow pedestrians, cyclists, and others to enjoy the riverfront roadway without cars.  
-<a href="https://www.cambridgema.gov/streetsandtransportation/memorialdrive" target="_blank">info link</a>
-
-### 2025 SoWa Open Market
-
-**05/25 11:00AM - 05/25 05:00PM @ SoWa Open Market**  
-Join us every weekend starting in May 4, 2025!  
-<a href="https://www.sowaboston.com/sowa-open-market/" target="_blank">info link</a>
-
-### Official F1® Arcade Monaco Watch Party
-
-**05/25 08:00AM - 05/25 11:00AM @ F1 Arcade**  
-The crown jewel of the Formula 1® 2025 season is here.  
-<a href="https://f1arcade.com/us/watch-parties/monaco" target="_blank">info link</a>
-
-### May Yoga at Dray with BulldogFlowBoston
-
-**05/25 10:00AM - 05/25 12:00PM @ Dray Non-Alcoholic Bottle Shop**  
-It's time for our monthly all-level yoga class with Peter Sacco of BulldogFlowBoston!  
-<a href="https://www.draydrinks.com/collections/events/products/may-yoga-at-dray-with-bulldogflowboston" target="_blank">info link</a>
-
-### Stand Up Paddleboard Yoga Jamaica Pond
-
-**05/25 10:30AM - 05/25 12:00PM @ Courageous Sailing**  
-Experience yoga from a brand new perspective!  
-<a href="https://www.planyo.com/booking.php?calendar=58756&feedback_url=https%3A%2F%2Fwww.planyo.com%2Fbooking.php%3Fcalendar%3D58756&presentation_mode=1&planyo_lang=en&resource_id=208701&mode=resource_desc" target="_blank">info link</a>
-
-### Coffee+Crafts
-
-**05/25 01:00PM - 05/25 04:00PM @ Boston Fiber Company**  
-Join us every Sunday from 1pm-4pm for Coffee+Crafts!  
-<a href="https://www.bostonfibercompany.com" target="_blank">info link</a>
-
-### Poetry Open Mic at Trident
-
-**05/25 07:00PM - 05/25 09:00PM @ Trident Booksellers & Cafe**  
-Join us for a fun evening of open mic poetry!  
-<a href="https://www.tridentbookscafe.com/event/poetry-open-mic-1" target="_blank">info link</a>
-
-### Rooftop Yoga @ Moxy
-
-**05/25 09:00AM - 05/25 10:00AM @ The Moxy Boston Downtown**  
-Flow Together. Glow Together. (all levels)A dynamic vinyasa yoga experience that blends energizing movement, breath, and community.  
-<a href="https://app.acuityscheduling.com/schedule/02e194a7/?appointmentTypeIds[]=74049896" target="_blank">info link</a>
-
-### Time Out's 'Best Margarita in Fenway' Competition
-
-**05/25 01:00PM - 05/25 05:00PM @ Time Out Market Boston**  
-🍹 Shake things up at Time Out's ultimate Margarita Showdown!  
-<a href="https://www.eventbrite.com/e/time-outs-best-margarita-in-fenway-competition-tickets-1252311089179" target="_blank">info link</a>
-
-### 2025 SoWa Open Market
-
-**05/25 11:00AM - 05/25 05:00PM @ SoWa Open Market**  
-Join us every weekend starting in May 4, 2025!  
-<a href="https://www.sowaboston.com/sowa-open-market/" target="_blank">info link</a>
-
-### Memorial Drive Recreation Sundays 2025
-
-**05/25 11:00AM - 05/25 07:00PM @ Riverbend Park**  
-The Department of Conservation and Recreation (DCR) closes a portion Memorial Drive to motor vehicle traffic each weekend from the end of April to mid-November to allow pedestrians, cyclists, and others to enjoy the riverfront roadway without cars.  
-<a href="https://www.cambridgema.gov/streetsandtransportation/memorialdrive" target="_blank">info link</a>
-
-### Coffee+Crafts
-
-**05/25 01:00PM - 05/25 04:00PM @ Boston Fiber Company**  
-Join us every Sunday from 1pm-4pm for Coffee+Crafts!  
-<a href="https://www.bostonfibercompany.com" target="_blank">info link</a>
-
-### Poetry Open Mic at Trident
-
-**05/25 07:00PM - 05/25 09:00PM @ Trident Booksellers & Cafe**  
-Join us for a fun evening of open mic poetry!  
-<a href="https://www.tridentbookscafe.com/event/poetry-open-mic-1" target="_blank">info link</a>
-
-### Time Out's 'Best Margarita in Fenway' Competition
-
-**05/25 01:00PM - 05/25 05:00PM @ Time Out Market Boston**  
-🍹 Shake things up at Time Out's ultimate Margarita Showdown!  
-<a href="https://www.eventbrite.com/e/time-outs-best-margarita-in-fenway-competition-tickets-1252311089179" target="_blank">info link</a>
-
 # Monday, May 26, 2025
 
 ### Free MFA Admission on Memorial Day 2025: Museum of Fine Arts Open House
@@ -200,17 +108,17 @@ Join community leaders and members of the Guyanese diaspora for a flag raising c
 
 # Thursday, May 29, 2025
 
-### Harvard Art Museums at Night
-
-**05/29 05:00PM - 05/29 09:00PM @ Harvard Art Museums**  
-Join us for an evening of art, fun, food, and more!  
-<a href="https://bit.ly/3ZTMRhm" target="_blank">info link</a>
-
 ### Shakira Pregame Party
 
 **05/29 05:30PM - 05/29 07:30PM @ Time Out Market Boston**  
 Ready to party? Don't miss our pregame bash for Shakira's concert on May 29rh, 5:30-7 :30PM!  
 <a href="https://www.eventbrite.com/e/shakira-pregame-party-tickets-1331066960109" target="_blank">info link</a>
+
+### Harvard Art Museums at Night
+
+**05/29 05:00PM - 05/29 09:00PM @ Harvard Art Museums**  
+Join us for an evening of art, fun, food, and more!  
+<a href="https://bit.ly/3ZTMRhm" target="_blank">info link</a>
 
 # Friday, May 30, 2025
 
@@ -240,17 +148,17 @@ Spring is here, and there’s no better way to spend a Saturday than shopping ov
 🇭🇰 New England Hong Kong Festival is back!  
 <a href="https://www.newenglandhkfest.com" target="_blank">info link</a>
 
-### The WBUR Festival Street Fair
-
-**05/31 12:00PM - 05/31 07:00PM @ BU Beach**  
-Looking for something new to do? We’ve got you.  
-<a href="https://www.wburfestival.org/" target="_blank">info link</a>
-
 ### South Boston Stoopfest
 
 **05/31 12:00PM - 05/31 05:00PM @ South Boston**  
 South Boston NDC and the South Boston Chamber of Commerce are proud to present South Boston StoopFest, a vibrant new music event designed to bring the South Boston community together while supporting local businesses.  
 <a href="https://sbstoopfest.org/" target="_blank">info link</a>
+
+### The WBUR Festival Street Fair
+
+**05/31 12:00PM - 05/31 07:00PM @ BU Beach**  
+Looking for something new to do? We’ve got you.  
+<a href="https://www.wburfestival.org/" target="_blank">info link</a>
 
 ### Aeronaut's 11th Anniversary
 
@@ -269,4 +177,6 @@ Listen to live music throughout Malden at the neighborhood Porchfest!
 **05/31 12:00PM - 05/31 05:00PM @ Ashmont**  
 Dorchester’s annual free porchfest-style music festival in the Ashmont-Adams neighborhood, hosted by Greater Ashmont Main Street.  
 <a href="https://dorchfest.com/" target="_blank">info link</a>
+
+# Sunday, June 01, 2025
 
