@@ -1,35 +1,3 @@
-# Wednesday, May 28, 2025
-
-### 100 FREE Burgers at The Lineup Food Hall for National Hamburger Day
-
-**05/28 11:30AM - 05/28 03:00PM @ Big Grin at The Lineup**  
-Big Grin, by Chef John Fraser, the popular fast-casual burger joint at The Lineup in the Winthrop Center in Downtown Boston, is celebrating National Hamburger Day with a tasty giveaway.  
-<a href="https://www.lineupandeat.com/big-grin/" target="_blank">info link</a>
-
-### Drag Bingo
-
-**05/28 08:00PM - 05/28 10:00PM @ Vera's**  
-On Wednesdays we play bingo! Join us at Vera's every Wednesday from 8-10pm for Drag Bingo!  
-<a href="https://www.instagram.com/veras_cardinal_lounge/" target="_blank">info link</a>
-
-### Jeopardy Bar League at Long Live Roxbury
-
-**05/28 07:00PM - 05/28 09:00PM @ Long Live Roxbury**  
-Teams play along and compete against each other using their smartphones through an interactive Jeopardy!  
-<a href="https://www.longlivebeerworks.com/boston-taproom" target="_blank">info link</a>
-
-### ¡Miércoles Maravilloso!: free in-person Spanish convo practice
-
-**05/28 05:00PM - 05/28 06:00PM @ Boston Area Spanish Exchange (BASE)**  
-¡Miércoles Maravilloso!Free open-level Spanish informal conversation workshops.  
-<a href="https://www.spanishclassesboston.com/events/miercolesmaravilloso" target="_blank">info link</a>
-
-### November Project: Stair Workout at Harvard Stadium
-
-**05/28 05:55AM - 05/28 07:00AM @ Harvard Stadium**  
-Located in lower Allston, Harvard Stadium is one of the favorite workout spots of the November Project™ members.  
-<a href="https://november-project.com/stadium/" target="_blank">info link</a>
-
 # Thursday, May 29, 2025
 
 ### Harvard Art Museums at Night
@@ -56,29 +24,29 @@ Note: This event occurs every two weeks.Join us for a brand new series celebrati
 We all know the classic tale of High School Musical.  
 <a href="https://hsm-screening-beyru.tripleseattickets.com/registration/select" target="_blank">info link</a>
 
-### Shakira Pregame Party
-
-**05/29 05:30PM - 05/29 07:30PM @ Time Out Market Boston**  
-Ready to party? Don't miss our pregame bash for Shakira's concert on May 29rh, 5:30-7 :30PM!  
-<a href="https://www.eventbrite.com/e/shakira-pregame-party-tickets-1331066960109" target="_blank">info link</a>
-
 ### Woburn Greek Festival
 
 **05/29 04:00PM - 06/01 03:00PM @ Annunciation Woburn Greek Orthodox Church**  
 WOBURN, MA – The Annunciation Greek Orthodox Church of Woburn is hosting its annual Greek Festival at 70 Montvale Ave.  
 <a href="http://www.woburngreekfestival.com" target="_blank">info link</a>
 
-### Saxyderms Summer Concert Series
+### Shakira Pregame Party
 
-**05/29 06:45PM - 05/29 08:15PM @ Boston Public Garden @ George Washington Statue**  
-The Saxyderms, New England's largest saxophone ensemble, is performing weekly as part of their annual summer music series concert in Boston Public Garden.  
-<a href="https://www.saxyderms.com" target="_blank">info link</a>
+**05/29 05:30PM - 05/29 07:30PM @ Time Out Market Boston**  
+Ready to party? Don't miss our pregame bash for Shakira's concert on May 29rh, 5:30-7 :30PM!  
+<a href="https://www.eventbrite.com/e/shakira-pregame-party-tickets-1331066960109" target="_blank">info link</a>
 
 ### Lowell Annual Book Fair
 
 **05/29 06:00PM - 05/31 03:00PM @ Pollard Memorial Library**  
 Huge Used Book Fair at the Pollard Memorial Library in Lowell, MA.  
 <a href="https://lowelllibrary.org" target="_blank">info link</a>
+
+### Saxyderms Summer Concert Series
+
+**05/29 06:45PM - 05/29 08:15PM @ Boston Public Garden @ George Washington Statue**  
+The Saxyderms, New England's largest saxophone ensemble, is performing weekly as part of their annual summer music series concert in Boston Public Garden.  
+<a href="https://www.saxyderms.com" target="_blank">info link</a>
 
 ### A Gathering of Poets and Plants
 
@@ -123,17 +91,17 @@ Each week we connect creators, entrepreneurs, investors, academics, corporates, 
 Admission is FREE for all every Thursday from 5 to 9 PM during ICA Free Thursday Nights.  
 <a href="http://www.icaboston.org/visit" target="_blank">info link</a>
 
-### Shakira Pregame Party
-
-**05/29 05:30PM - 05/29 07:30PM @ Time Out Market Boston**  
-Ready to party? Don't miss our pregame bash for Shakira's concert on May 29rh, 5:30-7 :30PM!  
-<a href="https://www.eventbrite.com/e/shakira-pregame-party-tickets-1331066960109" target="_blank">info link</a>
-
 ### Harvard Art Museums at Night
 
 **05/29 05:00PM - 05/29 09:00PM @ Harvard Art Museums**  
 Join us for an evening of art, fun, food, and more!  
 <a href="https://bit.ly/3ZTMRhm" target="_blank">info link</a>
+
+### Shakira Pregame Party
+
+**05/29 05:30PM - 05/29 07:30PM @ Time Out Market Boston**  
+Ready to party? Don't miss our pregame bash for Shakira's concert on May 29rh, 5:30-7 :30PM!  
+<a href="https://www.eventbrite.com/e/shakira-pregame-party-tickets-1331066960109" target="_blank">info link</a>
 
 # Friday, May 30, 2025
 
@@ -155,11 +123,11 @@ The Massachusetts Poetry Festival kicks off on May 30th with Common Threads: A C
 WOBURN, MA – The Annunciation Greek Orthodox Church of Woburn is hosting its annual Greek Festival at 70 Montvale Ave.  
 <a href="http://www.woburngreekfestival.com" target="_blank">info link</a>
 
-### Jason Aldean and Brooks & Dunn Pregame Party
+### 20's & 30's ICE CREAM CRAWL/SOCIAL (Harvard-Union Sq.)
 
-**05/30 04:00PM - 05/30 07:00PM @ Time Out Market Boston**  
-Ready to party? Don't miss our pregame bash for Jason Aldean and Brooks & Dunn concert on May 30th, 4-7PM!  
-<a href="https://www.eventbrite.com/e/jason-aldean-and-brooks-dunn-pregame-party-tickets-1331073620029" target="_blank">info link</a>
+**05/30 06:00PM - 05/30 11:00PM @ Lizzy Ice Cream**  
+Hi, my name is Tal and I run the Make Friends After College group on Facebook.  
+<a href="https://" target="_blank">info link</a>
 
 ### Lowell Annual Book Fair
 
@@ -167,23 +135,23 @@ Ready to party? Don't miss our pregame bash for Jason Aldean and Brooks & Dunn c
 Huge Used Book Fair at the Pollard Memorial Library in Lowell, MA.  
 <a href="https://lowelllibrary.org" target="_blank">info link</a>
 
-### Numb Summer Presents "Open Aux & Mic"
+### Jason Aldean and Brooks & Dunn Pregame Party
 
-**05/30 07:00PM - 05/30 11:00PM @ Blue Triangle Gallery**  
-Producers & Rappers Save The Date! 5/30 7pm-11pm We are hosting an Open Aux & Open Mic!  
-<a href="https://linktr.ee/numbsummer?utm_source=linktree_admin_share" target="_blank">info link</a>
-
-### 20's & 30's ICE CREAM CRAWL/SOCIAL (Harvard-Union Sq.)
-
-**05/30 06:00PM - 05/30 11:00PM @ Lizzy Ice Cream**  
-Hi, my name is Tal and I run the Make Friends After College group on Facebook.  
-<a href="https://" target="_blank">info link</a>
+**05/30 04:00PM - 05/30 07:00PM @ Time Out Market Boston**  
+Ready to party? Don't miss our pregame bash for Jason Aldean and Brooks & Dunn concert on May 30th, 4-7PM!  
+<a href="https://www.eventbrite.com/e/jason-aldean-and-brooks-dunn-pregame-party-tickets-1331073620029" target="_blank">info link</a>
 
 ### Cambodians in Amherst: State House Exhibit Reception + FREE FOOD
 
 **05/30 12:30PM - 05/30 02:30PM @ Massachusetts State House, Floor 4, Room 437 4, Room 437**  
 On Friday, May 30th 2025, join us in celebrating an abbreviated version of the successful Cambodians in Amherst: The History of the Khmer Community exhibit at the State House.  
 <a href="https://partiful.com/e/5eMw64bq5hATy4Ej7Wj9?f=1" target="_blank">info link</a>
+
+### Numb Summer Presents "Open Aux & Mic"
+
+**05/30 07:00PM - 05/30 11:00PM @ Blue Triangle Gallery**  
+Producers & Rappers Save The Date! 5/30 7pm-11pm We are hosting an Open Aux & Open Mic!  
+<a href="https://linktr.ee/numbsummer?utm_source=linktree_admin_share" target="_blank">info link</a>
 
 ### Sam Adams Presents: Decked Out
 
@@ -248,29 +216,29 @@ Ready to party? Don't miss our pregame bash for Jason Aldean and Brooks & Dunn c
 Looking for something new to do? We’ve got you.  
 <a href="https://www.wburfestival.org/" target="_blank">info link</a>
 
-### South Boston Stoopfest
-
-**05/31 12:00PM - 05/31 05:00PM @ South Boston**  
-South Boston NDC and the South Boston Chamber of Commerce are proud to present South Boston StoopFest, a vibrant new music event designed to bring the South Boston community together while supporting local businesses.  
-<a href="https://sbstoopfest.org/" target="_blank">info link</a>
-
 ### Aeronaut's 11th Anniversary
 
 **05/31 12:00PM - 05/31 05:00PM @ Aeronaut Brewing Somerville**  
 Aeronaut is turning 11! Celebrate with us!  
 <a href="https://www.eventbrite.com/e/aeronauts-11th-anniversary-tickets-1331018585419" target="_blank">info link</a>
 
-### Malden PorchFest
+### South Boston Stoopfest
 
-**05/31 12:00PM - 05/31 06:00PM @ Malden**  
-Listen to live music throughout Malden at the neighborhood Porchfest!  
-<a href="https://maldenporchfest.org/faq/performer/" target="_blank">info link</a>
+**05/31 12:00PM - 05/31 05:00PM @ South Boston**  
+South Boston NDC and the South Boston Chamber of Commerce are proud to present South Boston StoopFest, a vibrant new music event designed to bring the South Boston community together while supporting local businesses.  
+<a href="https://sbstoopfest.org/" target="_blank">info link</a>
 
 ### Dorchfest
 
 **05/31 12:00PM - 05/31 05:00PM @ Ashmont**  
 Dorchester’s annual free porchfest-style music festival in the Ashmont-Adams neighborhood, hosted by Greater Ashmont Main Street.  
 <a href="https://dorchfest.com/" target="_blank">info link</a>
+
+### Malden PorchFest
+
+**05/31 12:00PM - 05/31 06:00PM @ Malden**  
+Listen to live music throughout Malden at the neighborhood Porchfest!  
+<a href="https://maldenporchfest.org/faq/performer/" target="_blank">info link</a>
 
 ### 2025 Massachusetts Poetry Festival
 
@@ -320,17 +288,17 @@ The vibes are vibin' once again! We're bringing back our Rooftop Deck DJs this S
 A vibrant open-air market featuring talented area artists, makers, stylists and independent designers on the Boston Waterfront.  
 <a href="https://www.greenwayartisanmarket.com/" target="_blank">info link</a>
 
-### 21st Annual Union Square Farmers Market
-
-**05/31 09:00AM - 05/31 01:00PM @ Union Square Plaza**  
-Join Union Square Main Streets and 60+ of your favorite local food producers for the 21st Annual Union Square Farmers Market!  
-<a href="https://www.unionsquaremain.org/2025-season" target="_blank">info link</a>
-
 ### 2025 Boston Open Market
 
 **05/31 12:00PM - 05/31 05:00PM @ The Boston Open Market**  
 At New England Open Markets, our mission is to spotlight and uplift the vibrant tapestry of New England's local artisans and small businesses.  
 <a href="https://www.newenglandopenmarkets.com/" target="_blank">info link</a>
+
+### 21st Annual Union Square Farmers Market
+
+**05/31 09:00AM - 05/31 01:00PM @ Union Square Plaza**  
+Join Union Square Main Streets and 60+ of your favorite local food producers for the 21st Annual Union Square Farmers Market!  
+<a href="https://www.unionsquaremain.org/2025-season" target="_blank">info link</a>
 
 ### Jamaica Pond parkrun
 
@@ -351,17 +319,17 @@ parkrun is a FREE 5k and takes place every Saturday morning at Danehy Park in Ca
 HERE FOR A GOOD TIME AND A LONG TIME ‼️  
 <a href="https://" target="_blank">info link</a>
 
-### Seaport Smalls
-
-**05/31 10:00AM - 05/31 11:00AM @ The Paseo at 111 Harbor Way**  
-Back by popular demand, Boston Seaport's children's programming series, Seaport Smalls: Free Fun for your Tiny Crew.  
-<a href="https://www.eventbrite.com/e/seaport-smalls-tickets-1308146885549" target="_blank">info link</a>
-
 ### Traditional Irish Music Sessions at The Druid
 
 **05/31 04:00PM - 05/31 11:00PM @ The Druid**  
 Traditional Irish Sessions are a long-standing tradition and well-known event at the Druid.  
 <a href="https://www.druidpub.com/music" target="_blank">info link</a>
+
+### Seaport Smalls
+
+**05/31 10:00AM - 05/31 11:00AM @ The Paseo at 111 Harbor Way**  
+Back by popular demand, Boston Seaport's children's programming series, Seaport Smalls: Free Fun for your Tiny Crew.  
+<a href="https://www.eventbrite.com/e/seaport-smalls-tickets-1308146885549" target="_blank">info link</a>
 
 ### Boston Women’s Market at Assembly Row
 
@@ -381,6 +349,12 @@ Spring is here, and there’s no better way to spend a Saturday than shopping ov
 South Boston NDC and the South Boston Chamber of Commerce are proud to present South Boston StoopFest, a vibrant new music event designed to bring the South Boston community together while supporting local businesses.  
 <a href="https://sbstoopfest.org/" target="_blank">info link</a>
 
+### Aeronaut's 11th Anniversary
+
+**05/31 12:00PM - 05/31 05:00PM @ Aeronaut Brewing Somerville**  
+Aeronaut is turning 11! Celebrate with us!  
+<a href="https://www.eventbrite.com/e/aeronauts-11th-anniversary-tickets-1331018585419" target="_blank">info link</a>
+
 ### The WBUR Festival Street Fair
 
 **05/31 12:00PM - 05/31 07:00PM @ BU Beach**  
@@ -393,23 +367,11 @@ Looking for something new to do? We’ve got you.
 Listen to live music throughout Malden at the neighborhood Porchfest!  
 <a href="https://maldenporchfest.org/faq/performer/" target="_blank">info link</a>
 
-### Aeronaut's 11th Anniversary
-
-**05/31 12:00PM - 05/31 05:00PM @ Aeronaut Brewing Somerville**  
-Aeronaut is turning 11! Celebrate with us!  
-<a href="https://www.eventbrite.com/e/aeronauts-11th-anniversary-tickets-1331018585419" target="_blank">info link</a>
-
 ### Dorchfest
 
 **05/31 12:00PM - 05/31 05:00PM @ Ashmont**  
 Dorchester’s annual free porchfest-style music festival in the Ashmont-Adams neighborhood, hosted by Greater Ashmont Main Street.  
 <a href="https://dorchfest.com/" target="_blank">info link</a>
-
-### Waterfire Providence 2025
-
-**05/31 06:00PM - 11/01 10:00PM @ Downtown Providence**  
-The 2025 WaterFire lighting season is proudly presented with generous support from the Providence Tourism Council and Providence Warwick Convention & Visitors Bureau.  
-<a href="https://waterfire.org/" target="_blank">info link</a>
 
 # Sunday, June 01, 2025
 
@@ -431,17 +393,17 @@ More than ever, we need to experience JOY.
 ✨ Like, OMG, Upstairs at Bow is giving Y2K realness ✨ Pull up lookin’ fly for our Day Party during Vintage Market 💎📍 Upstairs at Bow👛 12-3PM: Tie-dye dreams (book your appointment- HERE)💅 3-8PM: Bedazzle everything you own (no appointment, duh)🎧 3-8PM: Beats by DJ LDUKE — with the beats 🍹 Sips by Nook (cuz hydration is hot)👖 Shop Y2K vintage fits trucker hats, denim, baby tees, vintage shirts and more 🔥👑 Best Fit Contest: serve a lewk and WIN a $100 gift card — it's giving rich girl energy 🤑Catch ya there, hottie ✌️💖  
 <a href="https://www.tickettailor.com/events/bowmarket/1684252" target="_blank">info link</a>
 
-### CaziCon 2025
-
-**06/01 10:00AM - 06/01 03:00PM @ The Armory**  
-We are thrilled to announce that LadiesCon is becoming CaziCon!  
-<a href="https://www.cazicon.com" target="_blank">info link</a>
-
 ### Strides for Action
 
 **06/01 08:00AM - 06/01 12:00PM @ Artesani Park/Christian Herter Park**  
 Strides for Action 2025 🗓 Sunday, June 1, 2025 | ⏰ 8:00 AM – 12:00 PM 📍 Artesani/Christian A.  
 <a href="https://stridesforaction.org" target="_blank">info link</a>
+
+### CaziCon 2025
+
+**06/01 10:00AM - 06/01 03:00PM @ The Armory**  
+We are thrilled to announce that LadiesCon is becoming CaziCon!  
+<a href="https://www.cazicon.com" target="_blank">info link</a>
 
 ### 2025 Massachusetts Poetry Festival
 
@@ -449,29 +411,29 @@ Strides for Action 2025 🗓 Sunday, June 1, 2025 | ⏰ 8:00 AM – 12:00 PM �
 The Massachusetts Poetry Festival kicks off on May 30th with Common Threads: A Celebration of Massachusetts Poets, a showcase of local poets with readings by distinguished Massachusetts poets and poet laureates, including Elizabeth Bradfield, Regie Gibson, and J.  
 <a href="https://masspoetry.org/massachusetts-poetry-festival/" target="_blank">info link</a>
 
-### New England Vegfest 2025
-
-**06/01 12:00PM - 06/01 05:00PM @ Worcester State University - Wellness Center**  
-The New England VegFest is a free festival that brings the local community together to celebrate veganism: an animal-friendly, environmentally sustainable, and healthy lifestyle.  
-<a href="https://vegfest.org" target="_blank">info link</a>
-
-### Boston Women’s Market Jamaica Plain
-
-**06/01 11:00AM - 06/01 04:00PM @ Loring Greenough House**  
-Get ready for our biggest market of the year at the beautiful Loring-Greenough House in Jamaica Plain!  
-<a href="https://www.bostonwomensmarket.com/events-calendar/boston-womens-market-jamaica-plain" target="_blank">info link</a>
-
 ### Woburn Greek Festival
 
 **05/29 04:00PM - 06/01 03:00PM @ Annunciation Woburn Greek Orthodox Church**  
 WOBURN, MA – The Annunciation Greek Orthodox Church of Woburn is hosting its annual Greek Festival at 70 Montvale Ave.  
 <a href="http://www.woburngreekfestival.com" target="_blank">info link</a>
 
+### New England Vegfest 2025
+
+**06/01 12:00PM - 06/01 05:00PM @ Worcester State University - Wellness Center**  
+The New England VegFest is a free festival that brings the local community together to celebrate veganism: an animal-friendly, environmentally sustainable, and healthy lifestyle.  
+<a href="https://vegfest.org" target="_blank">info link</a>
+
 ### Spring Celebration with free acupuncture and more
 
 **06/01 11:00AM - 06/01 02:00PM @ Boston Acupuncture Project**  
 Join us to wrap up the Boston Acupuncture Project Spring Fundraiser and celebrate community wellness!  
 <a href="https://bostonacupunctureproject.org/event/spring-celebration-2025/" target="_blank">info link</a>
+
+### Boston Women’s Market Jamaica Plain
+
+**06/01 11:00AM - 06/01 04:00PM @ Loring Greenough House**  
+Get ready for our biggest market of the year at the beautiful Loring-Greenough House in Jamaica Plain!  
+<a href="https://www.bostonwomensmarket.com/events-calendar/boston-womens-market-jamaica-plain" target="_blank">info link</a>
 
 ### Free Tours of Fort Independence
 
@@ -485,17 +447,17 @@ In June, July, and August 2025, tours will be run between 12:00 and 3:00 on Satu
 Join us on Sunday, June 1st, 10:00 am to 1:00 pm!  
 <a href="https://" target="_blank">info link</a>
 
-### Memorial Drive Recreation Sundays 2025
-
-**06/01 11:00AM - 06/01 07:00PM @ Riverbend Park**  
-The Department of Conservation and Recreation (DCR) closes a portion Memorial Drive to motor vehicle traffic each weekend from the end of April to mid-November to allow pedestrians, cyclists, and others to enjoy the riverfront roadway without cars.  
-<a href="https://www.cambridgema.gov/streetsandtransportation/memorialdrive" target="_blank">info link</a>
-
 ### Greenway Artisan Market
 
 **05/31 11:00AM - 06/01 05:00PM @ Rose Kennedy Greenway**  
 A vibrant open-air market featuring talented area artists, makers, stylists and independent designers on the Boston Waterfront.  
 <a href="https://www.greenwayartisanmarket.com/" target="_blank">info link</a>
+
+### Memorial Drive Recreation Sundays 2025
+
+**06/01 11:00AM - 06/01 07:00PM @ Riverbend Park**  
+The Department of Conservation and Recreation (DCR) closes a portion Memorial Drive to motor vehicle traffic each weekend from the end of April to mid-November to allow pedestrians, cyclists, and others to enjoy the riverfront roadway without cars.  
+<a href="https://www.cambridgema.gov/streetsandtransportation/memorialdrive" target="_blank">info link</a>
 
 ### Coffee+Crafts
 
@@ -509,25 +471,9 @@ Join us every Sunday from 1pm-4pm for Coffee+Crafts!
 Join us for a fun evening of open mic poetry!  
 <a href="https://www.tridentbookscafe.com/event/poetry-open-mic-1" target="_blank">info link</a>
 
-### Waterfire Providence 2025
-
-**05/31 06:00PM - 11/01 10:00PM @ Downtown Providence**  
-The 2025 WaterFire lighting season is proudly presented with generous support from the Providence Tourism Council and Providence Warwick Convention & Visitors Bureau.  
-<a href="https://waterfire.org/" target="_blank">info link</a>
-
 # Monday, June 02, 2025
-
-### Waterfire Providence 2025
-
-**05/31 06:00PM - 11/01 10:00PM @ Downtown Providence**  
-The 2025 WaterFire lighting season is proudly presented with generous support from the Providence Tourism Council and Providence Warwick Convention & Visitors Bureau.  
-<a href="https://waterfire.org/" target="_blank">info link</a>
 
 # Tuesday, June 03, 2025
 
-### Waterfire Providence 2025
-
-**05/31 06:00PM - 11/01 10:00PM @ Downtown Providence**  
-The 2025 WaterFire lighting season is proudly presented with generous support from the Providence Tourism Council and Providence Warwick Convention & Visitors Bureau.  
-<a href="https://waterfire.org/" target="_blank">info link</a>
+# Wednesday, June 04, 2025
 
