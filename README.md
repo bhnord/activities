@@ -1,59 +1,3 @@
-# Wednesday, June 04, 2025
-
-### GroundBeat Concert Series: Salsa at the Shell
-
-**06/04 06:00PM - 06/04 08:00PM @ DCR Hatch Memorial Shell**  
-Get ready to move to the rhythm! Join us at the iconic DCR Hatch Memorial Shell along Boston’s Esplanade for Salsa at the Shell, an unforgettable evening of live Latin music, youth-powered talent, and community celebration.  
-<a href="https://events.humanitix.com/groundbeat-salsa-at-the-shell?hxchl=hex-pfl" target="_blank">info link</a>
-
-### 2025 Yappier Hour at the Liberty Hotel
-
-**06/04 05:30PM - 06/04 07:00PM @ The Liberty Hotel**  
-Unleash outdoor fun at Yappier Hour – Boston’s ultimate weekly gathering for hotel guests and local dog owners!  
-<a href="https://libertyhotel.com/liberty-affairs/yappier-hour-2024/" target="_blank">info link</a>
-
-### Grand Ten Line Dancin' Lessons
-
-**06/04 06:30PM - 06/04 09:30PM @ Grand Ten Distilling**  
-Mosey on down to South Boston on the 1st and 3rd Wednesdays of the month for three hours of line dance breakdowns and walk throughs.  
-<a href="https://" target="_blank">info link</a>
-
-### Drag Bingo
-
-**06/04 08:00PM - 06/04 10:00PM @ Vera's**  
-On Wednesdays we play bingo! Join us at Vera's every Wednesday from 8-10pm for Drag Bingo!  
-<a href="https://www.instagram.com/veras_cardinal_lounge/" target="_blank">info link</a>
-
-### ¡Miércoles Maravilloso!: free in-person Spanish convo practice
-
-**06/04 05:00PM - 06/04 06:00PM @ Boston Area Spanish Exchange (BASE)**  
-¡Miércoles Maravilloso!Free open-level Spanish informal conversation workshops.  
-<a href="https://www.spanishclassesboston.com/events/miercolesmaravilloso" target="_blank">info link</a>
-
-### Jeopardy Bar League at Long Live Roxbury
-
-**06/04 07:00PM - 06/04 09:00PM @ Long Live Roxbury**  
-Teams play along and compete against each other using their smartphones through an interactive Jeopardy!  
-<a href="https://www.longlivebeerworks.com/boston-taproom" target="_blank">info link</a>
-
-### November Project: Stair Workout at Harvard Stadium
-
-**06/04 05:55AM - 06/04 07:00AM @ Harvard Stadium**  
-Located in lower Allston, Harvard Stadium is one of the favorite workout spots of the November Project™ members.  
-<a href="https://november-project.com/stadium/" target="_blank">info link</a>
-
-### FREE Live Music at the Urban Park Roof Garden by Club Passim
-
-**06/04 12:00PM - 06/04 01:00PM @ Urban Park Roof Garden**  
-Club Passim brings FREE live music to the Urban Park Roof Garden weekly on Wednesdays from June 4th to August 27th from 12pm – 1pm.  
-<a href="https://www.passim.org/live-music/festivals_summer_series/kendall-square-series/" target="_blank">info link</a>
-
-### 2025 Yappier Hour at the Liberty Hotel
-
-**06/04 05:30PM - 06/04 07:00PM @ The Liberty Hotel**  
-Unleash outdoor fun at Yappier Hour – Boston’s ultimate weekly gathering for hotel guests and local dog owners!  
-<a href="https://libertyhotel.com/liberty-affairs/yappier-hour-2024/" target="_blank">info link</a>
-
 # Thursday, June 05, 2025
 
 ### Thursdays on the Lawn at the Loring Greenough House
@@ -167,17 +111,17 @@ The courtyard of the Central Library in Copley Square is one of Boston's most be
 There's a new reason to visit Assembly Row every week, so mark your calendars and bring your friends and family because Summer nights just got a whole lot better!  
 <a href="https://www.eventbrite.com/cc/thursdays-on-the-lawn-4324923" target="_blank">info link</a>
 
-### No Kings on D-Day
-
-**06/06 05:00PM - 06/06 07:00PM @ Soldiers and Sailors Monument**  
-On June 6th, 2025, the Anniversary of D-Day, Mass 50501 will hold an event in remembrance of our heroes in uniform, past and present.  
-<a href="https://www.mass50501.org/events/june6" target="_blank">info link</a>
-
 ### 17th Annual Salem Arts Festival
 
 **06/06 10:00AM - 06/08 06:00PM @ Downtown Salem**  
 Join us for the 17th annual Salem Arts Festival, June 6-8, 2025, in historic downtown Salem, featuring a vibrant celebration of local art, music, dance, and theatre performances across outdoor stages.  
 <a href="https://www.salemartsfestival.com/" target="_blank">info link</a>
+
+### No Kings on D-Day
+
+**06/06 05:00PM - 06/06 07:00PM @ Soldiers and Sailors Monument**  
+On June 6th, 2025, the Anniversary of D-Day, Mass 50501 will hold an event in remembrance of our heroes in uniform, past and present.  
+<a href="https://www.mass50501.org/events/june6" target="_blank">info link</a>
 
 ### SoWa First Friday
 
@@ -227,17 +171,17 @@ Curious about meditation and mindfulness? Let’s enjoy some FREE outdoor medita
 Join us for Open Mic Night at Sam Adams Boston Brewery!  
 <a href="https://www.eventbrite.com/e/open-mic-night-tickets-1301309344279?aff=ebdsshcopyurl&utm-campaign=social&utm-content=attendeeshare&utm-medium=discovery&utm-term=listing&utm-source=cp" target="_blank">info link</a>
 
-### Grrrl Talk: By the ladies for the ladies, friends, and lovers.
-
-**06/06 09:00PM - 06/07 12:00AM @ Satellite**  
-Join us with DJs RaDJoy and Stealthmode as they spin vinyl classics and faves.  
-<a href="https://" target="_blank">info link</a>
-
 ### $250 Open Mic Night
 
 **06/06 07:00PM - 06/06 09:00PM @ Cambridge Community Center**  
 Welcome to the Boston Queer Club Open Mic Night!  
 <a href="https://www.bostonqueerclub.com/eventscalendar" target="_blank">info link</a>
+
+### Grrrl Talk: By the ladies for the ladies, friends, and lovers.
+
+**06/06 09:00PM - 06/07 12:00AM @ Satellite**  
+Join us with DJs RaDJoy and Stealthmode as they spin vinyl classics and faves.  
+<a href="https://" target="_blank">info link</a>
 
 ### Jazz Fridays at The Fed
 
@@ -245,18 +189,18 @@ Welcome to the Boston Queer Club Open Mic Night!
 The Fed at The Langham, Boston presents Jazz Fridays with Speechless Music!  
 <a href="https://www.opentable.com/r/the-fed-at-the-langham-boston" target="_blank">info link</a>
 
+### Friday Night Trivia
+
+**06/06 07:00PM - 06/06 09:00PM @ Trident Booksellers and Cafe**  
+Join us for seven rounds of general knowledge trivia, every Friday at 7 pm!  
+<a href="https://tridentbookscafe.com/events" target="_blank">info link</a>
+
 ### KARAOKE THURSDAY-SATURDAY @SIDEBAR BOSTON
 
 **06/05 08:00PM - 06/07 01:55AM @ SIDEBAR BOSTON**  
 ⚠️‼️JOIN US FOR KARAOKE @SIDEBAR BOSTON THURSDAY- SATURDAY 8PM-2AM EVERY WEEK ‼️⚠️ 
 HERE FOR A GOOD TIME AND A LONG TIME ‼️  
 <a href="https://" target="_blank">info link</a>
-
-### Friday Night Trivia
-
-**06/06 07:00PM - 06/06 09:00PM @ Trident Booksellers and Cafe**  
-Join us for seven rounds of general knowledge trivia, every Friday at 7 pm!  
-<a href="https://tridentbookscafe.com/events" target="_blank">info link</a>
 
 ### Kelleher Rose Garden 2025 Bloom
 
@@ -269,6 +213,12 @@ The Kelleher Rose Garden, located in Boston’s Back Bay Fens, will be in full b
 **06/06 05:00PM - 06/06 10:30PM @ Aeronaut Allston**  
 Celebrate Pride at Aeronaut Allston!  Sip on our delicious Pride Beer, Journey to the Center, while enjoying an evening of fun pride activities!  
 <a href="https://www.eventbrite.com/e/1330945837829?aff=oddtdtcreator" target="_blank">info link</a>
+
+### SoWa First Friday
+
+**06/06 05:00PM - 06/06 09:00PM @ SoWa Art + Design District**  
+JUNE AND ART.There is only one 450 Harrison Ave.  
+<a href="https://www.sowaartists.com/events" target="_blank">info link</a>
 
 ### Free Outdoor Meditation @ Boston Public Garden
 
@@ -288,17 +238,17 @@ Join us for a modern twist on this classic match-making game from the 60s!
 A new art experience is coming to Somerville!  
 <a href="https://sanidaddesign.com/somerville-art-fair" target="_blank">info link</a>
 
-### Concerts in the Courtyard at Boston Public Library
-
-**06/06 12:30PM - 08/29 01:30PM @ Boston Public Library Courtyard**  
-The courtyard of the Central Library in Copley Square is one of Boston's most beautiful havens from the hustle and bustle of the city.  
-<a href="https://www.bpl.org/concerts-in-the-courtyard/" target="_blank">info link</a>
-
 ### Summer in the City 2025: Free Live Music on the Harborwalk
 
 **06/06 06:00PM - 08/28 10:00PM @ Boston Harbor Hotel**  
 The annual Summer in the City series returns for the 2025 season, kicking off a summer of first class waterfront entertainment at the iconic Boston Harbor Hotel.  
 <a href="https://www.bostonharborhotel.com/culinary/summer-in-the-city/" target="_blank">info link</a>
+
+### Concerts in the Courtyard at Boston Public Library
+
+**06/06 12:30PM - 08/29 01:30PM @ Boston Public Library Courtyard**  
+The courtyard of the Central Library in Copley Square is one of Boston's most beautiful havens from the hustle and bustle of the city.  
+<a href="https://www.bpl.org/concerts-in-the-courtyard/" target="_blank">info link</a>
 
 ### Collective FEST: A Community Activation Weekend
 
@@ -311,12 +261,6 @@ Collective FESTervescence is an urban community activation weekend (June 6-8th, 
 **06/06 11:00AM - 09/25 11:00PM @ Island Creek Seaport Popup**  
 Island Creek Oysters is bringing the briny magic of its legendary Duxbury raw bar to Boston’s Seaport.  
 <a href="https://shop.islandcreekoysters.com/pages/island-creek-raw-bar-seaport" target="_blank">info link</a>
-
-### SoWa First Friday
-
-**06/06 05:00PM - 06/06 09:00PM @ SoWa Art + Design District**  
-JUNE AND ART.There is only one 450 Harrison Ave.  
-<a href="https://www.sowaartists.com/events" target="_blank">info link</a>
 
 # Saturday, June 07, 2025
 
@@ -332,23 +276,17 @@ Haley House is thrilled to invite you to our 20th annual Block Party!
 The Kelleher Rose Garden, located in Boston’s Back Bay Fens, will be in full bloom from the beginning to the middle of June.  
 <a href="https://www.emeraldnecklace.org/venue/kelleher-rose-garden/" target="_blank">info link</a>
 
-### Concerts in the Courtyard at Boston Public Library
-
-**06/06 12:30PM - 08/29 01:30PM @ Boston Public Library Courtyard**  
-The courtyard of the Central Library in Copley Square is one of Boston's most beautiful havens from the hustle and bustle of the city.  
-<a href="https://www.bpl.org/concerts-in-the-courtyard/" target="_blank">info link</a>
-
-### Movies on the Lawn at Assembly Row
-
-**06/05 08:00PM - 08/07 10:30PM @ The Lawn (located between Club Volo and Caffè Nero)**  
-There's a new reason to visit Assembly Row every week, so mark your calendars and bring your friends and family because Summer nights just got a whole lot better!  
-<a href="https://www.eventbrite.com/cc/thursdays-on-the-lawn-4324923" target="_blank">info link</a>
-
 ### Seaport Summer Market
 
 **06/07 11:00AM - 06/08 06:00PM @ Seaport Summer Market**  
 The Seaport Summer Market is back for the 2025 season and located on Seaport Boulevard every weekend May through June on Saturdays AND Sundays from 11am-7pm.  
 <a href="https://www.bostonseaport.xyz/venue/seaport-summer-market-2/" target="_blank">info link</a>
+
+### Concerts in the Courtyard at Boston Public Library
+
+**06/06 12:30PM - 08/29 01:30PM @ Boston Public Library Courtyard**  
+The courtyard of the Central Library in Copley Square is one of Boston's most beautiful havens from the hustle and bustle of the city.  
+<a href="https://www.bpl.org/concerts-in-the-courtyard/" target="_blank">info link</a>
 
 ### Fenway Open Studios
 
@@ -356,11 +294,23 @@ The Seaport Summer Market is back for the 2025 season and located on Seaport Bou
 The Fenway Studios on Ipswich Street are the oldest purpose-built artist studios in the country, and they’re only open to the public twice a year 🎨On Saturday, June 7 visit the studios 11am-5pm.  
 <a href="https://www.instagram.com/p/DKM50aUO_7-/" target="_blank">info link</a>
 
+### Movies on the Lawn at Assembly Row
+
+**06/05 08:00PM - 08/07 10:30PM @ The Lawn (located between Club Volo and Caffè Nero)**  
+There's a new reason to visit Assembly Row every week, so mark your calendars and bring your friends and family because Summer nights just got a whole lot better!  
+<a href="https://www.eventbrite.com/cc/thursdays-on-the-lawn-4324923" target="_blank">info link</a>
+
 ### 17th Annual Salem Arts Festival
 
 **06/06 10:00AM - 06/08 06:00PM @ Downtown Salem**  
 Join us for the 17th annual Salem Arts Festival, June 6-8, 2025, in historic downtown Salem, featuring a vibrant celebration of local art, music, dance, and theatre performances across outdoor stages.  
 <a href="https://www.salemartsfestival.com/" target="_blank">info link</a>
+
+### 15th Annual Dance for World Community
+
+**06/07 12:00PM - 06/07 06:00PM @ Harvard Square**  
+Join us for Greater Boston’s largest and most popular outdoor/indoor dance event!  
+<a href="https://www.danceforworldcommunity.org/" target="_blank">info link</a>
 
 ### Medford PorchFest
 
@@ -373,12 +323,6 @@ Medford Porchfest is an afternoon of free performances throughout Medford, spotl
 **06/07 07:00PM - 06/07 11:00PM @ Sam Adams Boston Taproom**  
 Get ready to celebrate the rerelease of our Love Conquers Ale brew with a Rooftop House Party to kickoff Pride Month hosted by yours truly.  
 <a href="https://www.eventbrite.com/e/pride-rooftop-house-party-tickets-1279741213419?utm-campaign=social&utm-content=attendeeshare&utm-medium=discovery&utm-term=listing&utm-source=cp&aff=ebdsshcopyurl" target="_blank">info link</a>
-
-### 15th Annual Dance for World Community
-
-**06/07 12:00PM - 06/07 06:00PM @ Harvard Square**  
-Join us for Greater Boston’s largest and most popular outdoor/indoor dance event!  
-<a href="https://www.danceforworldcommunity.org/" target="_blank">info link</a>
 
 ### Dorchester Open Studios
 
@@ -410,17 +354,17 @@ Join us for the 2nd Annual Boston Landing Fit Fest, a vibrant celebration of hea
 The annual Summer in the City series returns for the 2025 season, kicking off a summer of first class waterfront entertainment at the iconic Boston Harbor Hotel.  
 <a href="https://www.bostonharborhotel.com/culinary/summer-in-the-city/" target="_blank">info link</a>
 
-### Collective FEST: A Community Activation Weekend
-
-**06/06 06:30PM - 06/08 03:30PM @ Boston Figurative Art Center**  
-Collective FESTervescence is an urban community activation weekend (June 6-8th, 2025) showcasing different offerings from the hub of conscious and creative communities in Boston metro area, bringing it to the wider public in an accessible way, and strengthening the cohesion of gatherers, activists, artists, healers, wellness practitioners, and other space-holders in our community and adjacent communities.  
-<a href="https://collectiveffervescenceboston.com/festival" target="_blank">info link</a>
-
 ### 20's & 30's Beach Day Social at Carson Beach! (Boston)
 
 **06/07 12:00PM - 06/07 04:00PM @ Carson Beach**  
 Hi, my name is Tal and I run the Make Friends After College group on Facebook.  
 <a href="https://" target="_blank">info link</a>
+
+### Collective FEST: A Community Activation Weekend
+
+**06/06 06:30PM - 06/08 03:30PM @ Boston Figurative Art Center**  
+Collective FESTervescence is an urban community activation weekend (June 6-8th, 2025) showcasing different offerings from the hub of conscious and creative communities in Boston metro area, bringing it to the wider public in an accessible way, and strengthening the cohesion of gatherers, activists, artists, healers, wellness practitioners, and other space-holders in our community and adjacent communities.  
+<a href="https://collectiveffervescenceboston.com/festival" target="_blank">info link</a>
 
 ### Families First FEST Boston
 
@@ -464,29 +408,29 @@ Kick off pride month with us at our Queer Board Game night!
 In June, we'll be settling into a new groove of two vegan picnic potlucks per month!  
 <a href="https://" target="_blank">info link</a>
 
-### Free Distillery Tours
-
-**06/07 02:00PM - 06/07 03:00PM @ Short Path Distillery**  
-New! We're now running FREE tours on the first Saturday of each month!  
-<a href="https://www.eventbrite.com/e/free-distillery-tours-tickets-1270954411859" target="_blank">info link</a>
-
 ### Boston Women’s Market at The Yard Suffolk Downs
 
 **06/07 11:00AM - 06/07 04:00PM @ The Yard at Beachmont Square**  
 Saturday,  June 7, 11 AM – 4 PMThe Yard at Beachmont Square, 50 Salt St, Revere, MA 02151We’re popping up in Revere for the very first time!  
 <a href="https://www.bostonwomensmarket.com/events-calendar/boston-womens-market-at-the-yard-suffolk-downs" target="_blank">info link</a>
 
-### Grrrl Talk: By the ladies for the ladies, friends, and lovers.
+### Free Distillery Tours
 
-**06/06 09:00PM - 06/07 12:00AM @ Satellite**  
-Join us with DJs RaDJoy and Stealthmode as they spin vinyl classics and faves.  
-<a href="https://" target="_blank">info link</a>
+**06/07 02:00PM - 06/07 03:00PM @ Short Path Distillery**  
+New! We're now running FREE tours on the first Saturday of each month!  
+<a href="https://www.eventbrite.com/e/free-distillery-tours-tickets-1270954411859" target="_blank">info link</a>
 
 ### VEGRUN
 
 **06/07 10:00AM - 06/07 02:00PM @ Fresh Pond Reservation**  
 Run or walk to promoting vegan food and caring for our planet.  
 <a href="https://docs.google.com/forms/d/e/1FAIpQLSeuSUoSkqERv5rDF-xw6WBI0LptKslwwXm38C_PQhh7bHht1g/viewform" target="_blank">info link</a>
+
+### Grrrl Talk: By the ladies for the ladies, friends, and lovers.
+
+**06/06 09:00PM - 06/07 12:00AM @ Satellite**  
+Join us with DJs RaDJoy and Stealthmode as they spin vinyl classics and faves.  
+<a href="https://" target="_blank">info link</a>
 
 ### Surfrider Massachusetts Savin Hill/Malibu Beach Cleanup
 
@@ -561,17 +505,17 @@ Back by popular demand, Boston Seaport's children's programming series, Seaport 
 The Kelleher Rose Garden, located in Boston’s Back Bay Fens, will be in full bloom from the beginning to the middle of June.  
 <a href="https://www.emeraldnecklace.org/venue/kelleher-rose-garden/" target="_blank">info link</a>
 
-### Concerts in the Courtyard at Boston Public Library
-
-**06/06 12:30PM - 08/29 01:30PM @ Boston Public Library Courtyard**  
-The courtyard of the Central Library in Copley Square is one of Boston's most beautiful havens from the hustle and bustle of the city.  
-<a href="https://www.bpl.org/concerts-in-the-courtyard/" target="_blank">info link</a>
-
 ### Summer in the City 2025: Free Live Music on the Harborwalk
 
 **06/06 06:00PM - 08/28 10:00PM @ Boston Harbor Hotel**  
 The annual Summer in the City series returns for the 2025 season, kicking off a summer of first class waterfront entertainment at the iconic Boston Harbor Hotel.  
 <a href="https://www.bostonharborhotel.com/culinary/summer-in-the-city/" target="_blank">info link</a>
+
+### Concerts in the Courtyard at Boston Public Library
+
+**06/06 12:30PM - 08/29 01:30PM @ Boston Public Library Courtyard**  
+The courtyard of the Central Library in Copley Square is one of Boston's most beautiful havens from the hustle and bustle of the city.  
+<a href="https://www.bpl.org/concerts-in-the-courtyard/" target="_blank">info link</a>
 
 ### Collective FEST: A Community Activation Weekend
 
@@ -585,17 +529,17 @@ Collective FESTervescence is an urban community activation weekend (June 6-8th, 
 Join DCR’s Universal Access Program and other adaptive recreation organizations for an accessible and inclusive day of fun and networking along the Charles River!  
 <a href="https://www.mass.gov/event/dcr-uap-2025-adaptive-recreation-fair-06-07-2025" target="_blank">info link</a>
 
-### Island Creek Oysters Pop-up Raw Bar Seaport
-
-**06/06 11:00AM - 09/25 11:00PM @ Island Creek Seaport Popup**  
-Island Creek Oysters is bringing the briny magic of its legendary Duxbury raw bar to Boston’s Seaport.  
-<a href="https://shop.islandcreekoysters.com/pages/island-creek-raw-bar-seaport" target="_blank">info link</a>
-
 ### Fenway Open Studios
 
 **06/07 11:00AM - 06/07 05:00PM @ Fenway Studios**  
 The Fenway Studios on Ipswich Street are the oldest purpose-built artist studios in the country, and they’re only open to the public twice a year 🎨On Saturday, June 7 visit the studios 11am-5pm.  
 <a href="https://www.instagram.com/p/DKM50aUO_7-/" target="_blank">info link</a>
+
+### Island Creek Oysters Pop-up Raw Bar Seaport
+
+**06/06 11:00AM - 09/25 11:00PM @ Island Creek Seaport Popup**  
+Island Creek Oysters is bringing the briny magic of its legendary Duxbury raw bar to Boston’s Seaport.  
+<a href="https://shop.islandcreekoysters.com/pages/island-creek-raw-bar-seaport" target="_blank">info link</a>
 
 ### Surfrider Massachusetts Savin Hill/Malibu Beach Cleanup
 
@@ -609,12 +553,6 @@ Join Surfrider Massachusetts for monthly beach cleanups in 2025!
 Medford Porchfest is an afternoon of free performances throughout Medford, spotlighting the musical skills and diverse cultures of the Medford community.  
 <a href="https://medford.porchfest.info/" target="_blank">info link</a>
 
-### 20's & 30's Beach Day Social at Carson Beach! (Boston)
-
-**06/07 12:00PM - 06/07 04:00PM @ Carson Beach**  
-Hi, my name is Tal and I run the Make Friends After College group on Facebook.  
-<a href="https://" target="_blank">info link</a>
-
 ### Courageous Sailing Open House @ Jamacia Pond
 
 **06/07 11:00AM - 06/07 02:00PM @ Pond Boathouse**  
@@ -626,6 +564,12 @@ Courageous Sailing Open House @ Jamacia PondJoin us on the water for our open ho
 **06/07 11:00AM - 06/07 04:00PM @ The Yard at Beachmont Square**  
 Saturday,  June 7, 11 AM – 4 PMThe Yard at Beachmont Square, 50 Salt St, Revere, MA 02151We’re popping up in Revere for the very first time!  
 <a href="https://www.bostonwomensmarket.com/events-calendar/boston-womens-market-at-the-yard-suffolk-downs" target="_blank">info link</a>
+
+### 20's & 30's Beach Day Social at Carson Beach! (Boston)
+
+**06/07 12:00PM - 06/07 04:00PM @ Carson Beach**  
+Hi, my name is Tal and I run the Make Friends After College group on Facebook.  
+<a href="https://" target="_blank">info link</a>
 
 ### 20th Annual Haley House Block Party
 
@@ -651,17 +595,17 @@ Event:   QURBAN PICNIC (POTLUCK)Date:    Saturday, Jun 7, 2025Time:   
 🎉 Join Us for Families First FEST! 🎉Get ready for an unforgettable day of fun, connection, and community at Families First FEST—a FREE & OPEN TO ALL event!  
 <a href="https://www.families-first.org/families-firstfest/" target="_blank">info link</a>
 
-### Summer Sipper
-
-**06/07 12:00PM - 06/07 08:00PM @ Short Path Distillery**  
-KICKOFF SUMMER WITH US!Join us as we celebrate the start of summer with our epic annual street party — one of our biggest events of the year!  
-<a href="https://www.eventbrite.com/e/1371359094969?aff=oddtdtcreator" target="_blank">info link</a>
-
 ### June Vegan Potluck
 
 **06/07 01:00PM - 06/07 06:00PM @ Greenway outside Boston Public Market/RMV**  
 In June, we'll be settling into a new groove of two vegan picnic potlucks per month!  
 <a href="https://" target="_blank">info link</a>
+
+### Summer Sipper
+
+**06/07 12:00PM - 06/07 08:00PM @ Short Path Distillery**  
+KICKOFF SUMMER WITH US!Join us as we celebrate the start of summer with our epic annual street party — one of our biggest events of the year!  
+<a href="https://www.eventbrite.com/e/1371359094969?aff=oddtdtcreator" target="_blank">info link</a>
 
 ### Queer Board Game Night
 
@@ -681,6 +625,12 @@ Get ready to celebrate the rerelease of our Love Conquers Ale brew with a Roofto
 Join us for an official Boston Pride for the People event: The Big Queer Pool Party & The Big Queer After-Party here at DBCo!  
 <a href="https://www.dorchesterbrewing.com/events/event/big-queer-party-3/" target="_blank">info link</a>
 
+### Tesla Takedown
+
+**06/07 12:00PM - 06/07 02:00PM @ In front of the Tesla dealership at the Prudential Center**  
+Elon Musk is conducting a hostile government takeover.  
+<a href="https://www.teslatakedown.com/" target="_blank">info link</a>
+
 ### Dorchester Open Studios
 
 **06/07 12:00PM - 06/08 05:00PM @ Humphreys Street Studios**  
@@ -698,12 +648,6 @@ Join us for Greater Boston’s largest and most popular outdoor/indoor dance eve
 **06/07 11:00AM - 06/08 06:00PM @ Seaport Summer Market**  
 The Seaport Summer Market is back for the 2025 season and located on Seaport Boulevard every weekend May through June on Saturdays AND Sundays from 11am-7pm.  
 <a href="https://www.bostonseaport.xyz/venue/seaport-summer-market-2/" target="_blank">info link</a>
-
-### Tesla Takedown
-
-**06/07 12:00PM - 06/07 02:00PM @ In front of the Tesla dealership at the Prudential Center**  
-Elon Musk is conducting a hostile government takeover.  
-<a href="https://www.teslatakedown.com/" target="_blank">info link</a>
 
 ### $10 Commuter Rail Weekends and Holidays
 
@@ -737,6 +681,12 @@ The Kelleher Rose Garden, located in Boston’s Back Bay Fens, will be in full b
 Join us for Live Music & Local Flavors, a free music festival celebrating 10 years of community and local food at the Boston Public Market!  
 <a href="https://www.eventbrite.com/e/boston-public-market-music-festival-live-music-local-flavors-tickets-1337189623159" target="_blank">info link</a>
 
+### Seaport Summer Market
+
+**06/07 11:00AM - 06/08 06:00PM @ Seaport Summer Market**  
+The Seaport Summer Market is back for the 2025 season and located on Seaport Boulevard every weekend May through June on Saturdays AND Sundays from 11am-7pm.  
+<a href="https://www.bostonseaport.xyz/venue/seaport-summer-market-2/" target="_blank">info link</a>
+
 ### Concerts in the Courtyard at Boston Public Library
 
 **06/06 12:30PM - 08/29 01:30PM @ Boston Public Library Courtyard**  
@@ -748,12 +698,6 @@ The courtyard of the Central Library in Copley Square is one of Boston's most be
 **06/05 08:00PM - 08/07 10:30PM @ The Lawn (located between Club Volo and Caffè Nero)**  
 There's a new reason to visit Assembly Row every week, so mark your calendars and bring your friends and family because Summer nights just got a whole lot better!  
 <a href="https://www.eventbrite.com/cc/thursdays-on-the-lawn-4324923" target="_blank">info link</a>
-
-### Seaport Summer Market
-
-**06/07 11:00AM - 06/08 06:00PM @ Seaport Summer Market**  
-The Seaport Summer Market is back for the 2025 season and located on Seaport Boulevard every weekend May through June on Saturdays AND Sundays from 11am-7pm.  
-<a href="https://www.bostonseaport.xyz/venue/seaport-summer-market-2/" target="_blank">info link</a>
 
 ### Outdoor Vintage Clothing Market Pop-up
 
@@ -851,17 +795,17 @@ Join us for a fun evening of open mic poetry!
 The Kelleher Rose Garden, located in Boston’s Back Bay Fens, will be in full bloom from the beginning to the middle of June.  
 <a href="https://www.emeraldnecklace.org/venue/kelleher-rose-garden/" target="_blank">info link</a>
 
-### Concerts in the Courtyard at Boston Public Library
-
-**06/06 12:30PM - 08/29 01:30PM @ Boston Public Library Courtyard**  
-The courtyard of the Central Library in Copley Square is one of Boston's most beautiful havens from the hustle and bustle of the city.  
-<a href="https://www.bpl.org/concerts-in-the-courtyard/" target="_blank">info link</a>
-
 ### Summer in the City 2025: Free Live Music on the Harborwalk
 
 **06/06 06:00PM - 08/28 10:00PM @ Boston Harbor Hotel**  
 The annual Summer in the City series returns for the 2025 season, kicking off a summer of first class waterfront entertainment at the iconic Boston Harbor Hotel.  
 <a href="https://www.bostonharborhotel.com/culinary/summer-in-the-city/" target="_blank">info link</a>
+
+### Concerts in the Courtyard at Boston Public Library
+
+**06/06 12:30PM - 08/29 01:30PM @ Boston Public Library Courtyard**  
+The courtyard of the Central Library in Copley Square is one of Boston's most beautiful havens from the hustle and bustle of the city.  
+<a href="https://www.bpl.org/concerts-in-the-courtyard/" target="_blank">info link</a>
 
 ### Collective FEST: A Community Activation Weekend
 
@@ -881,29 +825,23 @@ Island Creek Oysters is bringing the briny magic of its legendary Duxbury raw ba
 Humphreys Street Studios is proud to host Dorchester Open Studios, and we're more excited than ever to expand the event: inviting more Dorchester-based artists, hosting musicians, and holding workshops for visitors.  
 <a href="https://www.dorchesteropenstudios.com/" target="_blank">info link</a>
 
-### Boston Hong Kong Dragon Boat Festival
-
-**06/08 12:00PM - 06/08 05:00PM @ John W. Weeks Bridge**  
-The 46th annual Boston Hong Kong Dragon Boat Festival is scheduled for Sunday, June 8,2025, 12:00pm-5:00pm, at John W.  
-<a href="https://go.evvnt.com/2948384-0?pid=5248" target="_blank">info link</a>
-
 ### Seaport Summer Market
 
 **06/07 11:00AM - 06/08 06:00PM @ Seaport Summer Market**  
 The Seaport Summer Market is back for the 2025 season and located on Seaport Boulevard every weekend May through June on Saturdays AND Sundays from 11am-7pm.  
 <a href="https://www.bostonseaport.xyz/venue/seaport-summer-market-2/" target="_blank">info link</a>
 
+### Boston Hong Kong Dragon Boat Festival
+
+**06/08 12:00PM - 06/08 05:00PM @ John W. Weeks Bridge**  
+The 46th annual Boston Hong Kong Dragon Boat Festival is scheduled for Sunday, June 8,2025, 12:00pm-5:00pm, at John W.  
+<a href="https://go.evvnt.com/2948384-0?pid=5248" target="_blank">info link</a>
+
 ### 3rd Annual Le Grand Prix Elmendorf du Pain: Bread Competition & Parisian Street Fair
 
 **06/08 12:00PM - 06/08 04:00PM @ Cambridge Street and 8th Street**  
 Get ready for the ultimate bread baking competition and Parisian-inspired festival in East Cambridge!  
 <a href="https://www.eventbrite.com/e/le-grand-prix-elmendorf-du-pain-ecba-parisian-picnic-box-tickets-1367085773349" target="_blank">info link</a>
-
-### Quincy Pride Festival 2025
-
-**06/08 12:00PM - 06/08 05:00PM @ Pageant Field**  
-Annual Quincy Pride Festival 2025! Fun and free for all!  
-<a href="https://quincypride.com/" target="_blank">info link</a>
 
 ### Boston Portuguese Festival
 
@@ -917,6 +855,12 @@ We are thrilled to announce the 20th Anniversary of the Boston Portuguese Festiv
 Join the Office of Mayor E. Denise Simmons and the Cambridge LGBTQ+ Commission for the 36th Annual Cambridge Pride!  
 <a href="https://www.cambridgema.gov/citycalendar/view.aspx?guid=5f2cd6e6134a4d8b91ea15f8ca5ce444" target="_blank">info link</a>
 
+### Quincy Pride Festival 2025
+
+**06/08 12:00PM - 06/08 05:00PM @ Pageant Field**  
+Annual Quincy Pride Festival 2025! Fun and free for all!  
+<a href="https://quincypride.com/" target="_blank">info link</a>
+
 ### Caribbean American Heritage Festival Boston
 
 **06/08 12:00PM - 06/08 08:00PM @ Reggie Lewis Track and Athletic Center**  
@@ -929,17 +873,17 @@ Since 2006, June has been designated as National Caribbean American Heritage Mon
 Our TWO DAY MARKET at Time Out Fenway is here!  
 <a href="https://instagram.com/select.markets" target="_blank">info link</a>
 
-### Boston Public Market Music Festival: Live Music & Local Flavors
-
-**06/08 10:00AM - 06/08 05:00PM @ Boston Public Market**  
-Join us for Live Music & Local Flavors, a free music festival celebrating 10 years of community and local food at the Boston Public Market!  
-<a href="https://www.eventbrite.com/e/boston-public-market-music-festival-live-music-local-flavors-tickets-1337189623159" target="_blank">info link</a>
-
 ### Drag Party | Trans BIPOC Pastoral Residency Celebration
 
 **06/08 12:00PM - 06/08 02:00PM @ Brighton Allston Congregational Church**  
 Come party with us during PRIDE month as we celebrate our inaugural Trans BIPOC Pastoral Residency program--the only one in the nation!  
 <a href="https://www.brightonallstonucc.org/" target="_blank">info link</a>
+
+### Boston Public Market Music Festival: Live Music & Local Flavors
+
+**06/08 10:00AM - 06/08 05:00PM @ Boston Public Market**  
+Join us for Live Music & Local Flavors, a free music festival celebrating 10 years of community and local food at the Boston Public Market!  
+<a href="https://www.eventbrite.com/e/boston-public-market-music-festival-live-music-local-flavors-tickets-1337189623159" target="_blank">info link</a>
 
 ### The Makanda Project at Malibu Beach
 
@@ -991,17 +935,17 @@ The annual Summer in the City series returns for the 2025 season, kicking off a 
 The Kelleher Rose Garden, located in Boston’s Back Bay Fens, will be in full bloom from the beginning to the middle of June.  
 <a href="https://www.emeraldnecklace.org/venue/kelleher-rose-garden/" target="_blank">info link</a>
 
-### Concerts in the Courtyard at Boston Public Library
-
-**06/06 12:30PM - 08/29 01:30PM @ Boston Public Library Courtyard**  
-The courtyard of the Central Library in Copley Square is one of Boston's most beautiful havens from the hustle and bustle of the city.  
-<a href="https://www.bpl.org/concerts-in-the-courtyard/" target="_blank">info link</a>
-
 ### Summer in the City 2025: Free Live Music on the Harborwalk
 
 **06/06 06:00PM - 08/28 10:00PM @ Boston Harbor Hotel**  
 The annual Summer in the City series returns for the 2025 season, kicking off a summer of first class waterfront entertainment at the iconic Boston Harbor Hotel.  
 <a href="https://www.bostonharborhotel.com/culinary/summer-in-the-city/" target="_blank">info link</a>
+
+### Concerts in the Courtyard at Boston Public Library
+
+**06/06 12:30PM - 08/29 01:30PM @ Boston Public Library Courtyard**  
+The courtyard of the Central Library in Copley Square is one of Boston's most beautiful havens from the hustle and bustle of the city.  
+<a href="https://www.bpl.org/concerts-in-the-courtyard/" target="_blank">info link</a>
 
 ### Island Creek Oysters Pop-up Raw Bar Seaport
 
@@ -1053,17 +997,17 @@ The annual Summer in the City series returns for the 2025 season, kicking off a 
 The Kelleher Rose Garden, located in Boston’s Back Bay Fens, will be in full bloom from the beginning to the middle of June.  
 <a href="https://www.emeraldnecklace.org/venue/kelleher-rose-garden/" target="_blank">info link</a>
 
-### Concerts in the Courtyard at Boston Public Library
-
-**06/06 12:30PM - 08/29 01:30PM @ Boston Public Library Courtyard**  
-The courtyard of the Central Library in Copley Square is one of Boston's most beautiful havens from the hustle and bustle of the city.  
-<a href="https://www.bpl.org/concerts-in-the-courtyard/" target="_blank">info link</a>
-
 ### Summer in the City 2025: Free Live Music on the Harborwalk
 
 **06/06 06:00PM - 08/28 10:00PM @ Boston Harbor Hotel**  
 The annual Summer in the City series returns for the 2025 season, kicking off a summer of first class waterfront entertainment at the iconic Boston Harbor Hotel.  
 <a href="https://www.bostonharborhotel.com/culinary/summer-in-the-city/" target="_blank">info link</a>
+
+### Concerts in the Courtyard at Boston Public Library
+
+**06/06 12:30PM - 08/29 01:30PM @ Boston Public Library Courtyard**  
+The courtyard of the Central Library in Copley Square is one of Boston's most beautiful havens from the hustle and bustle of the city.  
+<a href="https://www.bpl.org/concerts-in-the-courtyard/" target="_blank">info link</a>
 
 ### Island Creek Oysters Pop-up Raw Bar Seaport
 
@@ -1071,17 +1015,17 @@ The annual Summer in the City series returns for the 2025 season, kicking off a 
 Island Creek Oysters is bringing the briny magic of its legendary Duxbury raw bar to Boston’s Seaport.  
 <a href="https://shop.islandcreekoysters.com/pages/island-creek-raw-bar-seaport" target="_blank">info link</a>
 
-### Big Sing
-
-**06/10 12:00PM - 06/10 01:00PM @ Strand Theatre**  
-Join the Boston Children's Chorus (BCC) for its largest Big Sing event ever since its inception in 2023.  
-<a href="https://www.bostonchildrenschorus.org/our-programs/in-school-programs/big-sing/" target="_blank">info link</a>
-
 ### Caribbean Heritage Month Flag Raising and Domino Tournament
 
 **06/10 11:00AM - 06/10 04:00PM @ City Hall**  
 Join us in the City Hall Courtyard as Boston hosts its very first Caribbean Domino Tournament, celebrating the camaraderie and island spirit that dominoes inspire across the Caribbean diaspora.  
 <a href="https://www.boston.gov/calendar/caribbean-heritage-month-flag-raising-and-domino-tournament" target="_blank">info link</a>
+
+### Big Sing
+
+**06/10 12:00PM - 06/10 01:00PM @ Strand Theatre**  
+Join the Boston Children's Chorus (BCC) for its largest Big Sing event ever since its inception in 2023.  
+<a href="https://www.bostonchildrenschorus.org/our-programs/in-school-programs/big-sing/" target="_blank">info link</a>
 
 ### One Hit Wonders Music Bingo
 
@@ -1094,4 +1038,78 @@ Get ready to groove and guess with *One Hit Wonders Music Bingo*!
 **06/10 12:00PM - 06/10 04:00PM @ Winthrop Square**  
 Browse unique nature-inspired art and gifts from local artists in a pop-up market from your local plant shop, Sprout!  
 <a href="https://www.instagram.com/p/DJ9_4VUuH0r/?igsh=djdjdjZxbmNjb2h1&img_index=1" target="_blank">info link</a>
+
+# Wednesday, June 11, 2025
+
+### Kelleher Rose Garden 2025 Bloom
+
+**06/06 07:00AM - 06/27 05:00PM @ Kelleher Rose Garden**  
+The Kelleher Rose Garden, located in Boston’s Back Bay Fens, will be in full bloom from the beginning to the middle of June.  
+<a href="https://www.emeraldnecklace.org/venue/kelleher-rose-garden/" target="_blank">info link</a>
+
+### Concerts in the Courtyard at Boston Public Library
+
+**06/06 12:30PM - 08/29 01:30PM @ Boston Public Library Courtyard**  
+The courtyard of the Central Library in Copley Square is one of Boston's most beautiful havens from the hustle and bustle of the city.  
+<a href="https://www.bpl.org/concerts-in-the-courtyard/" target="_blank">info link</a>
+
+### Movies on the Lawn at Assembly Row
+
+**06/05 08:00PM - 08/07 10:30PM @ The Lawn (located between Club Volo and Caffè Nero)**  
+There's a new reason to visit Assembly Row every week, so mark your calendars and bring your friends and family because Summer nights just got a whole lot better!  
+<a href="https://www.eventbrite.com/cc/thursdays-on-the-lawn-4324923" target="_blank">info link</a>
+
+### Summer in the City 2025: Free Live Music on the Harborwalk
+
+**06/06 06:00PM - 08/28 10:00PM @ Boston Harbor Hotel**  
+The annual Summer in the City series returns for the 2025 season, kicking off a summer of first class waterfront entertainment at the iconic Boston Harbor Hotel.  
+<a href="https://www.bostonharborhotel.com/culinary/summer-in-the-city/" target="_blank">info link</a>
+
+### Kelleher Rose Garden 2025 Bloom
+
+**06/06 07:00AM - 06/27 05:00PM @ Kelleher Rose Garden**  
+The Kelleher Rose Garden, located in Boston’s Back Bay Fens, will be in full bloom from the beginning to the middle of June.  
+<a href="https://www.emeraldnecklace.org/venue/kelleher-rose-garden/" target="_blank">info link</a>
+
+### Summer in the City 2025: Free Live Music on the Harborwalk
+
+**06/06 06:00PM - 08/28 10:00PM @ Boston Harbor Hotel**  
+The annual Summer in the City series returns for the 2025 season, kicking off a summer of first class waterfront entertainment at the iconic Boston Harbor Hotel.  
+<a href="https://www.bostonharborhotel.com/culinary/summer-in-the-city/" target="_blank">info link</a>
+
+### Concerts in the Courtyard at Boston Public Library
+
+**06/06 12:30PM - 08/29 01:30PM @ Boston Public Library Courtyard**  
+The courtyard of the Central Library in Copley Square is one of Boston's most beautiful havens from the hustle and bustle of the city.  
+<a href="https://www.bpl.org/concerts-in-the-courtyard/" target="_blank">info link</a>
+
+### Island Creek Oysters Pop-up Raw Bar Seaport
+
+**06/06 11:00AM - 09/25 11:00PM @ Island Creek Seaport Popup**  
+Island Creek Oysters is bringing the briny magic of its legendary Duxbury raw bar to Boston’s Seaport.  
+<a href="https://shop.islandcreekoysters.com/pages/island-creek-raw-bar-seaport" target="_blank">info link</a>
+
+### International Day of Play 2025
+
+**06/11 10:00AM - 06/11 02:00PM @ City Hall Plaza**  
+Join the City of Boston and friends to celebrate and experience the power of play on June 11, the first International Day of Play!  
+<a href="https://www.boston.gov/calendar/international-day-play-2025" target="_blank">info link</a>
+
+### Downtown Sour Smash Disco Party & Beer Release
+
+**06/11 05:30PM - 06/11 08:30PM @ Sam Adams Boston Taproom**  
+Join us for the release our newest collaboration brew, Downtown Sour Smash, with our friends and Downtown Boston neighbors from Democracy Brewing!  
+<a href="https://www.eventbrite.com/e/downtown-sour-smash-disco-party-beer-release-tickets-1368064801649?utm-campaign=social&utm-content=attendeeshare&utm-medium=discovery&utm-term=listing&utm-source=cp&aff=ebdsshcopyurl" target="_blank">info link</a>
+
+### Community Gathering for Racial Justice --- The Cost of Forgetting: Why Anti-Blackness Still Defines America
+
+**06/11 07:30PM - 06/11 09:00PM @ Somerville Community Growing Center**  
+Join us for an evening of connection and dialogue as we gather to advance racial justice in Somerville.  
+<a href="https://www.thegrowingcenter.org/2025" target="_blank">info link</a>
+
+### Queer Trivia at Barlette
+
+**06/11 06:30PM - 06/11 09:30PM @ Barlette**  
+Think you’re the sharpest queer in the room?  
+<a href="https://resy.com/cities/boston-ma/venues/barlette/events/queer-trivia-2025-05-14?date=2025-05-14&seats=2" target="_blank">info link</a>
 
