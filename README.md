@@ -1,234 +1,4 @@
-# Sunday, June 08, 2025
-
-### Boston Hong Kong Dragon Boat Festival
-
-**06/08 12:00PM - 06/08 05:00PM @ John W. Weeks Bridge**  
-The 46th annual Boston Hong Kong Dragon Boat Festival is scheduled for Sunday, June 8,2025, 12:00pm-5:00pm, at John W.  
-<a href="https://go.evvnt.com/2948384-0?pid=5248" target="_blank">info link</a>
-
-### 3rd Annual Le Grand Prix Elmendorf du Pain: Bread Competition & Parisian Street Fair
-
-**06/08 12:00PM - 06/08 04:00PM @ Cambridge Street and 8th Street**  
-Get ready for the ultimate bread baking competition and Parisian-inspired festival in East Cambridge!  
-<a href="https://www.eventbrite.com/e/le-grand-prix-elmendorf-du-pain-ecba-parisian-picnic-box-tickets-1367085773349" target="_blank">info link</a>
-
-### Boston Portuguese Festival
-
-**06/08 12:00PM - 06/08 08:00PM @ City Hall Plaza**  
-We are thrilled to announce the 20th Anniversary of the Boston Portuguese Festival, marking its fifth year at Boston’s City Hall Plaza, on June 8, 2025.  
-<a href="https://www.bostonportuguesefestival.org/" target="_blank">info link</a>
-
-### Boston Public Market Music Festival: Live Music & Local Flavors
-
-**06/08 10:00AM - 06/08 05:00PM @ Boston Public Market**  
-Join us for Live Music & Local Flavors, a free music festival celebrating 10 years of community and local food at the Boston Public Market!  
-<a href="https://www.eventbrite.com/e/boston-public-market-music-festival-live-music-local-flavors-tickets-1337189623159" target="_blank">info link</a>
-
-### Outdoor Vintage Clothing Market Pop-up
-
-**06/08 12:00PM - 06/08 06:00PM @ Timeout Market Boston**  
-Our TWO DAY MARKET at Time Out Fenway is here!  
-<a href="https://instagram.com/select.markets" target="_blank">info link</a>
-
-### Quincy Pride Festival 2025
-
-**06/08 12:00PM - 06/08 05:00PM @ Pageant Field**  
-Annual Quincy Pride Festival 2025! Fun and free for all!  
-<a href="https://quincypride.com/" target="_blank">info link</a>
-
-### Caribbean American Heritage Festival Boston
-
-**06/08 12:00PM - 06/08 08:00PM @ Reggie Lewis Track and Athletic Center**  
-Since 2006, June has been designated as National Caribbean American Heritage Month by Presidential Proclamation.  
-<a href="https://www.eventbrite.com/e/caribbean-american-heritage-festival-boston-tickets-1118106589909" target="_blank">info link</a>
-
-### The Makanda Project at Malibu Beach
-
-**06/08 02:00PM - 06/08 05:00PM @ DCR Malibu Beach**  
-Boston's acclaimed big band, The Makanda Project, will perform its third annual "concert on the beach," at Malibu Beach in Dorchester.  
-<a href="https://makandaproject.com" target="_blank">info link</a>
-
-### And Freedom's Reign
-
-**06/08 02:15PM - 06/08 04:00PM @ Museum of African American History**  
-Join us at the historic African Meeting House for And Freedom’s Reign, an immersive event honoring the words, legacy, and spirit of Frederick Douglass.  
-<a href="https://givebutter.com/freedoms-reign" target="_blank">info link</a>
-
-### FUNKIN' VINYL Open Decks Tenean Beach
-
-**06/08 02:00PM - 06/08 06:00PM @ Tenean Beach**  
-If you are a Vinyl collector, enthusiast, producer, DJ or just love the crisps sound of vinyl, you are welcomed!  
-<a href="https://" target="_blank">info link</a>
-
-### Memorial Drive Recreation Sundays 2025
-
-**06/08 11:00AM - 06/08 07:00PM @ Riverbend Park**  
-The Department of Conservation and Recreation (DCR) closes a portion Memorial Drive to motor vehicle traffic each weekend from the end of April to mid-November to allow pedestrians, cyclists, and others to enjoy the riverfront roadway without cars.  
-<a href="https://www.cambridgema.gov/streetsandtransportation/memorialdrive" target="_blank">info link</a>
-
-### Coffee+Crafts
-
-**06/08 01:00PM - 06/08 04:00PM @ Boston Fiber Company**  
-Join us every Sunday from 1pm-4pm for Coffee+Crafts!  
-<a href="https://www.bostonfibercompany.com" target="_blank">info link</a>
-
-### Poetry Open Mic at Trident
-
-**06/08 07:00PM - 06/08 09:00PM @ Trident Booksellers & Cafe**  
-Join us for a fun evening of open mic poetry!  
-<a href="https://www.tridentbookscafe.com/event/poetry-open-mic-1" target="_blank">info link</a>
-
-### Rooftop Yoga @ Moxy
-
-**06/08 09:00AM - 06/08 10:00AM @ The Moxy Boston Downtown**  
-Flow Together. Glow Together. (all levels)A dynamic vinyasa yoga experience that blends energizing movement, breath, and community.  
-<a href="https://app.acuityscheduling.com/schedule/02e194a7/?appointmentTypeIds[]=74049896" target="_blank">info link</a>
-
-### 3rd Annual Le Grand Prix Elmendorf du Pain: Bread Competition & Parisian Street Fair
-
-**06/08 12:00PM - 06/08 04:00PM @ Cambridge Street and 8th Street**  
-Get ready for the ultimate bread baking competition and Parisian-inspired festival in East Cambridge!  
-<a href="https://www.eventbrite.com/e/le-grand-prix-elmendorf-du-pain-ecba-parisian-picnic-box-tickets-1367085773349" target="_blank">info link</a>
-
-### Boston Portuguese Festival
-
-**06/08 12:00PM - 06/08 08:00PM @ City Hall Plaza**  
-We are thrilled to announce the 20th Anniversary of the Boston Portuguese Festival, marking its fifth year at Boston’s City Hall Plaza, on June 8, 2025.  
-<a href="https://www.bostonportuguesefestival.org/" target="_blank">info link</a>
-
-### Boston Public Market Music Festival: Live Music & Local Flavors
-
-**06/08 10:00AM - 06/08 05:00PM @ Boston Public Market**  
-Join us for Live Music & Local Flavors, a free music festival celebrating 10 years of community and local food at the Boston Public Market!  
-<a href="https://www.eventbrite.com/e/boston-public-market-music-festival-live-music-local-flavors-tickets-1337189623159" target="_blank">info link</a>
-
-### Outdoor Vintage Clothing Market Pop-up
-
-**06/08 12:00PM - 06/08 06:00PM @ Timeout Market Boston**  
-Our TWO DAY MARKET at Time Out Fenway is here!  
-<a href="https://instagram.com/select.markets" target="_blank">info link</a>
-
-### Caribbean American Heritage Festival Boston
-
-**06/08 12:00PM - 06/08 08:00PM @ Reggie Lewis Track and Athletic Center**  
-Since 2006, June has been designated as National Caribbean American Heritage Month by Presidential Proclamation.  
-<a href="https://www.eventbrite.com/e/caribbean-american-heritage-festival-boston-tickets-1118106589909" target="_blank">info link</a>
-
-### Quincy Pride Festival 2025
-
-**06/08 12:00PM - 06/08 05:00PM @ Pageant Field**  
-Annual Quincy Pride Festival 2025! Fun and free for all!  
-<a href="https://quincypride.com/" target="_blank">info link</a>
-
-### The Makanda Project at Malibu Beach
-
-**06/08 02:00PM - 06/08 05:00PM @ DCR Malibu Beach**  
-Boston's acclaimed big band, The Makanda Project, will perform its third annual "concert on the beach," at Malibu Beach in Dorchester.  
-<a href="https://makandaproject.com" target="_blank">info link</a>
-
-### And Freedom's Reign
-
-**06/08 02:15PM - 06/08 04:00PM @ Museum of African American History**  
-Join us at the historic African Meeting House for And Freedom’s Reign, an immersive event honoring the words, legacy, and spirit of Frederick Douglass.  
-<a href="https://givebutter.com/freedoms-reign" target="_blank">info link</a>
-
-### FUNKIN' VINYL Open Decks Tenean Beach
-
-**06/08 02:00PM - 06/08 06:00PM @ Tenean Beach**  
-If you are a Vinyl collector, enthusiast, producer, DJ or just love the crisps sound of vinyl, you are welcomed!  
-<a href="https://" target="_blank">info link</a>
-
-### Memorial Drive Recreation Sundays 2025
-
-**06/08 11:00AM - 06/08 07:00PM @ Riverbend Park**  
-The Department of Conservation and Recreation (DCR) closes a portion Memorial Drive to motor vehicle traffic each weekend from the end of April to mid-November to allow pedestrians, cyclists, and others to enjoy the riverfront roadway without cars.  
-<a href="https://www.cambridgema.gov/streetsandtransportation/memorialdrive" target="_blank">info link</a>
-
-### Coffee+Crafts
-
-**06/08 01:00PM - 06/08 04:00PM @ Boston Fiber Company**  
-Join us every Sunday from 1pm-4pm for Coffee+Crafts!  
-<a href="https://www.bostonfibercompany.com" target="_blank">info link</a>
-
-### Poetry Open Mic at Trident
-
-**06/08 07:00PM - 06/08 09:00PM @ Trident Booksellers & Cafe**  
-Join us for a fun evening of open mic poetry!  
-<a href="https://www.tridentbookscafe.com/event/poetry-open-mic-1" target="_blank">info link</a>
-
-### Boston Hong Kong Dragon Boat Festival
-
-**06/08 12:00PM - 06/08 05:00PM @ John W. Weeks Bridge**  
-The 46th annual Boston Hong Kong Dragon Boat Festival is scheduled for Sunday, June 8,2025, 12:00pm-5:00pm, at John W.  
-<a href="https://go.evvnt.com/2948384-0?pid=5248" target="_blank">info link</a>
-
-### 3rd Annual Le Grand Prix Elmendorf du Pain: Bread Competition & Parisian Street Fair
-
-**06/08 12:00PM - 06/08 04:00PM @ Cambridge Street and 8th Street**  
-Get ready for the ultimate bread baking competition and Parisian-inspired festival in East Cambridge!  
-<a href="https://www.eventbrite.com/e/le-grand-prix-elmendorf-du-pain-ecba-parisian-picnic-box-tickets-1367085773349" target="_blank">info link</a>
-
-### Boston Portuguese Festival
-
-**06/08 12:00PM - 06/08 08:00PM @ City Hall Plaza**  
-We are thrilled to announce the 20th Anniversary of the Boston Portuguese Festival, marking its fifth year at Boston’s City Hall Plaza, on June 8, 2025.  
-<a href="https://www.bostonportuguesefestival.org/" target="_blank">info link</a>
-
-### Cambridge Pride
-
-**06/08 11:00AM - 06/08 02:00PM @ Cambridge City Hall**  
-Join the Office of Mayor E. Denise Simmons and the Cambridge LGBTQ+ Commission for the 36th Annual Cambridge Pride!  
-<a href="https://www.cambridgema.gov/citycalendar/view.aspx?guid=5f2cd6e6134a4d8b91ea15f8ca5ce444" target="_blank">info link</a>
-
-### Quincy Pride Festival 2025
-
-**06/08 12:00PM - 06/08 05:00PM @ Pageant Field**  
-Annual Quincy Pride Festival 2025! Fun and free for all!  
-<a href="https://quincypride.com/" target="_blank">info link</a>
-
-### Caribbean American Heritage Festival Boston
-
-**06/08 12:00PM - 06/08 08:00PM @ Reggie Lewis Track and Athletic Center**  
-Since 2006, June has been designated as National Caribbean American Heritage Month by Presidential Proclamation.  
-<a href="https://www.eventbrite.com/e/caribbean-american-heritage-festival-boston-tickets-1118106589909" target="_blank">info link</a>
-
-### Boston Public Market Music Festival: Live Music & Local Flavors
-
-**06/08 10:00AM - 06/08 05:00PM @ Boston Public Market**  
-Join us for Live Music & Local Flavors, a free music festival celebrating 10 years of community and local food at the Boston Public Market!  
-<a href="https://www.eventbrite.com/e/boston-public-market-music-festival-live-music-local-flavors-tickets-1337189623159" target="_blank">info link</a>
-
-### Outdoor Vintage Clothing Market Pop-up
-
-**06/08 12:00PM - 06/08 06:00PM @ Timeout Market Boston**  
-Our TWO DAY MARKET at Time Out Fenway is here!  
-<a href="https://instagram.com/select.markets" target="_blank">info link</a>
-
-### Drag Party | Trans BIPOC Pastoral Residency Celebration
-
-**06/08 12:00PM - 06/08 02:00PM @ Brighton Allston Congregational Church**  
-Come party with us during PRIDE month as we celebrate our inaugural Trans BIPOC Pastoral Residency program--the only one in the nation!  
-<a href="https://www.brightonallstonucc.org/" target="_blank">info link</a>
-
-### The Makanda Project at Malibu Beach
-
-**06/08 02:00PM - 06/08 05:00PM @ DCR Malibu Beach**  
-Boston's acclaimed big band, The Makanda Project, will perform its third annual "concert on the beach," at Malibu Beach in Dorchester.  
-<a href="https://makandaproject.com" target="_blank">info link</a>
-
-### Annual Kabir Festival 2025
-
-**06/08 03:30PM - 06/08 07:00PM @ Waltham Government Centre**  
-Supported by the Mass Cultural Council, the 4th Annual Kabir Festival is an evening dedicated to celebrating the enduring philosophy and poetic legacy of Kabir Das, the 15th-century Indian Bhakti saint and mystic.  
-<a href="https://kabirsociety.org" target="_blank">info link</a>
-
 # Monday, June 09, 2025
-
-### FREE VHS Movie Night: Edward Scissorhands / Nightmare on Elm Street
-
-**06/09 07:00PM - 06/09 11:30PM @ Model Cafe**  
-𝗠𝗢𝗡 𝗝𝗨𝗡𝗘 𝟵 • 𝗙𝗥𝗘𝗘 𝗩𝗛𝗦 𝗠𝗢𝗩𝗜𝗘 𝗡𝗜𝗚𝗛𝗧Welcome to FREE VHS Movie Night at Model Cafe!  
-<a href="http://wickedvhs.com" target="_blank">info link</a>
 
 ### Exhibition Opening: Wild Flowers of New Enland
 
@@ -236,13 +6,13 @@ Supported by the Mass Cultural Council, the 4th Annual Kabir Festival is an ev
 Be the first to experience the Athenaeum's new exhibition, Wild Flowers of New England.  
 <a href="https://events.bostonathenaeum.org/4W52KhR7/5a2KUm4yh30" target="_blank">info link</a>
 
+### FREE VHS Movie Night: Edward Scissorhands / Nightmare on Elm Street
+
+**06/09 07:00PM - 06/09 11:30PM @ Model Cafe**  
+𝗠𝗢𝗡 𝗝𝗨𝗡𝗘 𝟵 • 𝗙𝗥𝗘𝗘 𝗩𝗛𝗦 𝗠𝗢𝗩𝗜𝗘 𝗡𝗜𝗚𝗛𝗧Welcome to FREE VHS Movie Night at Model Cafe!  
+<a href="http://wickedvhs.com" target="_blank">info link</a>
+
 # Tuesday, June 10, 2025
-
-### Caribbean Heritage Month Flag Raising and Domino Tournament
-
-**06/10 11:00AM - 06/10 04:00PM @ City Hall**  
-Join us in the City Hall Courtyard as Boston hosts its very first Caribbean Domino Tournament, celebrating the camaraderie and island spirit that dominoes inspire across the Caribbean diaspora.  
-<a href="https://www.boston.gov/calendar/caribbean-heritage-month-flag-raising-and-domino-tournament" target="_blank">info link</a>
 
 ### Big Sing
 
@@ -250,17 +20,23 @@ Join us in the City Hall Courtyard as Boston hosts its very first Caribbean Domi
 Join the Boston Children's Chorus (BCC) for its largest Big Sing event ever since its inception in 2023.  
 <a href="https://www.bostonchildrenschorus.org/our-programs/in-school-programs/big-sing/" target="_blank">info link</a>
 
-### One Hit Wonders Music Bingo
+### Caribbean Heritage Month Flag Raising and Domino Tournament
 
-**06/10 06:00PM - 06/10 08:00PM @ CambridgeSide**  
-Get ready to groove and guess with *One Hit Wonders Music Bingo*!  
-<a href="https://www.cambridgeside.com/event/one-hit-wonders-music-bingo/2145590184" target="_blank">info link</a>
+**06/10 11:00AM - 06/10 04:00PM @ City Hall**  
+Join us in the City Hall Courtyard as Boston hosts its very first Caribbean Domino Tournament, celebrating the camaraderie and island spirit that dominoes inspire across the Caribbean diaspora.  
+<a href="https://www.boston.gov/calendar/caribbean-heritage-month-flag-raising-and-domino-tournament" target="_blank">info link</a>
 
 ### Nature Artisan Market by Sprout
 
 **06/10 12:00PM - 06/10 04:00PM @ Winthrop Square**  
 Browse unique nature-inspired art and gifts from local artists in a pop-up market from your local plant shop, Sprout!  
 <a href="https://www.instagram.com/p/DJ9_4VUuH0r/?igsh=djdjdjZxbmNjb2h1&img_index=1" target="_blank">info link</a>
+
+### One Hit Wonders Music Bingo
+
+**06/10 06:00PM - 06/10 08:00PM @ CambridgeSide**  
+Get ready to groove and guess with *One Hit Wonders Music Bingo*!  
+<a href="https://www.cambridgeside.com/event/one-hit-wonders-music-bingo/2145590184" target="_blank">info link</a>
 
 # Wednesday, June 11, 2025
 
@@ -276,17 +52,17 @@ Join the City of Boston and friends to celebrate and experience the power of pla
 Join us for the release our newest collaboration brew, Downtown Sour Smash, with our friends and Downtown Boston neighbors from Democracy Brewing!  
 <a href="https://www.eventbrite.com/e/downtown-sour-smash-disco-party-beer-release-tickets-1368064801649?utm-campaign=social&utm-content=attendeeshare&utm-medium=discovery&utm-term=listing&utm-source=cp&aff=ebdsshcopyurl" target="_blank">info link</a>
 
-### Queer Trivia at Barlette
-
-**06/11 06:30PM - 06/11 09:30PM @ Barlette**  
-Think you’re the sharpest queer in the room?  
-<a href="https://resy.com/cities/boston-ma/venues/barlette/events/queer-trivia-2025-05-14?date=2025-05-14&seats=2" target="_blank">info link</a>
-
 ### Community Gathering for Racial Justice --- The Cost of Forgetting: Why Anti-Blackness Still Defines America
 
 **06/11 07:30PM - 06/11 09:00PM @ Somerville Community Growing Center**  
 Join us for an evening of connection and dialogue as we gather to advance racial justice in Somerville.  
 <a href="https://www.thegrowingcenter.org/2025" target="_blank">info link</a>
+
+### Queer Trivia at Barlette
+
+**06/11 06:30PM - 06/11 09:30PM @ Barlette**  
+Think you’re the sharpest queer in the room?  
+<a href="https://resy.com/cities/boston-ma/venues/barlette/events/queer-trivia-2025-05-14?date=2025-05-14&seats=2" target="_blank">info link</a>
 
 # Thursday, June 12, 2025
 
@@ -384,12 +160,6 @@ This summer, Charlestown Brewing Co. is turning up the volume on fun, flavor, an
 Saturday, June 14th Rebel Rebel & Bow Market are bringing us to flavortown for everyone’s favorite annual post-parade, pre-club afternoon cookout!  
 <a href="https://www.eventbrite.com/e/rebel-rebel-gay-fieri-diners-drive-ins-pride-tickets-1366201869569?aff=ebdsoporgprofile" target="_blank">info link</a>
 
-### Boston Landmarks Orchestra Juneteenth Celebration
-
-**06/14 03:00PM - 06/14 04:30PM @ Kroc Center**  
-The third annual Juneteenth celebration features flutist DeShaun Gordon-King, and centers around musical bridges between the old and new worlds.  
-<a href="https://www.eventbrite.com/e/a-juneteenth-celebration-tickets-1374584953599" target="_blank">info link</a>
-
 ### Pride Parade Watch Party
 
 **06/14 11:00AM - 06/14 03:00PM @ Trinity Church Boston**  
@@ -402,11 +172,11 @@ Join Trinity Church Boston on our Clarendon Porch to cheer on the Boston Pride f
 The 2025 Boston Pride for the People Festival (BP4TP) will take place on Saturday, June 14, 2025.  
 <a href="https://www.bostonprideforthepeople.org/" target="_blank">info link</a>
 
-### Charlestown Calling! Block Party and Bunker Hill Day Market
+### Boston Landmarks Orchestra Juneteenth Celebration
 
-**06/14 12:00PM - 06/14 04:00PM @ Bunker Hill**  
-Part of Parade Week 2025, our annual Charlestown Block Party will be bigger than ever this year to celebrate Bunker Hill's 250th anniversary!  
-<a href="https://www.boston.gov/calendar/charlestown-calling-block-party-and-bunker-hill-day-market" target="_blank">info link</a>
+**06/14 03:00PM - 06/14 04:30PM @ Kroc Center**  
+The third annual Juneteenth celebration features flutist DeShaun Gordon-King, and centers around musical bridges between the old and new worlds.  
+<a href="https://www.eventbrite.com/e/a-juneteenth-celebration-tickets-1374584953599" target="_blank">info link</a>
 
 ### Come As You Were - Pride Dance
 
@@ -420,23 +190,29 @@ Step into a skirt & back in time! Both Boston's gay country dancing scene & Yout
 🪐 Saturday, June 14, 2025 | 11AM–4PMCrystal Ballroom | 55 Davis Square, Somerville, MAFree entry | All ages welcomeBlast off into summer with Small Mart, your favorite pop-up marketplace for all things local, handmade, and one-of-a-kind.  
 <a href="https://www.eventbrite.com/e/small-mart-handmade-artisan-and-vintage-vendor-market-crystal-ballroom-tickets-1371264040659?aff=oddtdtcreator" target="_blank">info link</a>
 
+### Charlestown Calling! Block Party and Bunker Hill Day Market
+
+**06/14 12:00PM - 06/14 04:00PM @ Bunker Hill**  
+Part of Parade Week 2025, our annual Charlestown Block Party will be bigger than ever this year to celebrate Bunker Hill's 250th anniversary!  
+<a href="https://www.boston.gov/calendar/charlestown-calling-block-party-and-bunker-hill-day-market" target="_blank">info link</a>
+
 ### Boston Triennial's Flow + Restore Yoga
 
 **06/14 09:00AM - 06/14 10:00AM @ Boston Triennial's Lot Lab**  
 Connect closely to your natural surroundings during an outdoor yoga class led by practitioner Lauren Bailey at Lot Lab.  
 <a href="https://www.thetriennial.org/events/flow-restore-yoga" target="_blank">info link</a>
 
-### Boston Triennial's Andy Li: Artist Workshop
-
-**06/14 01:30PM - 06/14 03:30PM @ Lot Lab**  
-Join Triennial artist Andy Li at Lot Lab in a family-friendly celebration of the everyday!  
-<a href="https://www.thetriennial.org/events/a92p0alrgk16qkddg5ae3p262wkw64" target="_blank">info link</a>
-
 ### Strummin' up to Boston! Celebrating all things Ukulele
 
 **06/14 04:00PM - 06/14 09:00PM @ Newton City Hall**  
 It's back, bigger and better!! We've added exciting workshops!  
 <a href="https://www.strummerville.org/events" target="_blank">info link</a>
+
+### Boston Triennial's Andy Li: Artist Workshop
+
+**06/14 01:30PM - 06/14 03:30PM @ Lot Lab**  
+Join Triennial artist Andy Li at Lot Lab in a family-friendly celebration of the everyday!  
+<a href="https://www.thetriennial.org/events/a92p0alrgk16qkddg5ae3p262wkw64" target="_blank">info link</a>
 
 ### Benkadi Drum and Dance at the JFK Library
 
@@ -461,4 +237,42 @@ Brookline Muslim Friends invites you to the 2nd Annual Eid Festival on Saturday,
 **06/14 06:00PM - 06/14 08:00PM @ Charlestown Navy Yard**  
 As part of the Boston Public Art Triennial, a new, multi-city, public art experience from May-October that occurs every three years, Castle of our Skins presents a free music and dance performance, featuring percussionist Steph Davis and dancer Jenny Oliver, in conversation with sculptor Alison Croney Moses' This Moment for Joy.  
 <a href="https://www.castleskins.org/event-details/moving-in-joy-boston-public-triennial" target="_blank">info link</a>
+
+# Sunday, June 15, 2025
+
+### FREE Paint & Sip Nights at the Urban Park Roof Garden
+
+**06/12 06:00PM - 10/09 08:00PM @ Urban Park Roof Garden**  
+Join us in Urban Park roof garden for paint & sip classes lead by one of our friends from the Community Art Center.  
+<a href="https://www.kendallcenter.com/paint-and-sip-nights/" target="_blank">info link</a>
+
+### Friday Movie Nights at MIT Open Space
+
+**06/13 06:00PM - 08/08 09:00PM @ MIT Open Space**  
+Join us for a movie night under the stars!  
+<a href="https://www.eventbrite.com/o/mit-open-space-programming-34004123243" target="_blank">info link</a>
+
+### Charlestown Brewing Co. Launches Summer Pop-Up at  The Yard Charlestown at Hood Park
+
+**06/13 04:00PM - 06/15 08:00PM @ Charlestown Brewing Co**  
+This summer, Charlestown Brewing Co. is turning up the volume on fun, flavor, and community at The Yard Charlestown at Hood Park.  
+<a href="https://www.facebook.com/events/100-hood-park-drive-boston-ma-united-states-massachusetts-02129/charlestown-brewing-co-grand-opening-weekend-june-1314-15th/1037921541638298/" target="_blank">info link</a>
+
+### Black Owned Bos. Market
+
+**06/15 12:00PM - 06/15 06:00PM @ 111 Harbor Way**  
+From gifts and apparel to packaged foods and beauty & skincare products, the Seaport x Black Owned Bos.  
+<a href="https://www.bostonseaport.xyz/event/black-owned-bos-market-2025-5-18" target="_blank">info link</a>
+
+### Bunker Hill Parade: 250th Commemoration
+
+**06/15 12:30PM - 06/15 04:15PM @ Bunker Hill**  
+Even more spectacular in this 250th anniversary year!  
+<a href="https://www.boston.gov/calendar/bunker-hill-parade-250th-commemoration" target="_blank">info link</a>
+
+### Thrift (S)hop
+
+**06/15 01:00PM - 06/15 05:00PM @ Sam Adams Boston Brewery**  
+Join us on every third Sunday of the month as we spotlight some of our loved and local businesses.  
+<a href="https://www.eventbrite.com/e/sam-adams-thrift-shop-tickets-1256807949409" target="_blank">info link</a>
 
