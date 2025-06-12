@@ -1,132 +1,4 @@
-# Wednesday, June 11, 2025
-
-### Fenway Civic Association Annual Picnic at the Kelleher Rose Garden
-
-**06/11 06:00PM - 06/11 08:00PM @ Kelleher Rose Garden**  
-Join the Fenway Civic Association for their annual picnic supper in the Kelleher Rose Garden, featuring refreshments, live entertainment by The Bagboys, and a chance to meet your neighbors and friends!  
-<a href="https://www.emeraldnecklace.org/event/fenway-civic-picnic/" target="_blank">info link</a>
-
-### Groundbeat Concert Series: Rhythms of Unity
-
-**06/11 06:00PM - 06/11 08:00PM @ DCR Hatch Memorial Shell**  
-Welcome the Spring with a free concert at the Hatch Memorial Shell on June 11th featuring local R&B, jazz, funk, spoken word and dance artists as part of the Esplanade Association’s Groundbeat Concert Series.  
-<a href="https://events.humanitix.com/groundbeat-concert-series-june-11?hxchl=hex-pfl" target="_blank">info link</a>
-
-### International Day of Play 2025
-
-**06/11 10:00AM - 06/11 02:00PM @ City Hall Plaza**  
-Join the City of Boston and friends to celebrate and experience the power of play on June 11, the first International Day of Play!  
-<a href="https://www.boston.gov/calendar/international-day-play-2025" target="_blank">info link</a>
-
-### Downtown Sour Smash Disco Party & Beer Release
-
-**06/11 05:30PM - 06/11 08:30PM @ Sam Adams Boston Taproom**  
-Join us for the release our newest collaboration brew, Downtown Sour Smash, with our friends and Downtown Boston neighbors from Democracy Brewing!  
-<a href="https://www.eventbrite.com/e/downtown-sour-smash-disco-party-beer-release-tickets-1368064801649?utm-campaign=social&utm-content=attendeeshare&utm-medium=discovery&utm-term=listing&utm-source=cp&aff=ebdsshcopyurl" target="_blank">info link</a>
-
-### Community Gathering for Racial Justice --- The Cost of Forgetting: Why Anti-Blackness Still Defines America
-
-**06/11 07:30PM - 06/11 09:00PM @ Somerville Community Growing Center**  
-Join us for an evening of connection and dialogue as we gather to advance racial justice in Somerville.  
-<a href="https://www.thegrowingcenter.org/2025" target="_blank">info link</a>
-
-### 2025 Yappier Hour at the Liberty Hotel
-
-**06/11 05:30PM - 06/11 07:00PM @ The Liberty Hotel**  
-Unleash outdoor fun at Yappier Hour – Boston’s ultimate weekly gathering for hotel guests and local dog owners!  
-<a href="https://libertyhotel.com/liberty-affairs/yappier-hour-2024/" target="_blank">info link</a>
-
-### Coworking Day (Seaport)
-
-**06/11 09:00AM - 06/11 05:00PM @ Capital One Cafe Seaport**  
-Work from home, but not at home!We supply the coffee (your choice of any coffee on the cafe menu) and well appointed work space while you work side by side with other professionals that want a break from isolation or a refreshing alternative to their apartment.  
-<a href="https://www.eventbrite.com/e/1315357923959/?discount=TBC" target="_blank">info link</a>
-
-### Boston Women in Data Summer Social
-
-**06/11 06:00PM - 06/11 08:00PM @ City Tap**  
-Join the Women in Data Boston Chapter for a summer social on Wednesday, June 11th at City Tap!  
-<a href="https://womenindata.mn.co/posts/84623044" target="_blank">info link</a>
-
-### Queer Trivia at Barlette
-
-**06/11 06:30PM - 06/11 09:30PM @ Barlette**  
-Think you’re the sharpest queer in the room?  
-<a href="https://resy.com/cities/boston-ma/venues/barlette/events/queer-trivia-2025-05-14?date=2025-05-14&seats=2" target="_blank">info link</a>
-
-### Liv Kennedy Closer to Somewhere Listening Party
-
-**06/11 07:30PM - 06/11 11:00PM @ The Smoot Standard**  
-Join Liv Kennedy and Tim Cooney for an acoustic set and listening party for her new album, Closer to Somewhere.  
-<a href="https://partiful.com/e/XzAYykrPHMaG77wZH07z" target="_blank">info link</a>
-
-### Science Communication in a Loud World: A Conversation with Meteorologist Eric Fisher About Weather Forecasting and Reporting
-
-**06/11 06:30PM - 06/11 07:30PM @ New England Aquarium’s Simons Theatre**  
-The New England Aquarium’s Lowell Lecture Series presents meteorologist Eric Fisher, who will discuss the changing landscape of communicating weather forecasts and climate data.  
-<a href="https://www.neaq.org/engage/events-and-programs/aquarium-lectures/" target="_blank">info link</a>
-
-### Wednesday Creative Musings
-
-**06/11 03:30PM - 06/11 06:30PM @ Somerville Community Growing Center**  
-Come visit the Somerville Community Growing Center for some relatively quiet time during the weekly Red Fire Farm CSA distribution window.  
-<a href="https://www.thegrowingcenter.org/2025" target="_blank">info link</a>
-
-### Drag Bingo
-
-**06/11 08:00PM - 06/11 10:00PM @ Vera's**  
-On Wednesdays we play bingo! Join us at Vera's every Wednesday from 8-10pm for Drag Bingo!  
-<a href="https://www.instagram.com/veras_cardinal_lounge/" target="_blank">info link</a>
-
-### ¡Miércoles Maravilloso!: free in-person Spanish convo practice
-
-**06/11 05:00PM - 06/11 06:00PM @ Boston Area Spanish Exchange (BASE)**  
-¡Miércoles Maravilloso!Free open-level Spanish informal conversation workshops.  
-<a href="https://www.spanishclassesboston.com/events/miercolesmaravilloso" target="_blank">info link</a>
-
-### Jeopardy Bar League at Long Live Roxbury
-
-**06/11 07:00PM - 06/11 09:00PM @ Long Live Roxbury**  
-Teams play along and compete against each other using their smartphones through an interactive Jeopardy!  
-<a href="https://www.longlivebeerworks.com/boston-taproom" target="_blank">info link</a>
-
-### November Project: Stair Workout at Harvard Stadium
-
-**06/11 05:55AM - 06/11 07:00AM @ Harvard Stadium**  
-Located in lower Allston, Harvard Stadium is one of the favorite workout spots of the November Project™ members.  
-<a href="https://november-project.com/stadium/" target="_blank">info link</a>
-
-### Queer Comedy Night @ Satellite
-
-**06/11 07:00PM - 06/11 09:00PM @ Remnant Satellite**  
-LGBTQ+ cuties do it better. Featuring Boston's hottest and most hilarious talent, Queer Comedy Night combines community-favorites, incredible food, and craft beer.  
-<a href="https://www.eventbrite.com/e/queer-comedy-night-early-show-satellite-tickets-1373498333489" target="_blank">info link</a>
-
-### Queer Trivia at Barlette
-
-**06/11 06:30PM - 06/11 09:30PM @ Barlette**  
-Think you’re the sharpest queer in the room?  
-<a href="https://resy.com/cities/boston-ma/venues/barlette/events/queer-trivia-2025-05-14?date=2025-05-14&seats=2" target="_blank">info link</a>
-
-### Groundbeat Concert Series: Rhythms of Unity
-
-**06/11 06:00PM - 06/11 08:00PM @ DCR Hatch Memorial Shell**  
-Welcome the Spring with a free concert at the Hatch Memorial Shell on June 11th featuring local R&B, jazz, funk, spoken word and dance artists as part of the Esplanade Association’s Groundbeat Concert Series.  
-<a href="https://events.humanitix.com/groundbeat-concert-series-june-11?hxchl=hex-pfl" target="_blank">info link</a>
-
-### Concerts in the Common at Brighton's Farmers Market
-
-**06/11 04:30PM - 06/11 06:00PM @ Brighton Common**  
-Taking place the 2nd Wednesday of each month at the Brighton Farmer's Market, these family-friendly concerts present an eclectic soundscape of live music that include dance, juggling, and demonstrations.  
-<a href="https://edportal.harvard.edu/concerts-common-2025" target="_blank">info link</a>
-
 # Thursday, June 12, 2025
-
-### Lit Crawl Boston 2025
-
-**06/12 06:00PM - 06/12 09:00PM @ Union Square**  
-Lit Crawl returns! Come join your fellow bookworms and bibliomaniacs for a night of irreverent literary adventure and mayhem in unexpected spaces across Union Square.  
-<a href="https://bostonbookfest.org/litcrawl-2/" target="_blank">info link</a>
 
 ### The Night Bazaar: Season Opener
 
@@ -134,11 +6,17 @@ Lit Crawl returns! Come join your fellow bookworms and bibliomaniacs for a night
 The Night Bazaar returns for its fourth year, & we’re back on Thursdays!  
 <a href="https://www.facebook.com/events/582352434324269/" target="_blank">info link</a>
 
-### Thursdays on the Lawn at the Loring Greenough House
+### Boston Landing Outdoor Movies
 
-**06/12 04:00PM - 06/12 08:00PM @ The Loring Greenough House**  
-We are happy to welcome you back for the 2025 season of Thursdays on the Lawn starting JUNE 5TH 2025!  
-<a href="https://loring-greenough.org/events/thursdays-on-the-lawn/" target="_blank">info link</a>
+**06/12 06:30PM - 09/04 08:30PM @ Boston Landing**  
+6pm- pre party, 8pm- movie starts‍Join us for the return of Boston Landing's Outdoor Movie Nights!  
+<a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
+
+### Lit Crawl Boston 2025
+
+**06/12 06:00PM - 06/12 09:00PM @ Union Square**  
+Lit Crawl returns! Come join your fellow bookworms and bibliomaniacs for a night of irreverent literary adventure and mayhem in unexpected spaces across Union Square.  
+<a href="https://bostonbookfest.org/litcrawl-2/" target="_blank">info link</a>
 
 ### Belonging in Boston: MOIA x SoFar Community Concert
 
@@ -169,6 +47,12 @@ Join us in Urban Park roof garden for paint & sip classes lead by one of our fri
 **06/12 06:00PM - 06/12 09:00PM @ The Yard @ Suffolk Downs**  
 BINGO @ The Yard - 6/12Join us for some friendly competition and a few rounds of BINGO!  
 <a href="https://www.eventbrite.com/e/thursday-nights-bingo-the-yard-tickets-1367119454089?aff=odcleoeventsincollection" target="_blank">info link</a>
+
+### Thursdays on the Lawn at the Loring Greenough House
+
+**06/12 04:00PM - 06/12 08:00PM @ The Loring Greenough House**  
+We are happy to welcome you back for the 2025 season of Thursdays on the Lawn starting JUNE 5TH 2025!  
+<a href="https://loring-greenough.org/events/thursdays-on-the-lawn/" target="_blank">info link</a>
 
 ### Wink Wink: A Pride Party
 
@@ -219,17 +103,17 @@ Each week we connect creators, entrepreneurs, investors, academics, corporates, 
 Admission is FREE for all every Thursday from 5 to 9 PM during ICA Free Thursday Nights.  
 <a href="http://www.icaboston.org/visit" target="_blank">info link</a>
 
-### Time Out’s Drag Star Showdown
-
-**06/12 08:00PM - 06/12 10:00PM @ Time Out Market Boston**  
-Get ready for a night of fierce looks and unforgettable performances!  
-<a href="https://www.eventbrite.com/e/time-outs-drag-star-showdown-tickets-1344488253559" target="_blank">info link</a>
-
 ### Wink Wink: A Pride Party
 
 **06/12 04:00PM - 06/12 04:00PM @ The Substation**  
 Join us in this public event to support Mass Transgender Political Coalition!  
 <a href="https://thesubstation.space/events-all" target="_blank">info link</a>
+
+### Time Out’s Drag Star Showdown
+
+**06/12 08:00PM - 06/12 10:00PM @ Time Out Market Boston**  
+Get ready for a night of fierce looks and unforgettable performances!  
+<a href="https://www.eventbrite.com/e/time-outs-drag-star-showdown-tickets-1344488253559" target="_blank">info link</a>
 
 ### Geeks Who Drink Trivia Night: RuPaul’s Drag Race Edition
 
@@ -250,6 +134,12 @@ For nearly 70 years, Club Passim has hosted memorable musical experiences, inclu
 <a href="https://college.berklee.edu/events/summer/club-passim" target="_blank">info link</a>
 
 # Friday, June 13, 2025
+
+### Boston Landing Outdoor Movies
+
+**06/12 06:30PM - 09/04 08:30PM @ Boston Landing**  
+6pm- pre party, 8pm- movie starts‍Join us for the return of Boston Landing's Outdoor Movie Nights!  
+<a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
 
 ### Friday Movie Nights at MIT Open Space
 
@@ -325,6 +215,12 @@ Join The Bosworth at Hotel AKA Boston Common for an unforgettable Drag Dinner Ex
 **06/14 11:00AM - 06/14 08:00PM @ Boston Common**  
 The 2025 Boston Pride for the People Festival (BP4TP) will take place on Saturday, June 14, 2025.  
 <a href="https://www.bostonprideforthepeople.org/" target="_blank">info link</a>
+
+### Boston Landing Outdoor Movies
+
+**06/12 06:30PM - 09/04 08:30PM @ Boston Landing**  
+6pm- pre party, 8pm- movie starts‍Join us for the return of Boston Landing's Outdoor Movie Nights!  
+<a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
 
 ### Friday Movie Nights at MIT Open Space
 
@@ -459,11 +355,11 @@ Traditional Irish Sessions are a long-standing tradition and well-known event at
 Back by popular demand, Boston Seaport's children's programming series, Seaport Smalls: Free Fun for your Tiny Crew.  
 <a href="https://www.eventbrite.com/e/seaport-smalls-tickets-1308146885549" target="_blank">info link</a>
 
-### Boston Pride Parade & Festival 2025 by Boston Pride For The People
+### Pride Party on The Patio in Back Bay!
 
-**06/14 11:00AM - 06/14 08:00PM @ Boston Common**  
-The 2025 Boston Pride for the People Festival (BP4TP) will take place on Saturday, June 14, 2025.  
-<a href="https://www.bostonprideforthepeople.org/" target="_blank">info link</a>
+**06/14 10:00AM - 06/14 04:00PM @ The Berkeley at Hotel AKA Back Bay**  
+Join The Berkeley at Hotel AKA Back Bay for an all-day SLAY of beats, brunch, and pride celebration with DJ entertainment by DJ Aave!  
+<a href="https://theberkeleyboston.com" target="_blank">info link</a>
 
 ### Pride Parade Watch Party
 
@@ -471,23 +367,23 @@ The 2025 Boston Pride for the People Festival (BP4TP) will take place on Saturda
 Join Trinity Church Boston on our Clarendon Porch to cheer on the Boston Pride for the People Parade!  
 <a href="https://trinitychurchboston.org/event/boston-pride-for-the-people-parade/" target="_blank">info link</a>
 
-### Rebel Rebel: GAY FIERI: DINERS, DRIVE-INS, & PRIDE
+### Boston Pride Parade & Festival 2025 by Boston Pride For The People
 
-**06/14 02:00PM - 06/14 06:00PM @ Bow Market**  
-Saturday, June 14th Rebel Rebel & Bow Market are bringing us to flavortown for everyone’s favorite annual post-parade, pre-club afternoon cookout!  
-<a href="https://www.eventbrite.com/e/rebel-rebel-gay-fieri-diners-drive-ins-pride-tickets-1366201869569?aff=ebdsoporgprofile" target="_blank">info link</a>
-
-### Pride Party on The Patio in Back Bay!
-
-**06/14 10:00AM - 06/14 04:00PM @ The Berkeley at Hotel AKA Back Bay**  
-Join The Berkeley at Hotel AKA Back Bay for an all-day SLAY of beats, brunch, and pride celebration with DJ entertainment by DJ Aave!  
-<a href="https://theberkeleyboston.com" target="_blank">info link</a>
+**06/14 11:00AM - 06/14 08:00PM @ Boston Common**  
+The 2025 Boston Pride for the People Festival (BP4TP) will take place on Saturday, June 14, 2025.  
+<a href="https://www.bostonprideforthepeople.org/" target="_blank">info link</a>
 
 ### Pride Parade After-Party & Drag Bingo!
 
 **06/14 02:00PM - 06/14 06:00PM @ High Street Place Food Hall**  
 Join us for our Boston Pride Parade After-Party!  
 <a href="https://www.squadup.com/events/pride-parade-afterparty?&utm_source=instagram&utm_medium=organic&utm_campaign=pride_ig" target="_blank">info link</a>
+
+### Rebel Rebel: GAY FIERI: DINERS, DRIVE-INS, & PRIDE
+
+**06/14 02:00PM - 06/14 06:00PM @ Bow Market**  
+Saturday, June 14th Rebel Rebel & Bow Market are bringing us to flavortown for everyone’s favorite annual post-parade, pre-club afternoon cookout!  
+<a href="https://www.eventbrite.com/e/rebel-rebel-gay-fieri-diners-drive-ins-pride-tickets-1366201869569?aff=ebdsoporgprofile" target="_blank">info link</a>
 
 ### Come As You Were - Pride Dance
 
@@ -520,6 +416,12 @@ Boston Landmarks Orchestra Concerts is returning to the DCR Hatch Shell for the
 **06/15 12:30PM - 06/15 04:15PM @ Bunker Hill**  
 Even more spectacular in this 250th anniversary year!  
 <a href="https://www.boston.gov/calendar/bunker-hill-parade-250th-commemoration" target="_blank">info link</a>
+
+### Boston Landing Outdoor Movies
+
+**06/12 06:30PM - 09/04 08:30PM @ Boston Landing**  
+6pm- pre party, 8pm- movie starts‍Join us for the return of Boston Landing's Outdoor Movie Nights!  
+<a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
 
 ### Friday Movie Nights at MIT Open Space
 
@@ -625,6 +527,12 @@ Boston Landmarks Orchestra Concerts is returning to the DCR Hatch Shell for the
 
 # Monday, June 16, 2025
 
+### Boston Landing Outdoor Movies
+
+**06/12 06:30PM - 09/04 08:30PM @ Boston Landing**  
+6pm- pre party, 8pm- movie starts‍Join us for the return of Boston Landing's Outdoor Movie Nights!  
+<a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
+
 ### Friday Movie Nights at MIT Open Space
 
 **06/13 06:00PM - 08/08 09:00PM @ MIT Open Space**  
@@ -657,6 +565,12 @@ Boston Landmarks Orchestra Concerts is returning to the DCR Hatch Shell for the
 
 # Tuesday, June 17, 2025
 
+### Boston Landing Outdoor Movies
+
+**06/12 06:30PM - 09/04 08:30PM @ Boston Landing**  
+6pm- pre party, 8pm- movie starts‍Join us for the return of Boston Landing's Outdoor Movie Nights!  
+<a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
+
 ### Friday Movie Nights at MIT Open Space
 
 **06/13 06:00PM - 08/08 09:00PM @ MIT Open Space**  
@@ -674,6 +588,56 @@ Join us in Urban Park roof garden for paint & sip classes lead by one of our fri
 **06/17 05:00PM - 06/17 07:00PM @ Paul Revere Mall**  
 Enjoy an evening filled with joy and celebration for our LGBTQIA+ community and allies as we uplift and honor love in all its beautiful forms.  
 <a href="https://www.tqnc.org/events/pride-in-the-prado" target="_blank">info link</a>
+
+### Summer Concerts at Longfellow House
+
+**06/15 03:00PM - 08/24 04:00PM @ Longfellow House - Washington's Headquarter's National Historic Site**  
+Enjoy a concert at Longfellow House on select Sundays throughout the summer.  
+<a href="https://college.berklee.edu/events/summer/longfellow-house" target="_blank">info link</a>
+
+### FREE Boston Landmarks Orchestra Concerts at the Hatch Shell on the Esplanade
+
+**06/14 07:00PM - 08/27 09:00PM @ DCR Hatch Memorial Shell**  
+Boston Landmarks Orchestra Concerts is returning to the DCR Hatch Shell for the summer season.  
+<a href="https://www.landmarksorchestra.org/events/current-season/" target="_blank">info link</a>
+
+# Wednesday, June 18, 2025
+
+### Boston Landing Outdoor Movies
+
+**06/12 06:30PM - 09/04 08:30PM @ Boston Landing**  
+6pm- pre party, 8pm- movie starts‍Join us for the return of Boston Landing's Outdoor Movie Nights!  
+<a href="https://www.bostonlanding.co/calendar/outdoor-movie-night" target="_blank">info link</a>
+
+### Friday Movie Nights at MIT Open Space
+
+**06/13 06:00PM - 08/08 09:00PM @ MIT Open Space**  
+Join us for a movie night under the stars!  
+<a href="https://www.eventbrite.com/o/mit-open-space-programming-34004123243" target="_blank">info link</a>
+
+### FREE Paint & Sip Nights at the Urban Park Roof Garden
+
+**06/12 06:00PM - 10/09 08:00PM @ Urban Park Roof Garden**  
+Join us in Urban Park roof garden for paint & sip classes lead by one of our friends from the Community Art Center.  
+<a href="https://www.kendallcenter.com/paint-and-sip-nights/" target="_blank">info link</a>
+
+### Boston PRIDE-themed Yappier Hour at The Liberty
+
+**06/18 05:30PM - 06/18 08:00PM @ The Yard at The Liberty Hotel**  
+Calling all guests and Boston locals!We're excited to announce this year's PRIDE-themed #YappierHour!  
+<a href="https://www.eventbrite.com/e/boston-pride-themed-yappier-hour-at-the-liberty-tickets-1399626292919" target="_blank">info link</a>
+
+### Poly Bi & Pan Speed-Dating (21+)
+
+**06/18 07:00PM - 06/18 09:00PM @ Trident Books**  
+EVENT START-END | 7:00 pm - 9:00 pm ET CHECK-IN BEGINS | 6:30 pm ETWHERE | Trident Books, 338 Newbury St, Boston, MA 02115 (map)AGE RANGE | 21+: This event is centered on people ages 21+ .  
+<a href="https://www.skipthesmalltalk.com/store/poly-bi-pan-speed-dating-21-wednesday-june-18-2025" target="_blank">info link</a>
+
+### Pride Fiber Arts Night
+
+**06/18 06:00PM - 06/18 09:00PM @ Lamplighter Brewing Co. - Broadway**  
+Join us and Boston Queer Fiber Arts on Wednesday, June 18th, in the Lamplighter Broadway taproom for our special Pride edition of Queer Fiber Arts Night.  
+<a href="https://www.eventbrite.com/e/pride-fiber-arts-night-tickets-1376806357879" target="_blank">info link</a>
 
 ### Summer Concerts at Longfellow House
 
