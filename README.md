@@ -1,143 +1,3 @@
-# Sunday, June 15, 2025
-
-### Bunker Hill Parade: 250th Commemoration
-
-**06/15 12:30PM - 06/15 04:15PM @ Bunker Hill**  
-Even more spectacular in this 250th anniversary year!  
-<a href="https://www.boston.gov/calendar/bunker-hill-parade-250th-commemoration" target="_blank">info link</a>
-
-### Charles River Speedway's Annual Block Party
-
-**06/15 12:00PM - 06/15 05:00PM @ The Charles River Speedway**  
-The Charles River Speedway is hosting it's 5th (that’s right) Annual Block Party!  
-<a href="https://charlesriverspeedway.com/event/5th-annual-speedway-block-party/" target="_blank">info link</a>
-
-### JP Block Party - Pride in Boston
-
-**06/15 12:00PM - 06/15 07:00PM @ Perkins Street**  
-DJ, with Live music, Drag show, local vendors, food and more.  
-<a href="https://www.eventbrite.com/e/jp-block-party-pride-in-boston-tickets-1330393706389" target="_blank">info link</a>
-
-### JP Jitterbugs Midsummer Dance with Annie and the Fur Trappers
-
-**06/15 04:00PM - 06/15 08:23PM @ Jamaica Pond Boat House**  
-The summer solstice is almost here and Annie and the Fur Trappers are playing at Jamaica Pond on June 15th!  
-<a href="https://www.facebook.com/events/1352461072652762" target="_blank">info link</a>
-
-### Black Owned Bos. Market
-
-**06/15 12:00PM - 06/15 06:00PM @ 111 Harbor Way**  
-From gifts and apparel to packaged foods and beauty & skincare products, the Seaport x Black Owned Bos.  
-<a href="https://www.bostonseaport.xyz/event/black-owned-bos-market-2025-5-18" target="_blank">info link</a>
-
-### FREE Open Skate Class + Professional Skating Show
-
-**06/15 05:30PM - 06/15 08:00PM @ Warrior Ice Arena**  
-2025 FREE Skate Class & Contemporary Skating ShowFestival Showcase & Free Contemporary Skate ClassSunday, June 15 | Warrior Ice Arena, Brighton, MALooking for a unique and memorable way to spend Father’s Day?  
-<a href="https://americanicetheatre.betterworld.org/events/festival" target="_blank">info link</a>
-
-### Massachusetts Pirate Party Spring Conference
-
-**06/15 10:00AM - 06/15 04:00PM @ Lavender room at Arts at the Armory**  
-Our country is in a dire place. While funding for ICE and presidential golf trips soars, whistleblower protections are eroding and vital programs are cut.  
-<a href="https://" target="_blank">info link</a>
-
-### 2025 SoWa Open Market
-
-**06/15 11:00AM - 06/15 05:00PM @ SoWa Open Market**  
-Join us every weekend starting in May 4, 2025!  
-<a href="https://www.sowaboston.com/sowa-open-market/" target="_blank">info link</a>
-
-### Thrift (S)hop
-
-**06/15 01:00PM - 06/15 05:00PM @ Sam Adams Boston Brewery**  
-Join us on every third Sunday of the month as we spotlight some of our loved and local businesses.  
-<a href="https://www.eventbrite.com/e/sam-adams-thrift-shop-tickets-1256807949409" target="_blank">info link</a>
-
-### Memorial Drive Recreation Sundays 2025
-
-**06/15 11:00AM - 06/15 07:00PM @ Riverbend Park**  
-The Department of Conservation and Recreation (DCR) closes a portion Memorial Drive to motor vehicle traffic each weekend from the end of April to mid-November to allow pedestrians, cyclists, and others to enjoy the riverfront roadway without cars.  
-<a href="https://www.cambridgema.gov/streetsandtransportation/memorialdrive" target="_blank">info link</a>
-
-### Coffee+Crafts
-
-**06/15 01:00PM - 06/15 04:00PM @ Boston Fiber Company**  
-Join us every Sunday from 1pm-4pm for Coffee+Crafts!  
-<a href="https://www.bostonfibercompany.com" target="_blank">info link</a>
-
-### Poetry Open Mic at Trident
-
-**06/15 07:00PM - 06/15 09:00PM @ Trident Booksellers & Cafe**  
-Join us for a fun evening of open mic poetry!  
-<a href="https://www.tridentbookscafe.com/event/poetry-open-mic-1" target="_blank">info link</a>
-
-### Bunker Hill Parade: 250th Commemoration
-
-**06/15 12:30PM - 06/15 04:15PM @ Bunker Hill**  
-Even more spectacular in this 250th anniversary year!  
-<a href="https://www.boston.gov/calendar/bunker-hill-parade-250th-commemoration" target="_blank">info link</a>
-
-### JP Jitterbugs Midsummer Dance with Annie and the Fur Trappers
-
-**06/15 04:00PM - 06/15 08:23PM @ Jamaica Pond Boat House**  
-The summer solstice is almost here and Annie and the Fur Trappers are playing at Jamaica Pond on June 15th!  
-<a href="https://www.facebook.com/events/1352461072652762" target="_blank">info link</a>
-
-### FREE Open Skate Class + Professional Skating Show
-
-**06/15 05:30PM - 06/15 08:00PM @ Warrior Ice Arena**  
-2025 FREE Skate Class & Contemporary Skating ShowFestival Showcase & Free Contemporary Skate ClassSunday, June 15 | Warrior Ice Arena, Brighton, MALooking for a unique and memorable way to spend Father’s Day?  
-<a href="https://americanicetheatre.betterworld.org/events/festival" target="_blank">info link</a>
-
-### Black Owned Bos. Market
-
-**06/15 12:00PM - 06/15 06:00PM @ 111 Harbor Way**  
-From gifts and apparel to packaged foods and beauty & skincare products, the Seaport x Black Owned Bos.  
-<a href="https://www.bostonseaport.xyz/event/black-owned-bos-market-2025-5-18" target="_blank">info link</a>
-
-### 2025 SoWa Open Market
-
-**06/15 11:00AM - 06/15 05:00PM @ SoWa Open Market**  
-Join us every weekend starting in May 4, 2025!  
-<a href="https://www.sowaboston.com/sowa-open-market/" target="_blank">info link</a>
-
-### Thrift (S)hop
-
-**06/15 01:00PM - 06/15 05:00PM @ Sam Adams Boston Brewery**  
-Join us on every third Sunday of the month as we spotlight some of our loved and local businesses.  
-<a href="https://www.eventbrite.com/e/sam-adams-thrift-shop-tickets-1256807949409" target="_blank">info link</a>
-
-### Memorial Drive Recreation Sundays 2025
-
-**06/15 11:00AM - 06/15 07:00PM @ Riverbend Park**  
-The Department of Conservation and Recreation (DCR) closes a portion Memorial Drive to motor vehicle traffic each weekend from the end of April to mid-November to allow pedestrians, cyclists, and others to enjoy the riverfront roadway without cars.  
-<a href="https://www.cambridgema.gov/streetsandtransportation/memorialdrive" target="_blank">info link</a>
-
-### Coffee+Crafts
-
-**06/15 01:00PM - 06/15 04:00PM @ Boston Fiber Company**  
-Join us every Sunday from 1pm-4pm for Coffee+Crafts!  
-<a href="https://www.bostonfibercompany.com" target="_blank">info link</a>
-
-### Poetry Open Mic at Trident
-
-**06/15 07:00PM - 06/15 09:00PM @ Trident Booksellers & Cafe**  
-Join us for a fun evening of open mic poetry!  
-<a href="https://www.tridentbookscafe.com/event/poetry-open-mic-1" target="_blank">info link</a>
-
-### Stoner Pride | A Fundraiser for Multicultural AIDS Coalition
-
-**06/15 04:20PM - 06/15 08:00PM @ Dorchester Brewing Company**  
-Join us for a celebration of radical queer & trans joy!  
-<a href="https://www.eventbrite.com/e/stoner-pride-a-fundraiser-for-multicultural-aids-coalition-tickets-1384186381729" target="_blank">info link</a>
-
-### JP Block Party - Pride in Boston
-
-**06/15 12:00PM - 06/15 07:00PM @ Perkins Street**  
-DJ, with Live music, Drag show, local vendors, food and more.  
-<a href="https://www.eventbrite.com/e/jp-block-party-pride-in-boston-tickets-1330393706389" target="_blank">info link</a>
-
 # Monday, June 16, 2025
 
 ### Pride Movie Night: Paris is Burning
@@ -192,23 +52,43 @@ Join us and Boston Queer Fiber Arts on Wednesday, June 18th, in the Lamplighter 
 Join us on Saturday, June 21st to celebrate Pride with drag performances, cold beer, an extended beer garden, food pop-ups, a DJ, and more.  
 <a href="https://www.eventbrite.com/e/1345705193459?aff=oddtdtcreator" target="_blank">info link</a>
 
-### Read My Lips Boston pop-up & free wine tasting at The Urban Grape
-
-**06/21 02:00PM - 06/21 05:00PM @ The Urban Grape**  
-Come join us for a diverse romance bookshop pop-up and free public wine tasting at The Urban Grape, a Black-owned and woman-owned wine shop that highlights BIPOC and LGBTQ+ producers!  
-<a href="https://read-my-lips-boston.square.site/" target="_blank">info link</a>
-
 ### Big Gay Dance Party
 
 **06/21 05:00PM - 06/21 08:00PM @ Union Square Plaza**  
 Join us for Somerville’s Big Gay Dance Party – An Outdoor Celebration of LGBTQ+ Pride!  
 <a href="https://somervilleartscouncil.org/events/big-gay-dance-party-2/" target="_blank">info link</a>
 
+### Read My Lips Boston pop-up & free wine tasting at The Urban Grape
+
+**06/21 02:00PM - 06/21 05:00PM @ The Urban Grape**  
+Come join us for a diverse romance bookshop pop-up and free public wine tasting at The Urban Grape, a Black-owned and woman-owned wine shop that highlights BIPOC and LGBTQ+ producers!  
+<a href="https://read-my-lips-boston.square.site/" target="_blank">info link</a>
+
 ### Read My Lips: A Drag Tournament hoested by Kori King
 
 **06/21 07:30PM - 06/21 11:00PM @ Huntington Theatre**  
 Boston’s newest drag competition!Cheer the house down boots for your favorite performer while they battle it out in a lip sync tournament.  
 <a href="https://www.huntingtontheatre.org/whats-on/read-my-lips-a-drag-tournament/" target="_blank">info link</a>
+
+### fruitstand presents: GLOW UP pride rave
+
+**06/21 09:30PM - 06/22 02:00AM @ 52 Church**  
+hey hottie 😊 you’re glowing! toss on your brightest neon outfit 🌟 and some fluorescent eyeshadow, and come shake ass 🔥 under the blacklights at our 🌈 GLOW UP pride rave.  
+<a href="https://link.fruitstand.gay/glow-up?utm_source=thebostoncalendar" target="_blank">info link</a>
+
+# Sunday, June 22, 2025
+
+### Sam Adams Pride Market
+
+**06/22 12:00PM - 06/22 05:00PM @ Sam Adams Boston Brewery**  
+Grab a pint of Love Conquers Ale and shop small, LGBT-owned businesses!  
+<a href="https://www.eventbrite.com/e/sam-adams-pride-market-tickets-1364493760569?utm-campaign=social&utm-content=attendeeshare&utm-medium=discovery&utm-term=listing&utm-source=cp&aff=ebdsshcopyurl" target="_blank">info link</a>
+
+### Wicked Local Wares - Pride Market
+
+**06/22 12:00PM - 06/22 05:00PM @ Time Out Market Boston**  
+Get into the spirit at Time Out Market Boston on Sunday, June 22nd where a market extravaganza awaits!  
+<a href="https://www.eventbrite.com/e/wicked-local-wares-pride-market-tickets-1382752422719" target="_blank">info link</a>
 
 ### fruitstand presents: GLOW UP pride rave
 
