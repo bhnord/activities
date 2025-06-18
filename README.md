@@ -1,65 +1,3 @@
-# Tuesday, June 17, 2025
-
-### Echoes of Valor Concert at the Hatch Shell
-
-**06/17 06:00PM - 06/17 10:00PM @ Hatch Memorial Shell**  
-Echoes of Valor: A Tribute to the 250th Anniversary of the Battle of Bunker Hill,  U.  
-<a href="https://bunkerhillmonumentassn.org/" target="_blank">info link</a>
-
-### Juneteenth Flag Raising
-
-**06/17 12:30PM - 06/17 01:30PM @ City Hall**  
-Join us for a special Juneteenth celebration as the City of Boston officially observes this important holiday.  
-<a href="https://www.boston.gov/calendar/juneteenth-flag-raising" target="_blank">info link</a>
-
-### Daylight at BIO: Science, Art, & Coffee Lounge
-
-**06/17 08:00AM - 06/17 03:00PM @ 74M**  
-Before diving into the frenzy of evening events at BIO 2025, join us for a different kind of gathering — one grounded in intention, conversation, and creativity.  
-<a href="https://lu.ma/8y2v0kgp" target="_blank">info link</a>
-
-### FREE Tuesday Tunes Live Music at the Urban Park Roof Garden by Club Passim
-
-**06/17 05:00PM - 06/17 07:00PM @ Urban Park Roof Garden**  
-The Berklee Summer in the City Concert Series presents more than 400 free performances throughout Greater Boston from June through August.  
-<a href="https://www.passim.org/live-music/festivals_summer_series/kendall-square-series/" target="_blank">info link</a>
-
-### Coworking Day!
-
-**06/17 09:00AM - 06/17 05:00PM @ Capital One Cafe**  
-Work from home, but not at home!We supply the coffee (your choice of any coffee on the cafe menu) and well appointed work space while you work side by side with other professionals that want a break from isolation or a refreshing alternative to their apartment.  
-<a href="https://www.eventbrite.com/e/1315363861719/?discount=TBC" target="_blank">info link</a>
-
-### You Belong Here Printing Workshop
-
-**06/17 04:00PM - 06/17 07:00PM @ Boston City Hall**  
-Join us for a printing workshop led by artist Julia Csekö and design a message of belonging.  
-<a href="https://www.eventbrite.com/e/you-belong-here-printing-workshop-tickets-1383912342069?aff=oddtdtcreator" target="_blank">info link</a>
-
-### Tuesdays with Roses at the Kelleher Rose Garden
-
-**06/17 05:30PM - 06/17 07:30PM @ Kelleher Rose Garden**  
-The Kelleher Rose Garden, located in Boston’s Back Bay Fens, will be near full bloom around Friday, June 6th.  
-<a href="https://www.emeraldnecklace.org/calendar/month/2023-06/" target="_blank">info link</a>
-
-### Summer Concerts at Atlantic Wharf
-
-**06/17 12:00PM - 06/19 07:00PM @ Atlantic Wharf**  
-Situated on the Boston Harborwalk, Atlantic Wharf is a perfect waterfront location for music, a walk, and fun gatherings.  
-<a href="https://college.berklee.edu/events/summer/atlantic-wharf" target="_blank">info link</a>
-
-### Summer Concerts at Lyrik Back Bay
-
-**06/17 06:00PM - 06/17 07:00PM @ Lyrik Back Bay**  
-Situated at the lively junction of Massachusetts Avenue and Boylston and Newbury Streets, Lyrik Back Bay is easy to find from any direction.  
-<a href="https://college.berklee.edu/events/summer/summer-concerts-at-lyrik-back-bay" target="_blank">info link</a>
-
-### Drop The Mic Karaoke
-
-**06/17 11:00PM - 06/18 02:00AM @ An Sibin**  
-Fun late night Karaoke, Hosted by local Comedian Scotty Lombardo.  
-<a href="https://" target="_blank">info link</a>
-
 # Wednesday, June 18, 2025
 
 ### Echoes of Freedom - Juneteenth Concert
@@ -86,23 +24,11 @@ Calling all guests and Boston locals!We're excited to announce this year's PRIDE
 Join us and Boston Queer Fiber Arts on Wednesday, June 18th, in the Lamplighter Broadway taproom for our special Pride edition of Queer Fiber Arts Night.  
 <a href="https://www.eventbrite.com/e/pride-fiber-arts-night-tickets-1376806357879" target="_blank">info link</a>
 
-### Summer Concerts at Atlantic Wharf
-
-**06/17 12:00PM - 06/19 07:00PM @ Atlantic Wharf**  
-Situated on the Boston Harborwalk, Atlantic Wharf is a perfect waterfront location for music, a walk, and fun gatherings.  
-<a href="https://college.berklee.edu/events/summer/atlantic-wharf" target="_blank">info link</a>
-
 ### Wednesday Creative Musings
 
 **06/18 03:30PM - 06/18 06:30PM @ Somerville Community Growing Center**  
 Come visit the Somerville Community Growing Center for some relatively quiet time during the weekly Red Fire Farm CSA distribution window.  
 <a href="https://www.thegrowingcenter.org/2025" target="_blank">info link</a>
-
-### Drop The Mic Karaoke
-
-**06/17 11:00PM - 06/18 02:00AM @ An Sibin**  
-Fun late night Karaoke, Hosted by local Comedian Scotty Lombardo.  
-<a href="https://" target="_blank">info link</a>
 
 ### Drag Bingo
 
@@ -171,17 +97,17 @@ Got questions?
 Email us at [email protected]  
 <a href="https://www.eventbrite.com/e/3rd-annual-freedom-cookout-registration-1343073441819?aff=oddtdtcreator&fbclid=PAQ0xDSwKjJPFleHRuA2FlbQIxMQABpy7j6hFeNIYtuCOfCtPDvvNZgk6IfrQATrn2nU0-j33inzes7bnyJnlENhXq_aem_-DylZtma0ovYp8eJqHjrZw" target="_blank">info link</a>
 
-### Juneteenth: Free Admission to ICA Boston
-
-**06/19 10:00AM - 06/19 05:00PM @ Institute of Contemporary Art**  
-The ICA is offering FREE admission for all on Juneteenth, Wednesday, June 19.  
-<a href="https://www.icaboston.org/visit/" target="_blank">info link</a>
-
 ### Thursdays on the Lawn at the Loring Greenough House
 
 **06/19 04:00PM - 06/19 08:00PM @ The Loring Greenough House**  
 We are happy to welcome you back for the 2025 season of Thursdays on the Lawn starting JUNE 5TH 2025!  
 <a href="https://loring-greenough.org/events/thursdays-on-the-lawn/" target="_blank">info link</a>
+
+### Juneteenth: Free Admission to ICA Boston
+
+**06/19 10:00AM - 06/19 05:00PM @ Institute of Contemporary Art**  
+The ICA is offering FREE admission for all on Juneteenth, Wednesday, June 19.  
+<a href="https://www.icaboston.org/visit/" target="_blank">info link</a>
 
 ### Hidden Figures Screening
 
@@ -206,12 +132,6 @@ WHAT: In honor of Juneteenth, the New England Aquarium’s Lowell Lecture Series
 **06/19 05:00PM - 06/19 07:00PM @ OAK Long Bar + Kitchen**  
 OAK Long Bar + Kitchen (OAK) is partnering with Uncle Nearest Premium Whiskey to host a complimentary whiskey tasting on Juneteenth from 5 to 7 p.  
 <a href="https://www.oaklongbarkitchen.com/menus/#/juneteenth" target="_blank">info link</a>
-
-### Summer Concerts at Atlantic Wharf
-
-**06/17 12:00PM - 06/19 07:00PM @ Atlantic Wharf**  
-Situated on the Boston Harborwalk, Atlantic Wharf is a perfect waterfront location for music, a walk, and fun gatherings.  
-<a href="https://college.berklee.edu/events/summer/atlantic-wharf" target="_blank">info link</a>
 
 ### Saxyderms Summer Concert Series
 
@@ -258,7 +178,7 @@ The Roxbury International Film Festival is the largest festival in New England t
 Join the Harvard Museums of Science & Culture on the longest day of the year—free of charge—to explore the galleries and new exhibitions at the Harvard Museum of Natural History, the Peabody Museum of Archaeology & Ethnology, the Collection of Historical Scientific Instruments, and the Harvard Museum of the Ancient Near East.  
 <a href="https://hmsc.harvard.edu/calendar_event/summer-solstice/" target="_blank">info link</a>
 
-### Best Day Brewing Hosts Bark + Brew Boston
+### Best Day Brewing Hosts Bark & Brew Boston
 
 **06/20 01:00PM - 06/20 04:00PM @ Cisco Brewers Seaport**  
 Enjoy Best Day Brewing's award-winning craft non-alcoholic beers!  
@@ -333,17 +253,17 @@ The Cambridge Arts River Festival will be held along the banks of the Charles Ri
 On Sat. + Sun. June 21 & 22 from 11am-6pm, over 100 small businesses are popping up at the Brighton Elks Lodge (326 Washington St.  
 <a href="https://www.facebook.com/events/9873565582709185/" target="_blank">info link</a>
 
-### Fenway Porchfest
-
-**06/21 12:30PM - 06/21 04:00PM @ All over the Fenway**  
-Join us on Saturday, June 21st for an outdoor music festival at various locations across the Fenway neighborhood!  
-<a href="https://www.fenwayporchfest.org" target="_blank">info link</a>
-
 ### Harvard Square Bookish Ball
 
 **06/21 11:00AM - 06/21 04:00PM @ Harvard Square**  
 UPDATE: Due to inclement weather forecasted for Saturday, Harvard Square Bookish Ball has been rescheduled for June 21st.  
 <a href="https://www.harvardsquare.com/the-return-of-harvard-squares-bookish-ball-a-celebration-of-books-bookstores-history-and-more/" target="_blank">info link</a>
+
+### Fenway Porchfest
+
+**06/21 12:30PM - 06/21 04:00PM @ All over the Fenway**  
+Join us on Saturday, June 21st for an outdoor music festival at various locations across the Fenway neighborhood!  
+<a href="https://www.fenwayporchfest.org" target="_blank">info link</a>
 
 ### Big Gay Dance Party
 
@@ -405,17 +325,17 @@ Arts Fest Everett is back for its 4th year!
 Come join us for a diverse romance bookshop pop-up and free public wine tasting at The Urban Grape, a Black-owned and woman-owned wine shop that highlights BIPOC and LGBTQ+ producers!  
 <a href="https://read-my-lips-boston.square.site/" target="_blank">info link</a>
 
-### Seaport Summer Market
-
-**06/21 11:00AM - 06/22 06:00PM @ Seaport Summer Market**  
-The Seaport Summer Market is back for the 2025 season and located on Seaport Boulevard every weekend May through June on Saturdays AND Sundays from 11am-7pm.  
-<a href="https://www.bostonseaport.xyz/venue/seaport-summer-market-2/" target="_blank">info link</a>
-
 ### Book Club Café
 
 **06/21 11:00AM - 06/21 12:15PM @ Honan-Allston Branch of the Boston Public Library**  
 Discover new books to add to your reading list at our Book Club Café!  
 <a href="https://bpl.bibliocommons.com/events/680790687374ee901ddc09fa" target="_blank">info link</a>
+
+### Seaport Summer Market
+
+**06/21 11:00AM - 06/22 06:00PM @ Seaport Summer Market**  
+The Seaport Summer Market is back for the 2025 season and located on Seaport Boulevard every weekend May through June on Saturdays AND Sundays from 11am-7pm.  
+<a href="https://www.bostonseaport.xyz/venue/seaport-summer-market-2/" target="_blank">info link</a>
 
 ### Boston Women’s Market at Time Out Market Fenway
 
@@ -534,17 +454,17 @@ Ula Cafe Turns 18 — Come Celebrate With Us!
 The weather is heating up and so are we!NEW!  
 <a href="https://" target="_blank">info link</a>
 
-### 2025 SoWa Open Market
-
-**06/22 11:00AM - 06/22 05:00PM @ SoWa Open Market**  
-Join us every weekend starting in May 4, 2025!  
-<a href="https://www.sowaboston.com/sowa-open-market/" target="_blank">info link</a>
-
 ### Boston Women’s Market at Downtown Crossing
 
 **06/22 11:00AM - 06/22 04:00PM @ Downtown Crossing**  
 Summer is in full swing, and so is our first Downtown Crossing market of the season!  
 <a href="https://www.bostonwomensmarket.com/events-calendar/boston-womens-market-at-downtown-crossing-june-market" target="_blank">info link</a>
+
+### 2025 SoWa Open Market
+
+**06/22 11:00AM - 06/22 05:00PM @ SoWa Open Market**  
+Join us every weekend starting in May 4, 2025!  
+<a href="https://www.sowaboston.com/sowa-open-market/" target="_blank">info link</a>
 
 ### Seaport Summer Market
 
@@ -595,6 +515,20 @@ The Roxbury International Film Festival is the largest festival in New England t
 <a href="https://www.roxfilmfest.com/2025festival" target="_blank">info link</a>
 
 # Monday, June 23, 2025
+
+### Fenway Park Summer Concert Series
+
+**06/20 08:00PM - 09/07 11:00PM @ Fenway Park**  
+The Fenway Concert Series is back for its 2025 season!  
+<a href="https://www.mlb.com/redsox/tickets/concerts" target="_blank">info link</a>
+
+### Roxbury International Film Festival
+
+**06/19 07:00PM - 06/27 10:00PM @ Boston**  
+The Roxbury International Film Festival is the largest festival in New England that celebrates people of color.  
+<a href="https://www.roxfilmfest.com/2025festival" target="_blank">info link</a>
+
+# Tuesday, June 24, 2025
 
 ### Fenway Park Summer Concert Series
 
