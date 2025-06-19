@@ -1,59 +1,3 @@
-# Wednesday, June 18, 2025
-
-### Echoes of Freedom - Juneteenth Concert
-
-**06/18 06:30PM - 06/18 08:30PM @ The Strand Theatre**  
-Join us for Echoes of Freedom, an evening of music, history, and celebration featuring the Howard University Gospel Choir, in honor of Juneteenth.  
-<a href="https://www.boston.gov/calendar/echoes-freedom" target="_blank">info link</a>
-
-### Watercolor Workshop at Lyrik
-
-**06/18 04:00PM - 06/18 07:00PM @ Lyrik Back Bay**  
-Join Boston-based painter Ashley Eisenman for a free watercolor workshop at Lyrik, every Wednesday from 4-7pm!  
-<a href="https://lyrikbackbay.com/happening/" target="_blank">info link</a>
-
-### Boston PRIDE-themed Yappier Hour at The Liberty
-
-**06/18 05:30PM - 06/18 08:00PM @ The Yard at The Liberty Hotel**  
-Calling all guests and Boston locals!We're excited to announce this year's PRIDE-themed #YappierHour!  
-<a href="https://www.eventbrite.com/e/boston-pride-themed-yappier-hour-at-the-liberty-tickets-1399626292919" target="_blank">info link</a>
-
-### Pride Fiber Arts Night
-
-**06/18 06:00PM - 06/18 09:00PM @ Lamplighter Brewing Co. - Broadway**  
-Join us and Boston Queer Fiber Arts on Wednesday, June 18th, in the Lamplighter Broadway taproom for our special Pride edition of Queer Fiber Arts Night.  
-<a href="https://www.eventbrite.com/e/pride-fiber-arts-night-tickets-1376806357879" target="_blank">info link</a>
-
-### Wednesday Creative Musings
-
-**06/18 03:30PM - 06/18 06:30PM @ Somerville Community Growing Center**  
-Come visit the Somerville Community Growing Center for some relatively quiet time during the weekly Red Fire Farm CSA distribution window.  
-<a href="https://www.thegrowingcenter.org/2025" target="_blank">info link</a>
-
-### Drag Bingo
-
-**06/18 08:00PM - 06/18 10:00PM @ Vera's**  
-On Wednesdays we play bingo! Join us at Vera's every Wednesday from 8-10pm for Drag Bingo!  
-<a href="https://www.instagram.com/veras_cardinal_lounge/" target="_blank">info link</a>
-
-### ¡Miércoles Maravilloso!: free in-person Spanish convo practice
-
-**06/18 05:00PM - 06/18 06:00PM @ Boston Area Spanish Exchange (BASE)**  
-¡Miércoles Maravilloso!Free open-level Spanish informal conversation workshops.  
-<a href="https://www.spanishclassesboston.com/events/miercolesmaravilloso" target="_blank">info link</a>
-
-### Jeopardy Bar League at Long Live Roxbury
-
-**06/18 07:00PM - 06/18 09:00PM @ Long Live Roxbury**  
-Teams play along and compete against each other using their smartphones through an interactive Jeopardy!  
-<a href="https://www.longlivebeerworks.com/boston-taproom" target="_blank">info link</a>
-
-### November Project: Stair Workout at Harvard Stadium
-
-**06/18 05:55AM - 06/18 07:00AM @ Harvard Stadium**  
-Located in lower Allston, Harvard Stadium is one of the favorite workout spots of the November Project™ members.  
-<a href="https://november-project.com/stadium/" target="_blank">info link</a>
-
 # Thursday, June 19, 2025
 
 ### Free Day at the Isabella Stewart Gardner Museum: Juneteenth
@@ -208,18 +152,18 @@ Operating in Downtown Crossing on Summer Street Plaza between Macy’s and Roche
 The Fed at The Langham, Boston presents Jazz Fridays with Speechless Music!  
 <a href="https://www.opentable.com/r/the-fed-at-the-langham-boston" target="_blank">info link</a>
 
+### Friday Night Trivia
+
+**06/20 07:00PM - 06/20 09:00PM @ Trident Booksellers and Cafe**  
+Join us for seven rounds of general knowledge trivia, every Friday at 7 pm!  
+<a href="https://tridentbookscafe.com/events" target="_blank">info link</a>
+
 ### KARAOKE THURSDAY-SATURDAY @SIDEBAR BOSTON
 
 **06/19 08:00PM - 06/21 01:55AM @ SIDEBAR BOSTON**  
 ⚠️‼️JOIN US FOR KARAOKE @SIDEBAR BOSTON THURSDAY- SATURDAY 8PM-2AM EVERY WEEK ‼️⚠️ 
 HERE FOR A GOOD TIME AND A LONG TIME ‼️  
 <a href="https://" target="_blank">info link</a>
-
-### Friday Night Trivia
-
-**06/20 07:00PM - 06/20 09:00PM @ Trident Booksellers and Cafe**  
-Join us for seven rounds of general knowledge trivia, every Friday at 7 pm!  
-<a href="https://tridentbookscafe.com/events" target="_blank">info link</a>
 
 ### Friends Fridays Summer Concert Series
 
@@ -253,17 +197,17 @@ The Cambridge Arts River Festival will be held along the banks of the Charles Ri
 On Sat. + Sun. June 21 & 22 from 11am-6pm, over 100 small businesses are popping up at the Brighton Elks Lodge (326 Washington St.  
 <a href="https://www.facebook.com/events/9873565582709185/" target="_blank">info link</a>
 
-### Harvard Square Bookish Ball
-
-**06/21 11:00AM - 06/21 04:00PM @ Harvard Square**  
-UPDATE: Due to inclement weather forecasted for Saturday, Harvard Square Bookish Ball has been rescheduled for June 21st.  
-<a href="https://www.harvardsquare.com/the-return-of-harvard-squares-bookish-ball-a-celebration-of-books-bookstores-history-and-more/" target="_blank">info link</a>
-
 ### Fenway Porchfest
 
 **06/21 12:30PM - 06/21 04:00PM @ All over the Fenway**  
 Join us on Saturday, June 21st for an outdoor music festival at various locations across the Fenway neighborhood!  
 <a href="https://www.fenwayporchfest.org" target="_blank">info link</a>
+
+### Harvard Square Bookish Ball
+
+**06/21 11:00AM - 06/21 04:00PM @ Harvard Square**  
+UPDATE: Due to inclement weather forecasted for Saturday, Harvard Square Bookish Ball has been rescheduled for June 21st.  
+<a href="https://www.harvardsquare.com/the-return-of-harvard-squares-bookish-ball-a-celebration-of-books-bookstores-history-and-more/" target="_blank">info link</a>
 
 ### Big Gay Dance Party
 
@@ -271,11 +215,11 @@ Join us on Saturday, June 21st for an outdoor music festival at various location
 Join us for Somerville’s Big Gay Dance Party – An Outdoor Celebration of LGBTQ+ Pride!  
 <a href="https://somervilleartscouncil.org/events/big-gay-dance-party-2/" target="_blank">info link</a>
 
-### Seaport Sweat 2025: Sweatapalooza
+### Juneteenth Celebration at Franklin Park
 
-**06/21 10:00AM - 06/21 01:00PM @ Seaport Common**  
-New for 2025 is Sweatapalooza, a fitness festival debuting on Saturday, June 21 from 10:00am to 1:00pm.  
-<a href="https://www.eventbrite.com/e/seaport-sweat-2025-sweatapalooza-tickets-1294884597689" target="_blank">info link</a>
+**06/21 11:00AM - 06/21 07:00PM @ Franklin Park**  
+Join us on Saturday, June 21, 2025 for a Juneteenth Celebration at Franklin Park!  
+<a href="https://www.boston.gov/calendar/juneteenth-celebration" target="_blank">info link</a>
 
 ### Field Day Tournament at The Lawn on D
 
@@ -283,11 +227,11 @@ New for 2025 is Sweatapalooza, a fitness festival debuting on Saturday, June 2
 Get ready for a day packed with not too serious competition, music, and delicious drinks at Sinless Spirits Field Day Tournament at The Lawn on D!  
 <a href="https://docs.google.com/forms/d/e/1FAIpQLSfahCFAwrb8Y9WT0qQC-UDBp78Bf-1ohYT9HWoSfgTtGpeWbA/viewform?pli=1" target="_blank">info link</a>
 
-### Juneteenth Celebration at Franklin Park
+### Seaport Sweat 2025: Sweatapalooza
 
-**06/21 11:00AM - 06/21 07:00PM @ Franklin Park**  
-Join us on Saturday, June 21, 2025 for a Juneteenth Celebration at Franklin Park!  
-<a href="https://www.boston.gov/calendar/juneteenth-celebration" target="_blank">info link</a>
+**06/21 10:00AM - 06/21 01:00PM @ Seaport Common**  
+New for 2025 is Sweatapalooza, a fitness festival debuting on Saturday, June 21 from 10:00am to 1:00pm.  
+<a href="https://www.eventbrite.com/e/seaport-sweat-2025-sweatapalooza-tickets-1294884597689" target="_blank">info link</a>
 
 ### Pride Patio Party at Lamplighter CX
 
@@ -297,7 +241,7 @@ Join us on Saturday, June 21st to celebrate Pride with drag performances, cold b
 
 ### Summer Solstice Celebration
 
-**06/21 10:00AM - 06/21 11:30AM @ Rose Kennedy Park Greenway near the Carolyn Lynch Gardens**  
+**06/21 10:00AM - 06/21 11:30AM @ Carolyn Lynch Gardens**  
 Summer Solstice CelebrationMovement + Connection | Community + LoveYoga with Amy Leydon & Joanna Benevides Join your Soma Community on Saturday, June 21st in the heart of the North End for a special outdoor yoga event to celebrate the Summer Solstice!  
 <a href="https://somayoga.union.site/performances/cupe1uki" target="_blank">info link</a>
 
@@ -325,17 +269,17 @@ Arts Fest Everett is back for its 4th year!
 Come join us for a diverse romance bookshop pop-up and free public wine tasting at The Urban Grape, a Black-owned and woman-owned wine shop that highlights BIPOC and LGBTQ+ producers!  
 <a href="https://read-my-lips-boston.square.site/" target="_blank">info link</a>
 
-### Book Club Café
-
-**06/21 11:00AM - 06/21 12:15PM @ Honan-Allston Branch of the Boston Public Library**  
-Discover new books to add to your reading list at our Book Club Café!  
-<a href="https://bpl.bibliocommons.com/events/680790687374ee901ddc09fa" target="_blank">info link</a>
-
 ### Seaport Summer Market
 
 **06/21 11:00AM - 06/22 06:00PM @ Seaport Summer Market**  
 The Seaport Summer Market is back for the 2025 season and located on Seaport Boulevard every weekend May through June on Saturdays AND Sundays from 11am-7pm.  
 <a href="https://www.bostonseaport.xyz/venue/seaport-summer-market-2/" target="_blank">info link</a>
+
+### Book Club Café
+
+**06/21 11:00AM - 06/21 12:15PM @ Honan-Allston Branch of the Boston Public Library**  
+Discover new books to add to your reading list at our Book Club Café!  
+<a href="https://bpl.bibliocommons.com/events/680790687374ee901ddc09fa" target="_blank">info link</a>
 
 ### Boston Women’s Market at Time Out Market Fenway
 
@@ -535,6 +479,26 @@ The Roxbury International Film Festival is the largest festival in New England t
 **06/20 08:00PM - 09/07 11:00PM @ Fenway Park**  
 The Fenway Concert Series is back for its 2025 season!  
 <a href="https://www.mlb.com/redsox/tickets/concerts" target="_blank">info link</a>
+
+### Roxbury International Film Festival
+
+**06/19 07:00PM - 06/27 10:00PM @ Boston**  
+The Roxbury International Film Festival is the largest festival in New England that celebrates people of color.  
+<a href="https://www.roxfilmfest.com/2025festival" target="_blank">info link</a>
+
+# Wednesday, June 25, 2025
+
+### Fenway Park Summer Concert Series
+
+**06/20 08:00PM - 09/07 11:00PM @ Fenway Park**  
+The Fenway Concert Series is back for its 2025 season!  
+<a href="https://www.mlb.com/redsox/tickets/concerts" target="_blank">info link</a>
+
+### Science on Screen at the Greenway
+
+**06/25 06:00PM - 08/13 09:00PM @ Wharf District Park**  
+Free outdoor 35mm screenings in partnership with the Rose Kennedy Greenway (Wharf District Park, between Milk St.  
+<a href="https://coolidge.org/programs/science-screen" target="_blank">info link</a>
 
 ### Roxbury International Film Festival
 
