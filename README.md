@@ -1,59 +1,3 @@
-# Tuesday, June 24, 2025
-
-### Frog Pond Spray Pool Opening 2025
-
-**06/24 11:00AM - 06/24 01:00PM @ Frog Pond Spray Pool**  
-Mayor Michelle Wu and The Skating Club of Boston are pleased to welcome children and their caregivers to kick off the 2025 summer wading season as the Boston Common Frog Pond spray pool reopens on Tuesday, June 24.  
-<a href="https://www.boston.gov/calendar/frog-pond-spray-pool-opening-2025" target="_blank">info link</a>
-
-### F1® THE MOVIE Advance Screening
-
-**06/24 07:00PM - 06/24 09:30PM @ AMC Boston Common**  
-Attend an advance screening of Warner Bros' F1® THE MOVIE on Tuesday, June 24th at 7 PM at AMC Boston Common!  
-<a href="http://wbtickets.com/sXoKE27916" target="_blank">info link</a>
-
-### FREE Tuesday Tunes Live Music at the Urban Park Roof Garden by Club Passim
-
-**06/24 05:00PM - 06/24 07:00PM @ Urban Park Roof Garden**  
-The Berklee Summer in the City Concert Series presents more than 400 free performances throughout Greater Boston from June through August.  
-<a href="https://www.passim.org/live-music/festivals_summer_series/kendall-square-series/" target="_blank">info link</a>
-
-### Music Bingo
-
-**06/24 06:00PM - 06/24 08:00PM @ CambridgeSide**  
-Get ready to tap your toes and test your musical knowledge with Music Bingo every Tuesday from 6pm to 8pm located in CanalSide Food + Drink.  
-<a href="https://www.cambridgeside.com/event/musical-bingo-every-tuesday/2145587507" target="_blank">info link</a>
-
-### Tuesdays with Roses at the Kelleher Rose Garden
-
-**06/24 05:30PM - 06/24 07:30PM @ Kelleher Rose Garden**  
-The Kelleher Rose Garden, located in Boston’s Back Bay Fens, will be near full bloom around Friday, June 6th.  
-<a href="https://www.emeraldnecklace.org/calendar/month/2023-06/" target="_blank">info link</a>
-
-### Summer Concerts at Atlantic Wharf
-
-**06/24 12:00PM - 06/26 07:00PM @ Atlantic Wharf**  
-Situated on the Boston Harborwalk, Atlantic Wharf is a perfect waterfront location for music, a walk, and fun gatherings.  
-<a href="https://college.berklee.edu/events/summer/atlantic-wharf" target="_blank">info link</a>
-
-### Living Root Dragon Boat Club - On The Water Training
-
-**06/24 06:00PM - 06/24 08:00PM @ Rivergreen Park**  
-Come try out dragon boating with Living Root Dragon Boat Club.  
-<a href="https://livingroot.org/" target="_blank">info link</a>
-
-### Summer Concerts at Lyrik Back Bay
-
-**06/24 06:00PM - 06/24 07:00PM @ Lyrik Back Bay**  
-Situated at the lively junction of Massachusetts Avenue and Boylston and Newbury Streets, Lyrik Back Bay is easy to find from any direction.  
-<a href="https://college.berklee.edu/events/summer/summer-concerts-at-lyrik-back-bay" target="_blank">info link</a>
-
-### Drop The Mic Karaoke
-
-**06/24 11:00PM - 06/25 02:00AM @ An Sibin**  
-Fun late night Karaoke, Hosted by local Comedian Scotty Lombardo.  
-<a href="https://" target="_blank">info link</a>
-
 # Wednesday, June 25, 2025
 
 ### Watercolor Workshop at Lyrik
@@ -68,23 +12,11 @@ Join Boston-based painter Ashley Eisenman for a free watercolor workshop at Lyri
 Unleash outdoor fun at Yappier Hour – Boston’s ultimate weekly gathering for hotel guests and local dog owners!  
 <a href="https://libertyhotel.com/liberty-affairs/yappier-hour-2024/" target="_blank">info link</a>
 
-### Summer Concerts at Atlantic Wharf
-
-**06/24 12:00PM - 06/26 07:00PM @ Atlantic Wharf**  
-Situated on the Boston Harborwalk, Atlantic Wharf is a perfect waterfront location for music, a walk, and fun gatherings.  
-<a href="https://college.berklee.edu/events/summer/atlantic-wharf" target="_blank">info link</a>
-
 ### Wednesday Creative Musings
 
 **06/25 03:30PM - 06/25 06:30PM @ Somerville Community Growing Center**  
 Come visit the Somerville Community Growing Center for some relatively quiet time during the weekly Red Fire Farm CSA distribution window.  
 <a href="https://www.thegrowingcenter.org/2025" target="_blank">info link</a>
-
-### Drop The Mic Karaoke
-
-**06/24 11:00PM - 06/25 02:00AM @ An Sibin**  
-Fun late night Karaoke, Hosted by local Comedian Scotty Lombardo.  
-<a href="https://" target="_blank">info link</a>
 
 ### Drag Bingo
 
@@ -92,17 +24,17 @@ Fun late night Karaoke, Hosted by local Comedian Scotty Lombardo.
 On Wednesdays we play bingo! Join us at Vera's every Wednesday from 8-10pm for Drag Bingo!  
 <a href="https://www.instagram.com/veras_cardinal_lounge/" target="_blank">info link</a>
 
-### Jeopardy Bar League at Long Live Roxbury
-
-**06/25 07:00PM - 06/25 09:00PM @ Long Live Roxbury**  
-Teams play along and compete against each other using their smartphones through an interactive Jeopardy!  
-<a href="https://www.longlivebeerworks.com/boston-taproom" target="_blank">info link</a>
-
 ### ¡Miércoles Maravilloso!: free in-person Spanish convo practice
 
 **06/25 05:00PM - 06/25 06:00PM @ Boston Area Spanish Exchange (BASE)**  
 ¡Miércoles Maravilloso!Free open-level Spanish informal conversation workshops.  
 <a href="https://www.spanishclassesboston.com/events/miercolesmaravilloso" target="_blank">info link</a>
+
+### Jeopardy Bar League at Long Live Roxbury
+
+**06/25 07:00PM - 06/25 09:00PM @ Long Live Roxbury**  
+Teams play along and compete against each other using their smartphones through an interactive Jeopardy!  
+<a href="https://www.longlivebeerworks.com/boston-taproom" target="_blank">info link</a>
 
 ### November Project: Stair Workout at Harvard Stadium
 
@@ -178,12 +110,6 @@ Join NOVA, the PBS science documentary series, at the GBH Studios at the Boston 
 More than 70 million adults in the U.S.—that’s 1 in 4 people—live with a disability; some since birth, some developed over time, and some lives changed unexpectedly.  
 <a href="https://www.wgbh.org/events/disability-reframed-a-growing-community" target="_blank">info link</a>
 
-### Summer Concerts at Atlantic Wharf
-
-**06/24 12:00PM - 06/26 07:00PM @ Atlantic Wharf**  
-Situated on the Boston Harborwalk, Atlantic Wharf is a perfect waterfront location for music, a walk, and fun gatherings.  
-<a href="https://college.berklee.edu/events/summer/atlantic-wharf" target="_blank">info link</a>
-
 ### Free Yoga with Plants!
 
 **06/26 06:00PM - 06/26 07:00PM @ Sprout by Cityscapes**  
@@ -235,6 +161,12 @@ Free outdoor 35mm screenings in partnership with the Rose Kennedy Greenway 
 
 # Friday, June 27, 2025
 
+### CX Summer Nights 2025: FREE Outdoor Concerts at Cambridge Crossing
+
+**06/26 05:30PM - 08/21 08:30PM @ The Common at CX**  
+We're excited to bring back CX Summer Nights, free outdoor concerts at Cambridge Crossing in June, July, and August.  
+<a href="https://www.eventbrite.com/cc/cx-summer-nights-2025-4341263" target="_blank">info link</a>
+
 ### Donna Summer Disco Party 2025
 
 **06/27 05:00PM - 06/27 09:00PM @ Boston City Hall Plaza**  
@@ -247,29 +179,23 @@ Mayor Michelle Wu and the Office of Tourism, Sports, and Entertainment welcome y
 Join thousands of Cambridge residents and visitors who will gather on Massachusetts Avenue in front of Cambridge City Hall (795 Massachusetts Avenue) for the City’s Dance Party on Friday,  June 27.  
 <a href="https://www.cambridgema.gov/news/2025/04/cambridgemass250campaignkicksoffwithseveraleventsinapril" target="_blank">info link</a>
 
-### CX Summer Nights 2025: FREE Outdoor Concerts at Cambridge Crossing
-
-**06/26 05:30PM - 08/21 08:30PM @ The Common at CX**  
-We're excited to bring back CX Summer Nights, free outdoor concerts at Cambridge Crossing in June, July, and August.  
-<a href="https://www.eventbrite.com/cc/cx-summer-nights-2025-4341263" target="_blank">info link</a>
-
 ### Official Donna Summer Disco After Party
 
 **06/27 09:00PM - 06/27 11:59PM @ High Street Place Food Hall**  
 🎶✨Are you ready for some Hot Stuff? Join us for the official after party of the Donna Summer Disco at City Hall Plaza!  
 <a href="https://www.highstreetplace.com/event/official-donna-summer-disco-after-party/" target="_blank">info link</a>
 
-### Pride Trivia at Boston Public Market
-
-**06/27 05:30PM - 06/27 07:30PM @ Boston Public Market**  
-Celebrate Pride Month with the BPM community at our Pride trivia night 🌈❤️ Head to the Hub on Friday, June 27 for a chance to win!  
-<a href="https://www.eventbrite.com/e/pride-trivia-at-boston-public-market-tickets-1368828636299?utm-campaign=social&utm-content=attendeeshare&utm-medium=discovery&utm-term=listing&utm-source=cp&aff=ebdsshcopyurl" target="_blank">info link</a>
-
 ### Pan in the Park at Magazine Beach - Free Event
 
 **06/27 06:00PM - 06/27 08:00PM @ Magazine Beach Park**  
 Celebrate National Caribbean American Month with Pan in the Park!  
 <a href="https://www.eventbrite.com/e/pan-in-the-park-at-magazine-beach-free-event-tickets-1400393096449?aff=oddtdtcreator" target="_blank">info link</a>
+
+### Pride Trivia at Boston Public Market
+
+**06/27 05:30PM - 06/27 07:30PM @ Boston Public Market**  
+Celebrate Pride Month with the BPM community at our Pride trivia night 🌈❤️ Head to the Hub on Friday, June 27 for a chance to win!  
+<a href="https://www.eventbrite.com/e/pride-trivia-at-boston-public-market-tickets-1368828636299?utm-campaign=social&utm-content=attendeeshare&utm-medium=discovery&utm-term=listing&utm-source=cp&aff=ebdsshcopyurl" target="_blank">info link</a>
 
 ### Downtown Boston Arts Market
 
@@ -283,18 +209,18 @@ Operating in Downtown Crossing on Summer Street Plaza between Macy’s and Roche
 The Fed at The Langham, Boston presents Jazz Fridays with Speechless Music!  
 <a href="https://www.opentable.com/r/the-fed-at-the-langham-boston" target="_blank">info link</a>
 
-### Friday Night Trivia
-
-**06/27 07:00PM - 06/27 09:00PM @ Trident Booksellers and Cafe**  
-Join us for seven rounds of general knowledge trivia, every Friday at 7 pm!  
-<a href="https://tridentbookscafe.com/events" target="_blank">info link</a>
-
 ### KARAOKE THURSDAY-SATURDAY @SIDEBAR BOSTON
 
 **06/26 08:00PM - 06/28 01:55AM @ SIDEBAR BOSTON**  
 ⚠️‼️JOIN US FOR KARAOKE @SIDEBAR BOSTON THURSDAY- SATURDAY 8PM-2AM EVERY WEEK ‼️⚠️ 
 HERE FOR A GOOD TIME AND A LONG TIME ‼️  
 <a href="https://" target="_blank">info link</a>
+
+### Friday Night Trivia
+
+**06/27 07:00PM - 06/27 09:00PM @ Trident Booksellers and Cafe**  
+Join us for seven rounds of general knowledge trivia, every Friday at 7 pm!  
+<a href="https://tridentbookscafe.com/events" target="_blank">info link</a>
 
 ### Summer Concerts at Magazine Beach Park
 
@@ -346,17 +272,17 @@ Shop: Neighborhood Storefronts Project Small Business Marketplace to be held on 
 Get ready to relive prom the way it should have been—queer, fabulous, and full of sparkle!  
 <a href="https://www.tickettailor.com/events/remnantbrewing/1725963" target="_blank">info link</a>
 
-### Seaport Summer Market
-
-**06/28 11:00AM - 06/29 06:00PM @ Seaport Summer Market**  
-The Seaport Summer Market is back for the 2025 season and located on Seaport Boulevard every weekend May through June on Saturdays AND Sundays from 11am-7pm.  
-<a href="https://www.bostonseaport.xyz/venue/seaport-summer-market-2/" target="_blank">info link</a>
-
 ### Boston's Big Queer Picnic
 
 **06/28 01:00PM - 06/28 04:00PM @ Boston Common (near Parkman Bandstand)**  
 Join us for the 3rd Annual Boston’s Big Queer Picnic at the Boston Common near the Parkman Bandstand!  
 <a href="https://" target="_blank">info link</a>
+
+### Seaport Summer Market
+
+**06/28 11:00AM - 06/29 06:00PM @ Seaport Summer Market**  
+The Seaport Summer Market is back for the 2025 season and located on Seaport Boulevard every weekend May through June on Saturdays AND Sundays from 11am-7pm.  
+<a href="https://www.bostonseaport.xyz/venue/seaport-summer-market-2/" target="_blank">info link</a>
 
 ### All She Wrote 2025 Pride Book Fair
 
@@ -413,17 +339,17 @@ At New England Open Markets, our mission is to spotlight and uplift the vibrant 
 HERE FOR A GOOD TIME AND A LONG TIME ‼️  
 <a href="https://" target="_blank">info link</a>
 
-### Seaport Smalls
-
-**06/28 10:00AM - 06/28 11:00AM @ The Paseo at 111 Harbor Way**  
-Back by popular demand, Boston Seaport's children's programming series, Seaport Smalls: Free Fun for your Tiny Crew.  
-<a href="https://www.eventbrite.com/e/seaport-smalls-tickets-1308146885549" target="_blank">info link</a>
-
 ### Traditional Irish Music Sessions at The Druid
 
 **06/28 04:00PM - 06/28 11:00PM @ The Druid**  
 Traditional Irish Sessions are a long-standing tradition and well-known event at the Druid.  
 <a href="https://www.druidpub.com/music" target="_blank">info link</a>
+
+### Seaport Smalls
+
+**06/28 10:00AM - 06/28 11:00AM @ The Paseo at 111 Harbor Way**  
+Back by popular demand, Boston Seaport's children's programming series, Seaport Smalls: Free Fun for your Tiny Crew.  
+<a href="https://www.eventbrite.com/e/seaport-smalls-tickets-1308146885549" target="_blank">info link</a>
 
 ### Summer Concerts at Magazine Beach Park
 
@@ -457,17 +383,17 @@ Free outdoor 35mm screenings in partnership with the Rose Kennedy Greenway 
 We're excited to bring back CX Summer Nights, free outdoor concerts at Cambridge Crossing in June, July, and August.  
 <a href="https://www.eventbrite.com/cc/cx-summer-nights-2025-4341263" target="_blank">info link</a>
 
-### Boston First Annual Thai Taste
-
-**06/29 10:00AM - 06/29 07:00PM @ Boston Comon**  
-Join us for an unforgettable day celebrating the rich flavors and vibrant culture of Thailand at Boston’s First Annual Thai Taste!  
-<a href="https://www.facebook.com/profile.php?id=61575596824438" target="_blank">info link</a>
-
 ### Small Business Marketplace - Free Event (6/28-29)
 
 **06/28 11:00AM - 06/29 05:00PM @ Inman Square**  
 Shop: Neighborhood Storefronts Project Small Business Marketplace to be held on June 28 and 29, 2025.  
 <a href="https://www.eventbrite.com/e/small-business-marketplace-free-event-628-29-tickets-1395361587069?aff=oddtdtcreator" target="_blank">info link</a>
+
+### Boston First Annual Thai Taste
+
+**06/29 10:00AM - 06/29 07:00PM @ Boston Comon**  
+Join us for an unforgettable day celebrating the rich flavors and vibrant culture of Thailand at Boston’s First Annual Thai Taste!  
+<a href="https://www.facebook.com/profile.php?id=61575596824438" target="_blank">info link</a>
 
 ### Be-In Joy Boston
 
@@ -608,4 +534,42 @@ Patriot Place invites you to Summer Flicks – a free outdoor movie series.
 **06/30 07:30PM - 06/30 09:30PM @ Time Out**  
 Join us for free Movie Mondays on the lawn at Time Out Market every Monday at 8 PM through !  
 <a href="https://www.eventbrite.com/o/time-out-market-boston-26571399851" target="_blank">info link</a>
+
+# Tuesday, July 01, 2025
+
+### CX Summer Nights 2025: FREE Outdoor Concerts at Cambridge Crossing
+
+**06/26 05:30PM - 08/21 08:30PM @ The Common at CX**  
+We're excited to bring back CX Summer Nights, free outdoor concerts at Cambridge Crossing in June, July, and August.  
+<a href="https://www.eventbrite.com/cc/cx-summer-nights-2025-4341263" target="_blank">info link</a>
+
+### Summer Concerts at Magazine Beach Park
+
+**06/27 06:00PM - 08/29 07:00PM @ Magazine Beach Park**  
+Located along the Charles River in Cambridge, Magazine Beach Park has long been a haven for city residents seeking the outdoors close to home.  
+<a href="https://college.berklee.edu/events/summer/summer-concerts-at-magazine-beach-park-nature-center" target="_blank">info link</a>
+
+### CX Summer Nights 2025: FREE Outdoor Concerts at Cambridge Crossing
+
+**06/26 05:30PM - 08/21 08:30PM @ The Common at CX**  
+We're excited to bring back CX Summer Nights, free outdoor concerts at Cambridge Crossing in June, July, and August.  
+<a href="https://www.eventbrite.com/cc/cx-summer-nights-2025-4341263" target="_blank">info link</a>
+
+### FREE Movie Nights at the Urban Park Roof Garden
+
+**06/28 06:00PM - 09/25 09:00PM @ Urban Park Roof Garden**  
+Bring your blanket and favorite movie snacks and join us for FREE movie screenings at Urban Park roof garden.  
+<a href="https://www.kendallcenter.com/movie-nights-urban-park/" target="_blank">info link</a>
+
+### Science on Screen at the Greenway
+
+**06/25 06:00PM - 08/13 09:00PM @ Wharf District Park**  
+Free outdoor 35mm screenings in partnership with the Rose Kennedy Greenway (Wharf District Park, between Milk St.  
+<a href="https://coolidge.org/programs/science-screen" target="_blank">info link</a>
+
+### Summer Flicks at Patriot Place
+
+**06/29 07:00PM - 08/06 10:00PM @ Patriots ProShop**  
+Patriot Place invites you to Summer Flicks – a free outdoor movie series.  
+<a href="https://www.patriot-place.com/summerflicks/" target="_blank">info link</a>
 
