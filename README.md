@@ -1,506 +1,410 @@
-# Saturday, July 19, 2025
+# Sunday, August 03, 2025
 
-### Cambridge PorchFest
+### Dine Out Boston Summer 2025
 
-**07/19 12:00PM - 07/20 06:00PM @ Dana Park & Across Cambridgeport**  
-Cambridgeport will be the pilot site for the first-ever Cambridge PorchFest on Saturday, July 19 from 12-6pm.  
-<a href="https://www.cambridgeport.org/porchfest" target="_blank">info link</a>
+**08/03 12:00PM - 08/16 09:00PM @ Various Restaurants**  
+Dine Out Boston is brought to you by Meet Boston, providing locals and visitors alike the opportunity to try many restaurants in the area at special prices.  
+<a href="https://www.meetboston.com/dine-out-boston/" target="_blank">info link</a>
 
-### Festival Betances: Our Music, Our History, Our Community
+### BIG BELLY FOOD FEST - Celebrating the unsung heroes of the Boston food scene!
 
-**07/19 01:00PM - 07/19 09:00PM @ 100 W Dedham St**  
-¡Wepa! Ready to dance salsa like never before?  
-<a href="https://ibaboston.org/events/festival-betances" target="_blank">info link</a>
-
-### Somerville ArtBeat 2025 Festival
-
-**07/19 12:00PM - 07/19 09:00PM @ Davis Square**  
-Somerville ArtBeat 2025 FestivalGet ready for ArtBeat 2025one of the largest festivals of the season!  
-<a href="https://somervilleartscouncil.org/events/artbeat-freeze/" target="_blank">info link</a>
-
-### Huge Outdoor Vintage Clothing Thrift Festival
-
-**07/19 01:00PM - 07/19 06:00PM @ The Yard**  
-BOSTON, we are hosting one of the BIGGEST Vintage Markets in Mass EVER!  
-<a href="https://instagram.com/select.markets" target="_blank">info link</a>
-
-### The Dudley Jazz Festival
-
-**07/19 12:00PM - 07/19 06:00PM @ The Mary Hannon Playground**  
-This is a jazz festival. It features four excellent bands led by alto saxophonist Kurtis Rivers, guitarist Fred Woodard, tenor saxophonist and percussionist Temidayo Balogun and vocalist Donna McElroy.  
-<a href="https://creativeculturalarts.org" target="_blank">info link</a>
-
-### FIGMENT Boston (in Somerville)
-
-**07/19 11:00AM - 07/19 06:00PM @ Sylvester Baxter Riverfront Park**  
-FIGMENT is an explosion of creative energy.  
-<a href="https://www.figmentproject.org/boston_2025" target="_blank">info link</a>
-
-### Watershed Block Party at ICA Watershed
-
-**07/19 12:00PM - 07/19 04:00PM @ ICA Watershed**  
-Come join the party! Fun for all, the Watershed Block Party, a free event at the ICA’s Watershed featuring music, art, games and more!  
-<a href="https://www.icaboston.org/events/watershed-block-party" target="_blank">info link</a>
-
-### Outdoor Movie Nights at Aeronaut
-
-**07/19 09:00PM - 07/19 11:00PM @ Aeronaut Brewing Company**  
-Join us on Saturday nights over the summer for outdoor movie nights on the patio featuring some of our favorites!  
-<a href="https://www.eventbrite.com/cc/outdoor-movie-nights-at-aeronaut-4404533" target="_blank">info link</a>
-
-### Rick & Morty Drag Brunch & Bingo
-
-**07/19 01:00PM - 07/19 02:30PM @ Time Out Market Boston**  
-Wubba Lubba Werk It!You’re hereby summoned… to slay across the multiverse.  
-<a href="https://www.eventbrite.com/e/rick-morty-drag-brunch-bingo-tickets-1419240308969" target="_blank">info link</a>
-
-### Gifford Cat Shelter Ice Cream Social
-
-**07/19 12:00PM - 07/19 04:00PM @ Gifford Cat Shelter**  
-You are invited to cool down with a delicious ice cream and toppings bar, enjoy lawn games and outdoor fun, and spend time in our free-roam cat rooms with our adorable feline residents.  
-<a href="https://donate.giffordcatshelter.org/Ice-Cream-Social" target="_blank">info link</a>
-
-### fruitstand presents: LGMBTA+, a queer pop dance party
-
-**07/19 10:00PM - 07/20 02:00AM @ 52 Church**  
-🚨 due to expected ass shaking 🚨 at 52 Church, the Red Line will be popping off 💅 at Harvard on Saturday, July 19th 10 PM–2 AM.  
-<a href="https://link.fruitstand.gay/lgmbta?utm_source=thebostoncalendar" target="_blank">info link</a>
-
-### Disney Trivia Night
-
-**07/19 07:00PM - 07/19 09:00PM @ Trident Booksellers & Cafe**  
-Be our guest and put your knowledge to the test at our Disney Trivia Night!  
-<a href="https://disney-trivia-u2qkh.tripleseattickets.com/registration/select" target="_blank">info link</a>
-
-### The West End Museum Ice Cream Social
-
-**07/19 01:00PM - 07/19 03:00PM @ The West End Museum**  
-Come celebrate summer in the West End! Meet your friends and neighbors and enjoy ice cream, board games, and good conversation in and around the museum.  
-<a href="https://www.eventbrite.com/e/the-west-end-museum-ice-cream-social-tickets-1417512621409?aff=bostoncalendar" target="_blank">info link</a>
-
-### Daiquiri Day Patio Party
-
-**07/19 04:00PM - 07/19 09:00PM @ High Street Place Food Hall**  
-What’s better than a patio daiquiri from Daiquiris & Daisies on Daiquiri Day?  
-<a href="https://www.highstreetplace.com/event/daiquiri-day-patio-party/" target="_blank">info link</a>
-
-### July Queer Dance Workshop with Maggie Cee & Holly Stone
-
-**07/19 02:00PM - 07/19 04:00PM @ near Egleston Square**  
-Queer Dance Workshops are a chance for queer folks of all identities and experiences to connect through dance.  
-<a href="https://jotroll.wordpress.com/queer-dance-workshops/" target="_blank">info link</a>
-
-### July Jubilation Sidewalk Sale
-
-**07/19 09:30AM - 07/19 04:30PM @ Wellesley Square**  
-A Wellesley Square Summertime tradition: scores of shops with sidewalk sales, plus live music, entertainment and more.  
-<a href="https://shopwellesleysquare.com/july-jubilation-sidewalk-sale-2025/" target="_blank">info link</a>
-
-### Lemonade Noise
-
-**07/19 04:00PM - 07/19 08:00PM @ The Record Co**  
-When life gives you lemons, make Lemonade… Lemonade Noise!  
-<a href="https://linktr.ee/numbsummer?utm_source=linktree_admin_share" target="_blank">info link</a>
-
-### Boston Unity Cup
-
-**07/19 08:00AM - 07/19 03:00PM @ Carter Fields**  
-The Boston Unity Cup is a city-wide adult soccer tournament celebrating Boston’s diverse community around a shared passion for sport.  
-<a href="https://www.soccerunityproject.org/boston-unity-cup" target="_blank">info link</a>
-
-### Beach Yoga on Revere Beach
-
-**07/19 09:00AM - 07/19 10:00AM @ Revere Beach across from the State police Barracks at the Pavillion!**  
-The moment you’ve all been waiting for…It’s time to kick off YEAR 5 of NamaStay Sober Beach Yoga!  
-<a href="https://namastaysober.org/donate/" target="_blank">info link</a>
-
-### Seaport Fish & Farm Market at Boston Fish Pier
-
-**07/19 09:30AM - 07/19 01:00PM @ Boston Fish Pier**  
-After a successful inaugural season in 2024, the market will return to the historic Boston Fish Pier starting June 7, 2025, with even more vendors and expanded programming.  
-<a href="https://www.massfarmersmarkets.org/fishandfarmmarket" target="_blank">info link</a>
-
-### Greenway Artisan Market
-
-**07/19 11:00AM - 07/20 05:00PM @ Rose Kennedy Greenway**  
-A vibrant open-air market featuring talented area artists, makers, stylists and independent designers on the Boston Waterfront.  
-<a href="https://www.greenwayartisanmarket.com/" target="_blank">info link</a>
-
-### 2025 Boston Open Market
-
-**07/19 12:00PM - 07/19 05:00PM @ The Boston Open Market**  
-At New England Open Markets, our mission is to spotlight and uplift the vibrant tapestry of New England's local artisans and small businesses.  
-<a href="https://www.newenglandopenmarkets.com/" target="_blank">info link</a>
-
-### 21st Annual Union Square Farmers Market
-
-**07/19 09:00AM - 07/19 01:00PM @ Union Square Plaza**  
-Join Union Square Main Streets and 60+ of your favorite local food producers for the 21st Annual Union Square Farmers Market!  
-<a href="https://www.unionsquaremain.org/2025-season" target="_blank">info link</a>
-
-### Unlimited Brunch buffet
-
-**07/19 10:00AM - 07/20 03:30PM @ Batifol Cambridge**  
-Bonjour, brunch lovers! Join us every Saturday & Sunday, for a French-inspired feast that’s anything but ordinary.  
-<a href="https://www.batifolcambridge.com/brunch-buffet" target="_blank">info link</a>
-
-### Traditional Irish Music Sessions at The Druid
-
-**07/19 04:00PM - 07/19 11:00PM @ The Druid**  
-Traditional Irish Sessions are a long-standing tradition and well-known event at the Druid.  
-<a href="https://www.druidpub.com/music" target="_blank">info link</a>
-
-### Seaport Smalls
-
-**07/19 10:00AM - 07/19 11:00AM @ The Paseo at 111 Harbor Way**  
-Back by popular demand, Boston Seaport's children's programming series, Seaport Smalls: Free Fun for your Tiny Crew.  
-<a href="https://www.eventbrite.com/e/seaport-smalls-tickets-1308146885549" target="_blank">info link</a>
-
-### $10 Commuter Rail Weekends and Holidays
-
-**07/19 05:00AM - 07/20 11:59PM @ Boston**  
-Enjoy unlimited travel on the Commuter Rail for just $10 every weekend.  
-<a href="https://massbytrain.com/offers/" target="_blank">info link</a>
-
-### Somerville ArtBeat 2025 Festival
-
-**07/19 12:00PM - 07/19 09:00PM @ Davis Square**  
-Somerville ArtBeat 2025 FestivalGet ready for ArtBeat 2025one of the largest festivals of the season!  
-<a href="https://somervilleartscouncil.org/events/artbeat-freeze/" target="_blank">info link</a>
-
-### Festival Betances: Our Music, Our History, Our Community
-
-**07/19 01:00PM - 07/19 09:00PM @ 100 W Dedham St**  
-¡Wepa! Ready to dance salsa like never before?  
-<a href="https://ibaboston.org/events/festival-betances" target="_blank">info link</a>
-
-### Huge Outdoor Vintage Clothing Thrift Festival
-
-**07/19 01:00PM - 07/19 06:00PM @ The Yard**  
-BOSTON, we are hosting one of the BIGGEST Vintage Markets in Mass EVER!  
-<a href="https://instagram.com/select.markets" target="_blank">info link</a>
-
-### The Dudley Jazz Festival
-
-**07/19 12:00PM - 07/19 06:00PM @ The Mary Hannon Playground**  
-This is a jazz festival. It features four excellent bands led by alto saxophonist Kurtis Rivers, guitarist Fred Woodard, tenor saxophonist and percussionist Temidayo Balogun and vocalist Donna McElroy.  
-<a href="https://creativeculturalarts.org" target="_blank">info link</a>
-
-### Watershed Block Party at ICA Watershed
-
-**07/19 12:00PM - 07/19 04:00PM @ ICA Watershed**  
-Come join the party! Fun for all, the Watershed Block Party, a free event at the ICA’s Watershed featuring music, art, games and more!  
-<a href="https://www.icaboston.org/events/watershed-block-party" target="_blank">info link</a>
-
-### FIGMENT Boston (in Somerville)
-
-**07/19 11:00AM - 07/19 06:00PM @ Sylvester Baxter Riverfront Park**  
-FIGMENT is an explosion of creative energy.  
-<a href="https://www.figmentproject.org/boston_2025" target="_blank">info link</a>
-
-### Outdoor Movie Nights at Aeronaut
-
-**07/19 09:00PM - 07/19 11:00PM @ Aeronaut Brewing Company**  
-Join us on Saturday nights over the summer for outdoor movie nights on the patio featuring some of our favorites!  
-<a href="https://www.eventbrite.com/cc/outdoor-movie-nights-at-aeronaut-4404533" target="_blank">info link</a>
-
-### Rick & Morty Drag Brunch & Bingo
-
-**07/19 01:00PM - 07/19 02:30PM @ Time Out Market Boston**  
-Wubba Lubba Werk It!You’re hereby summoned… to slay across the multiverse.  
-<a href="https://www.eventbrite.com/e/rick-morty-drag-brunch-bingo-tickets-1419240308969" target="_blank">info link</a>
-
-### Daiquiri Day Patio Party
-
-**07/19 04:00PM - 07/19 09:00PM @ High Street Place Food Hall**  
-What’s better than a patio daiquiri from Daiquiris & Daisies on Daiquiri Day?  
-<a href="https://www.highstreetplace.com/event/daiquiri-day-patio-party/" target="_blank">info link</a>
-
-### July Queer Dance Workshop with Maggie Cee & Holly Stone
-
-**07/19 02:00PM - 07/19 04:00PM @ near Egleston Square**  
-Queer Dance Workshops are a chance for queer folks of all identities and experiences to connect through dance.  
-<a href="https://jotroll.wordpress.com/queer-dance-workshops/" target="_blank">info link</a>
-
-### July Jubilation Sidewalk Sale
-
-**07/19 09:30AM - 07/19 04:30PM @ Wellesley Square**  
-A Wellesley Square Summertime tradition: scores of shops with sidewalk sales, plus live music, entertainment and more.  
-<a href="https://shopwellesleysquare.com/july-jubilation-sidewalk-sale-2025/" target="_blank">info link</a>
-
-### Boston Unity Cup
-
-**07/19 08:00AM - 07/19 03:00PM @ Carter Fields**  
-The Boston Unity Cup is a city-wide adult soccer tournament celebrating Boston’s diverse community around a shared passion for sport.  
-<a href="https://www.soccerunityproject.org/boston-unity-cup" target="_blank">info link</a>
-
-### Lemonade Noise
-
-**07/19 04:00PM - 07/19 08:00PM @ The Record Co**  
-When life gives you lemons, make Lemonade… Lemonade Noise!  
-<a href="https://linktr.ee/numbsummer?utm_source=linktree_admin_share" target="_blank">info link</a>
-
-### Free History Tours of Quincy Market
-
-**07/19 11:00AM - 07/19 12:00PM @ Meet in front of Starbucks**  
-Come join us for an hour walk through two centuries of Boston while we trace the original shoreline and find out what happened after the American Revolution.  
-<a href="https://faneuilhallmarketplace.com/do/free-history-tours-of-quincy-market" target="_blank">info link</a>
-
-### Beach Yoga on Revere Beach
-
-**07/19 09:00AM - 07/19 10:00AM @ Revere Beach across from the State police Barracks at the Pavillion!**  
-The moment you’ve all been waiting for…It’s time to kick off YEAR 5 of NamaStay Sober Beach Yoga!  
-<a href="https://namastaysober.org/donate/" target="_blank">info link</a>
-
-### Free Tours of Fort Independence
-
-**07/19 12:00PM - 07/20 03:00PM @ Castle Island state park**  
-In June, July, and August 2025, tours will be run between 12:00 and 3:00 on Saturdays and Sundays starting Memorial Day weekend.  
-<a href="https://fortindependence.org/" target="_blank">info link</a>
-
-### Greenway Artisan Market
-
-**07/19 11:00AM - 07/20 05:00PM @ Rose Kennedy Greenway**  
-A vibrant open-air market featuring talented area artists, makers, stylists and independent designers on the Boston Waterfront.  
-<a href="https://www.greenwayartisanmarket.com/" target="_blank">info link</a>
-
-### 2025 Boston Open Market
-
-**07/19 12:00PM - 07/19 05:00PM @ The Boston Open Market**  
-At New England Open Markets, our mission is to spotlight and uplift the vibrant tapestry of New England's local artisans and small businesses.  
-<a href="https://www.newenglandopenmarkets.com/" target="_blank">info link</a>
-
-### Traditional Irish Music Sessions at The Druid
-
-**07/19 04:00PM - 07/19 11:00PM @ The Druid**  
-Traditional Irish Sessions are a long-standing tradition and well-known event at the Druid.  
-<a href="https://www.druidpub.com/music" target="_blank">info link</a>
-
-### Seaport Smalls
-
-**07/19 10:00AM - 07/19 11:00AM @ The Paseo at 111 Harbor Way**  
-Back by popular demand, Boston Seaport's children's programming series, Seaport Smalls: Free Fun for your Tiny Crew.  
-<a href="https://www.eventbrite.com/e/seaport-smalls-tickets-1308146885549" target="_blank">info link</a>
-
-### Festival Betances: Our Music, Our History, Our Community
-
-**07/19 01:00PM - 07/19 09:00PM @ 100 W Dedham St**  
-¡Wepa! Ready to dance salsa like never before?  
-<a href="https://ibaboston.org/events/festival-betances" target="_blank">info link</a>
-
-# Sunday, July 20, 2025
-
-### Cambridge PorchFest
-
-**07/19 12:00PM - 07/20 06:00PM @ Dana Park & Across Cambridgeport**  
-Cambridgeport will be the pilot site for the first-ever Cambridge PorchFest on Saturday, July 19 from 12-6pm.  
-<a href="https://www.cambridgeport.org/porchfest" target="_blank">info link</a>
-
-### Boston's Cultural District Festival: One Boston, Many Stories
-
-**07/20 12:00PM - 07/20 05:00PM @ City Hall Plaza**  
-Welcome to Boston’s Cultural District’s One Boston, Many Stories Festival!  
-<a href="https://www.eventbrite.com/e/bostons-cultural-districts-one-boston-many-stories-festival-tickets-1412377472039" target="_blank">info link</a>
-
-### Adult Night at Science Park
-
-**07/20 06:00PM - 07/20 10:00PM @ Museum of Science**  
-Kids love the Museum of Science, but we’re everyone’s museum.  
-<a href="https://www.mos.org/events/adult-night-science-park" target="_blank">info link</a>
-
-### Black Owned Bos. Market
-
-**07/20 12:00PM - 07/20 06:00PM @ 111 Harbor Way**  
-From gifts and apparel to packaged foods and beauty & skincare products, the Seaport x Black Owned Bos.  
-<a href="https://www.bostonseaport.xyz/event/black-owned-bos-market-2025-5-18" target="_blank">info link</a>
-
-### Wicked Local Wares Pop Up Market
-
-**07/20 12:00PM - 07/20 05:00PM @ Time Out Market Boston**  
-Sip, eat, and shop from a variety of local artisans and vendors at the historic landmark center.  
-<a href="https://www.eventbrite.com/e/wicked-local-wares-pop-up-market-tickets-1348774453699" target="_blank">info link</a>
-
-### Sunday Morning Yoga with Live Piano @ Museum Of Modern Renaissance!
-
-**07/20 11:00AM - 07/20 12:30PM @ Museum of Modern Renaissance**  
-Welcome to a special Sunday Morning Yoga with live piano at the Museum of Modern Renaissance!  
-<a href="https://www.eventbrite.com/e/sunday-morning-yoga-with-live-piano-museum-of-modern-renaissance-tickets-1465740883439" target="_blank">info link</a>
-
-### fruitstand presents: LGMBTA+, a queer pop dance party
-
-**07/19 10:00PM - 07/20 02:00AM @ 52 Church**  
-🚨 due to expected ass shaking 🚨 at 52 Church, the Red Line will be popping off 💅 at Harvard on Saturday, July 19th 10 PM–2 AM.  
-<a href="https://link.fruitstand.gay/lgmbta?utm_source=thebostoncalendar" target="_blank">info link</a>
-
-### Book Swap at PSB: Boston Edition
-
-**07/20 02:00PM - 07/20 03:00PM @ Porter Square Books: Boston Edition**  
-Do you have a bunch of books hanging out that you know you're not going to read again?  
-<a href="https://www.portersquarebooks.com/event/2025-07-20/book-swap-psb-boston-edition" target="_blank">info link</a>
-
-### 10th Anniversary Fest!
-
-**07/20 12:00PM - 07/20 05:00PM @ Lord Hobo Brewing Company**  
-Lord Hobo’s 10th Anniversary Festival – 10 Years On Tap!  
+**08/03 04:00PM - 08/03 08:00PM @ Arts At The Armory**  
+BIG BELLY FOOD FEST is bringing food lovers, rising food talents & underrated cuisines all together in one unforgettable day of discovery, connection, and full bellies.  
 <a href="https://" target="_blank">info link</a>
 
-### Thrift (S)hop
+### Open Newbury Street 2025
 
-**07/20 01:00PM - 07/20 05:00PM @ Sam Adams Boston Brewery**  
-Join us on every third Sunday of the month as we spotlight some of our loved and local businesses.  
-<a href="https://www.eventbrite.com/e/sam-adams-thrift-shop-tickets-1256807949409" target="_blank">info link</a>
+**08/03 10:00AM - 08/03 08:00PM @ Newbury Street**  
+UPDATE: 7/20 Open Newbury Street is canceled due to forecasted rain.  
+<a href="https://www.boston.gov/departments/transportation/open-newbury-street" target="_blank">info link</a>
+
+### REBEL Summer Party
+
+**08/03 03:00PM - 08/03 07:00PM @ 2 Linden Street**  
+You’re invited to REBEL with us this summer.  
+<a href="https://www.harvardsquare.com/event/rebel-summer-party/" target="_blank">info link</a>
+
+### Ice Cream Social Family Day Rodeo
+
+**08/03 01:00PM - 08/03 06:00PM @ Dr. Loesch Wainwright Park**  
+We’re excited to announce that the 3rd Annual Ice Cream Social Family Day Rodeo is officially saddled up and riding into town!  
+<a href="https://www.eventbrite.com/e/3rd-annual-ice-cream-social-family-day-rodeo-event-tickets-1308099303229?aff=oddtdtcreator" target="_blank">info link</a>
+
+### The Somerville Flea
+
+**08/03 10:00AM - 08/03 04:00PM @ Somerville Flea**  
+Dozens of your favorite vendors back at it for the 13th year of the Somerville Flea.  
+<a href="https://www.thesomervilleflea.com/" target="_blank">info link</a>
+
+### 2025 SoWa Open Market
+
+**08/03 11:00AM - 08/03 05:00PM @ SoWa Open Market**  
+Join us every weekend starting in May 4, 2025!  
+<a href="https://www.sowaboston.com/sowa-open-market/" target="_blank">info link</a>
+
+### Popup Bookfair at Bully Boy Distillery
+
+**08/03 02:00PM - 08/03 05:00PM @ Bully Boy**  
+The Book Ends team will be on hand recommending new titles and fan-favorites in a new location for us.  
+<a href="https://www.eventbrite.com/e/popup-bookfair-at-bully-boy-distillery-tickets-1413099100449" target="_blank">info link</a>
+
+### OFFICIAL F1® ARCADE BUDAPEST WATCH PARTY
+
+**08/03 08:00AM - 08/03 11:00AM @ F1 Arcade**  
+Formula 1® heads to Hungary, where the action heats up at the technical Hungaroring!  
+<a href="https://f1arcade.com/us/watch-parties/budapest" target="_blank">info link</a>
 
 ### Summer Concerts at Spectacle Island
 
-**07/20 02:00PM - 07/20 05:00PM @ Spectacle Island**  
+**08/03 02:00PM - 08/03 05:00PM @ Spectacle Island**  
 Kick back and relax in one of Spectacle Island’s Adirondack chairs as you take in harbor views and enjoy the sounds of talented up-and-coming artists from Berklee College of Music.  
 <a href="https://college.berklee.edu/events/summer/spectacle-island" target="_blank">info link</a>
 
 ### Memorial Drive Recreation Sundays 2025
 
-**07/20 11:00AM - 07/20 07:00PM @ Riverbend Park**  
+**08/03 11:00AM - 08/03 07:00PM @ Riverbend Park**  
 The Department of Conservation and Recreation (DCR) closes a portion Memorial Drive to motor vehicle traffic each weekend from the end of April to mid-November to allow pedestrians, cyclists, and others to enjoy the riverfront roadway without cars.  
 <a href="https://www.cambridgema.gov/streetsandtransportation/memorialdrive" target="_blank">info link</a>
 
-### Greenway Artisan Market
-
-**07/19 11:00AM - 07/20 05:00PM @ Rose Kennedy Greenway**  
-A vibrant open-air market featuring talented area artists, makers, stylists and independent designers on the Boston Waterfront.  
-<a href="https://www.greenwayartisanmarket.com/" target="_blank">info link</a>
-
 ### Coffee+Crafts
 
-**07/20 01:00PM - 07/20 04:00PM @ Boston Fiber Company**  
+**08/03 01:00PM - 08/03 04:00PM @ Boston Fiber Company**  
 Join us every Sunday from 1pm-4pm for Coffee+Crafts!  
 <a href="https://www.bostonfibercompany.com" target="_blank">info link</a>
 
-### Unlimited Brunch buffet
-
-**07/19 10:00AM - 07/20 03:30PM @ Batifol Cambridge**  
-Bonjour, brunch lovers! Join us every Saturday & Sunday, for a French-inspired feast that’s anything but ordinary.  
-<a href="https://www.batifolcambridge.com/brunch-buffet" target="_blank">info link</a>
-
 ### Poetry Open Mic at Trident
 
-**07/20 07:00PM - 07/20 09:00PM @ Trident Booksellers & Cafe**  
+**08/03 07:00PM - 08/03 09:00PM @ Trident Booksellers & Cafe**  
 Join us for a fun evening of open mic poetry!  
 <a href="https://www.tridentbookscafe.com/event/poetry-open-mic-1" target="_blank">info link</a>
 
-### $10 Commuter Rail Weekends and Holidays
+### The Somerville Flea
 
-**07/19 05:00AM - 07/20 11:59PM @ Boston**  
-Enjoy unlimited travel on the Commuter Rail for just $10 every weekend.  
-<a href="https://massbytrain.com/offers/" target="_blank">info link</a>
+**08/03 10:00AM - 08/03 04:00PM @ Somerville Flea**  
+Dozens of your favorite vendors back at it for the 13th year of the Somerville Flea.  
+<a href="https://www.thesomervilleflea.com/" target="_blank">info link</a>
+
+### Ice Cream Social Family Day Rodeo
+
+**08/03 01:00PM - 08/03 06:00PM @ Dr. Loesch Wainwright Park**  
+We’re excited to announce that the 3rd Annual Ice Cream Social Family Day Rodeo is officially saddled up and riding into town!  
+<a href="https://www.eventbrite.com/e/3rd-annual-ice-cream-social-family-day-rodeo-event-tickets-1308099303229?aff=oddtdtcreator" target="_blank">info link</a>
 
 ### Open Newbury Street 2025
 
-**07/20 10:00AM - 07/20 08:00PM @ Newbury Street**  
-Newbury Street is a mile-long, eight block stretch of shops, salons, galleries and restaurants.  
+**08/03 10:00AM - 08/03 08:00PM @ Newbury Street**  
+UPDATE: 7/20 Open Newbury Street is canceled due to forecasted rain.  
 <a href="https://www.boston.gov/departments/transportation/open-newbury-street" target="_blank">info link</a>
 
-### Black Owned Bos. Market
+### REBEL Summer Party
 
-**07/20 12:00PM - 07/20 06:00PM @ 111 Harbor Way**  
-From gifts and apparel to packaged foods and beauty & skincare products, the Seaport x Black Owned Bos.  
-<a href="https://www.bostonseaport.xyz/event/black-owned-bos-market-2025-5-18" target="_blank">info link</a>
-
-### Wicked Local Wares Pop Up Market
-
-**07/20 12:00PM - 07/20 05:00PM @ Time Out Market Boston**  
-Sip, eat, and shop from a variety of local artisans and vendors at the historic landmark center.  
-<a href="https://www.eventbrite.com/e/wicked-local-wares-pop-up-market-tickets-1348774453699" target="_blank">info link</a>
-
-### Book Swap at PSB: Boston Edition
-
-**07/20 02:00PM - 07/20 03:00PM @ Porter Square Books: Boston Edition**  
-Do you have a bunch of books hanging out that you know you're not going to read again?  
-<a href="https://www.portersquarebooks.com/event/2025-07-20/book-swap-psb-boston-edition" target="_blank">info link</a>
-
-### 10th Anniversary Fest!
-
-**07/20 12:00PM - 07/20 05:00PM @ Lord Hobo Brewing Company**  
-Lord Hobo’s 10th Anniversary Festival – 10 Years On Tap!  
-<a href="https://" target="_blank">info link</a>
-
-### Thrift (S)hop
-
-**07/20 01:00PM - 07/20 05:00PM @ Sam Adams Boston Brewery**  
-Join us on every third Sunday of the month as we spotlight some of our loved and local businesses.  
-<a href="https://www.eventbrite.com/e/sam-adams-thrift-shop-tickets-1256807949409" target="_blank">info link</a>
+**08/03 03:00PM - 08/03 07:00PM @ 2 Linden Street**  
+You’re invited to REBEL with us this summer.  
+<a href="https://www.harvardsquare.com/event/rebel-summer-party/" target="_blank">info link</a>
 
 ### 2025 SoWa Open Market
 
-**07/20 11:00AM - 07/20 05:00PM @ SoWa Open Market**  
+**08/03 11:00AM - 08/03 05:00PM @ SoWa Open Market**  
 Join us every weekend starting in May 4, 2025!  
 <a href="https://www.sowaboston.com/sowa-open-market/" target="_blank">info link</a>
 
-### Horse-of-Course - Meet Boston Park Rangers and their Horses
-
-**07/20 02:00PM - 07/20 02:45PM @ 139 Tremont st**  
-Join the Boston Park Rangers as we offer FREE environmental education through guided tours and nature-based programming intended for ALL AGES.  
-<a href="https://www.boston.gov/calendar/horse-course-8" target="_blank">info link</a>
-
-### Free Tours of Fort Independence
-
-**07/19 12:00PM - 07/20 03:00PM @ Castle Island state park**  
-In June, July, and August 2025, tours will be run between 12:00 and 3:00 on Saturdays and Sundays starting Memorial Day weekend.  
-<a href="https://fortindependence.org/" target="_blank">info link</a>
-
-### Greenway Artisan Market
-
-**07/19 11:00AM - 07/20 05:00PM @ Rose Kennedy Greenway**  
-A vibrant open-air market featuring talented area artists, makers, stylists and independent designers on the Boston Waterfront.  
-<a href="https://www.greenwayartisanmarket.com/" target="_blank">info link</a>
-
 ### Memorial Drive Recreation Sundays 2025
 
-**07/20 11:00AM - 07/20 07:00PM @ Riverbend Park**  
+**08/03 11:00AM - 08/03 07:00PM @ Riverbend Park**  
 The Department of Conservation and Recreation (DCR) closes a portion Memorial Drive to motor vehicle traffic each weekend from the end of April to mid-November to allow pedestrians, cyclists, and others to enjoy the riverfront roadway without cars.  
 <a href="https://www.cambridgema.gov/streetsandtransportation/memorialdrive" target="_blank">info link</a>
 
 ### Coffee+Crafts
 
-**07/20 01:00PM - 07/20 04:00PM @ Boston Fiber Company**  
+**08/03 01:00PM - 08/03 04:00PM @ Boston Fiber Company**  
 Join us every Sunday from 1pm-4pm for Coffee+Crafts!  
 <a href="https://www.bostonfibercompany.com" target="_blank">info link</a>
 
 ### Poetry Open Mic at Trident
 
-**07/20 07:00PM - 07/20 09:00PM @ Trident Booksellers & Cafe**  
+**08/03 07:00PM - 08/03 09:00PM @ Trident Booksellers & Cafe**  
 Join us for a fun evening of open mic poetry!  
 <a href="https://www.tridentbookscafe.com/event/poetry-open-mic-1" target="_blank">info link</a>
 
-### Boston's Cultural District Festival: One Boston, Many Stories
+### Ice Cream Social Family Day Rodeo
 
-**07/20 12:00PM - 07/20 05:00PM @ City Hall Plaza**  
-Welcome to Boston’s Cultural District’s One Boston, Many Stories Festival!  
-<a href="https://www.eventbrite.com/e/bostons-cultural-districts-one-boston-many-stories-festival-tickets-1412377472039" target="_blank">info link</a>
+**08/03 01:00PM - 08/03 06:00PM @ Dr. Loesch Wainwright Park**  
+We’re excited to announce that the 3rd Annual Ice Cream Social Family Day Rodeo is officially saddled up and riding into town!  
+<a href="https://www.eventbrite.com/e/3rd-annual-ice-cream-social-family-day-rodeo-event-tickets-1308099303229?aff=oddtdtcreator" target="_blank">info link</a>
 
-# Monday, July 21, 2025
+### REBEL Summer Party
 
-# Tuesday, July 22, 2025
+**08/03 03:00PM - 08/03 07:00PM @ 2 Linden Street**  
+You’re invited to REBEL with us this summer.  
+<a href="https://www.harvardsquare.com/event/rebel-summer-party/" target="_blank">info link</a>
 
-# Wednesday, July 23, 2025
+### Popup Bookfair at Bully Boy Distillery
 
-# Thursday, July 24, 2025
+**08/03 02:00PM - 08/03 05:00PM @ Bully Boy**  
+The Book Ends team will be on hand recommending new titles and fan-favorites in a new location for us.  
+<a href="https://www.eventbrite.com/e/popup-bookfair-at-bully-boy-distillery-tickets-1413099100449" target="_blank">info link</a>
 
-# Friday, July 25, 2025
+### Open Newbury Street 2025
 
-### 20's & 30's Let's Socialize and Play Games at Lawn on D (Seaport)
+**08/03 10:00AM - 08/03 08:00PM @ Newbury Street**  
+UPDATE: 7/20 Open Newbury Street is canceled due to forecasted rain.  
+<a href="https://www.boston.gov/departments/transportation/open-newbury-street" target="_blank">info link</a>
 
-**07/25 07:30PM - 07/25 10:30PM @ Lawn on D**  
+### Memorial Drive Recreation Sundays 2025
+
+**08/03 11:00AM - 08/03 07:00PM @ Riverbend Park**  
+The Department of Conservation and Recreation (DCR) closes a portion Memorial Drive to motor vehicle traffic each weekend from the end of April to mid-November to allow pedestrians, cyclists, and others to enjoy the riverfront roadway without cars.  
+<a href="https://www.cambridgema.gov/streetsandtransportation/memorialdrive" target="_blank">info link</a>
+
+### 2025 SoWa Open Market
+
+**08/03 11:00AM - 08/03 05:00PM @ SoWa Open Market**  
+Join us every weekend starting in May 4, 2025!  
+<a href="https://www.sowaboston.com/sowa-open-market/" target="_blank">info link</a>
+
+### The Somerville Flea
+
+**08/03 10:00AM - 08/03 04:00PM @ Somerville Flea**  
+Dozens of your favorite vendors back at it for the 13th year of the Somerville Flea.  
+<a href="https://www.thesomervilleflea.com/" target="_blank">info link</a>
+
+# Monday, August 04, 2025
+
+### Dine Out Boston Summer 2025
+
+**08/03 12:00PM - 08/16 09:00PM @ Various Restaurants**  
+Dine Out Boston is brought to you by Meet Boston, providing locals and visitors alike the opportunity to try many restaurants in the area at special prices.  
+<a href="https://www.meetboston.com/dine-out-boston/" target="_blank">info link</a>
+
+# Tuesday, August 05, 2025
+
+### Dine Out Boston Summer 2025
+
+**08/03 12:00PM - 08/16 09:00PM @ Various Restaurants**  
+Dine Out Boston is brought to you by Meet Boston, providing locals and visitors alike the opportunity to try many restaurants in the area at special prices.  
+<a href="https://www.meetboston.com/dine-out-boston/" target="_blank">info link</a>
+
+### FREE Intro to Latin Dance Class
+
+**08/05 05:30PM - 08/05 07:00PM @ Canal District Kendall**  
+☀️💙 The class that we've all been waiting for is finally here on Tuesday, August 5th!  
+<a href="https://www.instagram.com/p/DMiQ4U2sbBG/?img_index=1" target="_blank">info link</a>
+
+### Hooks and Books
+
+**08/05 06:00PM - 08/05 08:30PM @ Trident Booksellers & Café**  
+No RSVP is needed! Join us for a cozy evening of creativity in our upstairs cafe!  
+<a href="https://tridentbookscafe.com/event/2025-08-05/hooks-and-books" target="_blank">info link</a>
+
+# Wednesday, August 06, 2025
+
+### Dine Out Boston Summer 2025
+
+**08/03 12:00PM - 08/16 09:00PM @ Various Restaurants**  
+Dine Out Boston is brought to you by Meet Boston, providing locals and visitors alike the opportunity to try many restaurants in the area at special prices.  
+<a href="https://www.meetboston.com/dine-out-boston/" target="_blank">info link</a>
+
+### Movie nights at Hood Park: Mean Girls
+
+**08/06 08:00PM - 08/06 10:00PM @ Hood Park**  
+Welcome to Movie Nights at Hood Park! Join us at Hood Park's Lawn (located at 100 Hood Park Drive, Charlestown) for a fun movie screening under the stars.  
+<a href="https://www.eventbrite.com/e/movie-nights-at-hood-park-tickets-1431646275549" target="_blank">info link</a>
+
+### Grand Ten Line Dancin' Lessons
+
+**08/06 06:30PM - 08/06 09:30PM @ Grand Ten Distilling**  
+Mosey on down to South Boston on the 1st and 3rd Wednesdays of the month for three hours of line dance breakdowns and walk throughs.  
+<a href="https://" target="_blank">info link</a>
+
+### Moakley Park Summer Nights
+
+**08/06 05:30PM - 08/06 08:00PM @ Moakley Park**  
+Celebrate summer with us on three Wednesday evenings full of free, family-friendly fun at Moakley Park.  
+<a href="https://www.eventbrite.com/e/moakley-park-summer-nights-tickets-1320673252249" target="_blank">info link</a>
+
+### Salsa at the Birch St Plaza
+
+**08/06 07:00PM - 08/06 09:00PM @ Birch St Plaza**  
+Salsa at Birch Street Plaza with Salsa y Control Studio Wednesdays | 7:00 PM – 9:00 PM | Birch Street PlazaSpice up your week with Salsa at Birch Street Plaza!  
+<a href="https://roslindale.app.neoncrm.com/nx/portal/neonevents/events?path=%2Fportal%2Fevents%2F20989" target="_blank">info link</a>
+
+### The Summer I Turned Pretty Watch Party | Episode 5
+
+**08/06 07:30PM - 08/06 09:00PM @ The Anchor**  
+Introducing: The Summer I Turned Pretty Watch Parties Wednesdays at 7:30 PM |  The Anchor BostonGrab your besties and meet us by the water for a TSITP watch party — every Wednesday night at The Anchor before movie night!  
+<a href="https://www.eventbrite.com/e/the-summer-i-turned-pretty-watch-party-episode-5-tickets-1505755678769?aff=oddtdtcreator" target="_blank">info link</a>
+
+### Watercolor Workshop at Lyrik
+
+**08/06 04:00PM - 08/06 07:00PM @ Lyrik Back Bay**  
+CLASS CANCELLED WED 7/30, AND RESUMING WEDNESDAY 8/6.  
+<a href="https://lyrikbackbay.com/happening/" target="_blank">info link</a>
+
+### Boston Singles Run Club
+
+**08/06 06:45PM - 08/06 09:00PM @ City Hall Plaza**  
+The singles run club has made its way to Boston!  
+<a href="https://www.strava.com/clubs/1503836?share_sig=00360C5C1746067782" target="_blank">info link</a>
+
+# Thursday, August 07, 2025
+
+### Dine Out Boston Summer 2025
+
+**08/03 12:00PM - 08/16 09:00PM @ Various Restaurants**  
+Dine Out Boston is brought to you by Meet Boston, providing locals and visitors alike the opportunity to try many restaurants in the area at special prices.  
+<a href="https://www.meetboston.com/dine-out-boston/" target="_blank">info link</a>
+
+### Backyard Bash Carnival
+
+**08/07 12:00PM - 08/07 02:00PM @ Boston Common**  
+Escape the hustle and bustle of Downtown Boston and gather in community on the lush green grass on Boston Common.  
+<a href="https://friendsofthepublicgarden.org/events/backyard-bash/" target="_blank">info link</a>
+
+### NEMPAC's Jazz in the Park
+
+**08/07 06:30PM - 08/07 08:00PM @ Rose Kennedy Greenway**  
+The North End Music & Performing Arts Center (NEMPAC) returns to the Rose Kennedy Greenway for its 2025 Jazz in the Park Summer Concert Series on Thursday Nights July 10 through August 7.  
+<a href="https://nempacboston.org/jazz-in-the-park/" target="_blank">info link</a>
+
+### Slow Art Thursdays
+
+**08/07 06:00PM - 08/07 08:00PM @ MassArt Art Museum**  
+Looking to slow down and relax? Take a break from the everyday during Slow Art Thursdays.  
+<a href="https://maam.massart.edu/event/slow-art-thursdays" target="_blank">info link</a>
+
+### Notre Dame/Irish Heritage Trivia Night
+
+**08/07 06:30PM - 08/07 08:30PM @ The Anchor**  
+Notre Dame Trivia Night at The Anchor Thursday, August 7 | 6:30 PM – 8:30 PM The Anchor Boston | 1 Shipyard Park, CharlestownThink you know your Fighting Irish facts?  
+<a href="https://www.eventbrite.com/e/notre-dameirish-heritage-trivia-night-tickets-1500526979589?aff=oddtdtcreator" target="_blank">info link</a>
+
+### Harborwalk Sounds: Berklee College of Music at the ICA
+
+**08/07 06:00PM - 08/07 08:30PM @ Institute of Contemporary Art Boston**  
+A summer classic returns! Grab a drink, enjoy the cool ocean breeze, and hear some of Berklee College of Music’s outstanding musicians perform on the waterfront.  
+<a href="https://www.icaboston.org/events/harborwalk-sounds-berklee-college-music-ica/" target="_blank">info link</a>
+
+### The Night Bazaar
+
+**08/07 05:00PM - 08/07 10:00PM @ The Charles River Speedway**  
+Thursday August 7 & 21 from 5-10pm: over 100 small businesses are popping up at The Charles River Speedway (525 Western Ave 02135) in Boston to sell art, vinyl, vintage, & more at The Night Bazaar!  
+<a href="https://www.facebook.com/share/173A2WdvkV/" target="_blank">info link</a>
+
+### Backgammon Club
+
+**08/07 06:00PM - 08/07 08:30PM @ Mamaleh's Delicatessen**  
+Looking for a new hobby? Whether you've never played backgammon before or you're a seasoned pro, we'd love to see you at Backgammon Club on Thursdays at 6PM at Mamaleh's Delicatessen Cambridge!  
+<a href="https://www.facebook.com/events/1388397225749902/1388397259083232/?event_time_id=1388397259083232" target="_blank">info link</a>
+
+# Friday, August 08, 2025
+
+### Dine Out Boston Summer 2025
+
+**08/03 12:00PM - 08/16 09:00PM @ Various Restaurants**  
+Dine Out Boston is brought to you by Meet Boston, providing locals and visitors alike the opportunity to try many restaurants in the area at special prices.  
+<a href="https://www.meetboston.com/dine-out-boston/" target="_blank">info link</a>
+
+### Carson Beach Community Kickback
+
+**08/08 04:00PM - 08/08 06:30PM @ Carson Beach**  
+Boston Harbor Now and Save the Harbor/Save the Bay are ecstatic to host the third annual Carson Beach Community Kickback!  
+<a href="https://www.eventbrite.com/e/carson-beach-community-kickback-tickets-1353979752889" target="_blank">info link</a>
+
+### The Bridge Social
+
+**08/08 06:00PM - 08/08 11:00PM @ The Anchor**  
+🎉 The Bridge SocialThe Official Pre-Party for The Bridge Vol.  
+<a href="https://www.eventbrite.com/e/the-bridge-social-tickets-1409206437389" target="_blank">info link</a>
+
+### Movie Night at the Plaza: Freaky Friday
+
+**08/08 06:30PM - 08/08 10:00PM @ SBWTC Plaza**  
+Outdoor movie night featuring Freaky Friday (PG).  
+<a href="https://www.eventbrite.com/e/movie-night-at-the-plaza-freaky-friday-tickets-1485594716789" target="_blank">info link</a>
+
+### Madonna Della Cava Feast in the North End 2025
+
+**08/08 07:00PM - 08/10 11:00PM @ North End**  
+2025 marks the 105th Anniversary of the Feast of the Madonna Della Cava in Boston’s Historic North End!  
+<a href="https://www.madonnadellacava.com/" target="_blank">info link</a>
+
+### FREE Outdoor Movie Night Series at CambridgeSide
+
+**08/08 07:00PM - 08/08 09:30PM @ CanalSide at CambridgeSide**  
+Grab a bite at CanalSide Food + Drink and join us on the lawn in Canal Park to enjoy our FREE outdoor Movie Night Series.  
+<a href="https://www.cambridgeside.com" target="_blank">info link</a>
+
+# Saturday, August 09, 2025
+
+### Dine Out Boston Summer 2025
+
+**08/03 12:00PM - 08/16 09:00PM @ Various Restaurants**  
+Dine Out Boston is brought to you by Meet Boston, providing locals and visitors alike the opportunity to try many restaurants in the area at special prices.  
+<a href="https://www.meetboston.com/dine-out-boston/" target="_blank">info link</a>
+
+### Madonna Della Cava Feast in the North End 2025
+
+**08/08 07:00PM - 08/10 11:00PM @ North End**  
+2025 marks the 105th Anniversary of the Feast of the Madonna Della Cava in Boston’s Historic North End!  
+<a href="https://www.madonnadellacava.com/" target="_blank">info link</a>
+
+### Festival Viva Colombia Boston 2025
+
+**08/09 01:30PM - 08/09 08:00PM @ 102 Border St.**  
+The Viva Colombia Boston Festival is coming!  
+<a href="https://veronicaroblesculturalcenter.org/festival-viva-colombia-boston-2025/" target="_blank">info link</a>
+
+### Dudley Street Annual Multicultural Festival
+
+**08/09 12:00PM - 08/09 05:00PM @ Mary Hannon Park**  
+The Multicultural Festival honors the arts & culture of our community.  
+<a href="https://www.dsni.org" target="_blank">info link</a>
+
+### Island Vibes Dance Party
+
+**08/09 03:00PM - 08/09 08:00PM @ City Hall Plaza**  
+Join us on Saturday, August 9, at 3 p.m. for Island Vibes, an outdoor dance party at City Hall Plaza celebrating the rhythms and cultures of the African diaspora and Caribbean.  
+<a href="https://www.boston.gov/calendar/island-vibes-dance-party" target="_blank">info link</a>
+
+### Somerville Yart Sale
+
+**08/09 12:00PM - 08/09 06:00PM @ Somerville**  
+Yart Sale is a city-wide celebration of creativity, community, and outdoor artful fun.  
+<a href="https://somervilleartscouncil.org/events/yart-sale-2025/" target="_blank">info link</a>
+
+### 20's & 30's Picnic on the Charles River (Boston)
+
+**08/09 12:00PM - 08/09 04:00PM @ Charles River Esplanade**  
 Hi, my name is Tal and I run the Make Friends After College group on Facebook.  
 <a href="https://" target="_blank">info link</a>
 
-### 20's & 30's Let's Socialize and Play Games at Lawn on D (Seaport)
+### Two-Step Throwdown by the Sea
 
-**07/25 07:30PM - 07/25 10:30PM @ Lawn on D**  
-Hi, my name is Tal and I run the Make Friends After College group on Facebook.  
-<a href="https://" target="_blank">info link</a>
+**08/09 01:00PM - 08/09 04:00PM @ Wollaston Beach**  
+Boots on the Beach is a fun, no-pressure line dance workshop for all ages.  
+<a href="https://www.savetheharbor.org/events/rwyvi5ptnht9h4xzlvqmjwew4w6ni3-4r9ny-cgldn-p73ye-wffj8-8yktr-p2ftj-txhlb-2se67-a4be9-3gl5a-zzfwp-69ztw-mgxlr-gsje4-zzcm9-m3kms-z5aba-pcckh" target="_blank">info link</a>
 
-### Lowell Folk Festival 2025
+### Park-9 Luau
 
-**07/25 06:00PM - 07/27 06:00PM @ Lowell**  
-The Lowell Folk Festival is the longest-running, and second largest, free folk festival in the United States.  
-<a href="https://lowellfolkfestival.org/" target="_blank">info link</a>
+**08/09 03:00PM - 08/09 05:00PM @ Park-9 Dog Bar**  
+Break out your Hawaiian shirts and get ready for our Second Annual Park-9 Summer Luau Bash!  
+<a href="https://www.park9dogbar.com/events/park-9-luau-lbay9" target="_blank">info link</a>
+
+### Tango by Moonlight
+
+**08/09 03:00PM - 08/09 06:00PM @ Rose Kennedy Greenway**  
+Tango by Moonlight is one of Boston’s oldest public dance events.  
+<a href="https://www.rosekennedygreenway.org/events/tango-by-moonlight-8/" target="_blank">info link</a>
+
+### Be Free By The Bridge Dance Party
+
+**08/09 01:00PM - 08/09 08:00PM @ Magazine Beach**  
+Be Free By The Bridge concludes with it's fourth and final chapter of the Be Free Summer Series at Magazine Beach, Cambridge celebrating under the sun, by the banks of the Charles River from 1-8pm.  
+<a href="https://www.eventbrite.com/e/be-free-btb-deep-soulful-afro-jazzy-house-music-outdoor-dancing-finale-tickets-1468016208999" target="_blank">info link</a>
+
+### Dream Role Players Presents Macbeth
+
+**08/09 06:00PM - 08/10 08:30PM @ Longfellow Park**  
+Dream Role Players presents Macbeth outdoors at Longfellow Park every Saturday and Sunday at 6PM from Aug.  
+<a href="https://www.dreamroleplayerstheater.com/what" target="_blank">info link</a>
 
